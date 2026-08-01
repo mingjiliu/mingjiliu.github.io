@@ -1,0 +1,24 @@
+---
+layout: default
+---
+<article>
+  <h1>{{ page.title }}</h1>
+  <p class="byline">By <a href="/about/">Mingji Liu</a>{% if page.date %} · <time datetime="{{ page.date | date_to_xmlschema }}">{{ page.date | date: "%B %-d, %Y" }}</time>{% endif %}</p>
+  {{ content }}
+</article>
+<script type="application/ld+json">
+{
+  "@context": "https://schema.org",
+  "@type": "CreativeWork",
+  "headline": {{ page.title | jsonify }},
+  "url": {{ page.url | absolute_url | jsonify }},
+  {% if page.date %}"datePublished": {{ page.date | date_to_xmlschema | jsonify }},{% endif %}
+  "inLanguage": "en",
+  "license": "https://creativecommons.org/licenses/by/4.0/",
+  "author": {
+    "@type": "Person",
+    "name": "Mingji Liu",
+    "url": "https://mingjiliu.com/about/"
+  }
+}
+</script>

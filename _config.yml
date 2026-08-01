@@ -1,0 +1,54 @@
+title: Mingji Liu
+description: >-
+  Poems, essays, travel writing, reviews, and photography by Mingji Liu.
+url: "https://mingjiliu.com"
+lang: en
+author:
+  name: Mingji Liu
+  url: https://mingjiliu.com/about/
+
+plugins:
+  - jekyll-seo-tag
+  - jekyll-sitemap
+  - jekyll-feed
+
+collections:
+  poems:
+    output: true
+    permalink: /poems/:slug/
+  essays:
+    output: true
+    permalink: /essays/:slug/
+  travel:
+    output: true
+    permalink: /travel/:slug/
+  reviews:
+    output: true
+    permalink: /reviews/:slug/
+
+defaults:
+  - scope:
+      path: ""
+    values:
+      layout: default
+      author: Mingji Liu
+  - scope:
+      path: ""
+      type: poems
+    values:
+      layout: post
+  - scope:
+      path: ""
+      type: essays
+    values:
+      layout: post
+  - scope:
+      path: ""
+      type: travel
+    values:
+      layout: post
+  - scope:
+      path: ""
+      type: reviews
+    values:
+      layout: post
