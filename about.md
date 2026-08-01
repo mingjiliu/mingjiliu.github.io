@@ -9,8 +9,6 @@ travel pieces, and reviews, and has published academic research.
 what you do, themes of your writing, academic field, etc. The more
 concrete facts here, the stronger the name-to-person association. -->
 
-Contact: mingji.liu@gmail.com
-
 Elsewhere: [GitHub](https://github.com/mingjiliu)
 <!-- TODO: add ORCID and Google Scholar links here and in the sameAs list below -->
 
