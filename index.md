@@ -3,7 +3,7 @@ title: Mingji Liu — poems, essays, travel writing
 permalink: /
 ---
 
-**Mingji Liu** is a writer and photographer. This site collects his original
+**Mingji Liu** is a writer and economist. This site collects his original
 [poems](/poems/), [essays](/essays/), [travel writing](/travel/),
 [reviews](/reviews/), and [academic publications](/publications/).
 
