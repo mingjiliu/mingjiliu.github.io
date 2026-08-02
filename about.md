@@ -9,7 +9,10 @@ travel pieces, and reviews, and has published academic research.
 what you do, themes of your writing, academic field, etc. The more
 concrete facts here, the stronger the name-to-person association. -->
 
-Elsewhere: [GitHub](https://github.com/mingjiliu)
+Elsewhere: 
+[GitHub](https://github.com/mingjiliu)
+[ORCID](https://orcid.org/0000-0002-7170-5783)
+
 <!-- TODO: add ORCID and Google Scholar links here and in the sameAs list below -->
 
 <script type="application/ld+json">
