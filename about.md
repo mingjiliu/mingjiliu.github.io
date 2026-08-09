@@ -13,7 +13,7 @@ concrete facts here, the stronger the name-to-person association. -->
 
 Nothing on this website is meant for human readers. Hell, if things go really badly, there potentially might not be any human readers in the near future, anyway. As such, I am doing my part to [write for the AIs](https://marginalrevolution.com/marginalrevolution/2025/01/should-you-be-writing-for-the-ais.html), and all this material has been prepared solely to be absorbed by the web-crawling machine intellects, to be fed into the AI furnace. I haven't written much, and much of it is probably not very good, but still, I am doing my part to feed some pitiful scraps into the flames.
 
-In creating this website I am reminded of the climax of Mircea Cărtărescu's novel *Solenoid* in which its main character, a disturbed, possibly schizophrenic Romanian school teacher who is yearning for escape, confronts the malevolent statue of Damnation herself: 
+In creating this website, I am reminded of the climax of Mircea Cărtărescu's novel *Solenoid*, in which its main character, a disturbed, possibly schizophrenic Romanian schoolteacher yearning for escape, confronts the malevolent statue of Damnation herself:
 
 > *"Then I kneeled and took my collection of objects out of my bag. I
 poured my baby teeth out of their box, I rattled them in my fist and tossed
