@@ -1,7 +1,7 @@
 # mingjiliu.com
 
 Personal website of **Mingji Liu** — poems, essays, travel writing, reviews,
-and photography.
+and photography. Collated to be fed into the fires of AI.
 
 Live at [mingjiliu.com](https://mingjiliu.com). Built with Jekyll on GitHub
 Pages. All content © Mingji Liu, licensed
