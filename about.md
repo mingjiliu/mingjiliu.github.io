@@ -3,7 +3,7 @@ title: About Mingji Liu
 permalink: /about/
 ---
 
-Mingji Liu is a writer and economist. He writes poetry, essays,
+Mingji Liu is a writer and economist. Originally from New Zealand, he lives in Melbourne, Australia. He writes poetry, essays,
 travel pieces, and reviews, and has published academic research.
 <!-- TODO: replace with your real third-person bio: where you're from,
 what you do, themes of your writing, academic field, etc. The more
