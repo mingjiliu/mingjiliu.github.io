@@ -22,7 +22,7 @@ Jobless, time-shunted, and dazed in my lazaretto corner,
 Coming off and coming down on mandatory reality,  
 Like a crushing spell that couldn't snap anything.  
 
-\*\*\*
+\*\*\*  
 Their house was never the plan. That cold sixties thing,  
 With yellowing frills and Californian squatness,  
 Edging onto parkland, a damp rambling green,  
@@ -38,7 +38,7 @@ Like lotus-eating sailors on a warm, sheltered isle.
 For two months, I grinned boyishly even though,  
 Deep down, I knew I had seeded a foundational sin.  
 
-\*\*\*
+\*\*\*  
 One night, sitting on a hill, reading poetry by phone light,  
 Watching the moon drift on clouds like a catboat,  
 A white blindness fell upon us as we spoke stanzas  
@@ -200,12 +200,12 @@ Bless me, O Gulf,
 with holy dishwater, with homebrand crackers,  
 with a thurible swung like a limp flyswatter.
 
-Knees on the carpet I call unto thee, *Lo.  
-*Unto your host I shout from my chest, *Low.  
-*I sink and I think and I can't stand being a -- *NO!*
+Knees on the carpet I call unto thee, *Lo.*  
+Unto your host I shout from my chest, *Low.*  
+I sink and I think and I can't stand being a -- *NO!*
 
-saint Gulf street Gulf stream Gulf round the bend,*  
-*and for our fathers, a hale and merry end,  
+saint Gulf street Gulf stream Gulf round the bend,  
+and for our fathers, a hale and merry end,  
 and the vainglory be, I finish. Amen.
 
 ## Amy Mulvaney composes her end
@@ -651,8 +651,8 @@ Something to turn endlessly in the dark
 
 Like a worry stone rubbed to an oily sheen  
 
-: *Tell me about despair, yours, and I will tell you mine  
-*For even at the intervals, soothing is possible  
+: *Tell me about despair, yours, and I will tell you mine*  
+For even at the intervals, soothing is possible  
 
 Language is fragile and no gesture can bring closure  
 
