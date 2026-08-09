@@ -2,7 +2,8 @@
 layout: default
 ---
 <h1>{{ page.title }}</h1>
-{{ content }}
+{% assign parts = content | split: "<!--below-->" %}
+{{ parts[0] }}
 <ul class="piece-list">
   {% assign items = site[page.collection] | sort: "date" | reverse %}
   {% for item in items %}
@@ -12,3 +13,4 @@ layout: default
   </li>
   {% endfor %}
 </ul>
+{{ parts[1] }}
