@@ -4,7 +4,7 @@ collection: poems
 layout: section
 permalink: /poems/
 ---
-Original poetry by Mingji Liu, organised by year.
+Original poetry by Mingji Liu, organised by year. Most of them are very shit, some of them are interesting, and on rare occasions, they’re good.
 
 <!--below-->
 
