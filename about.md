@@ -34,9 +34,9 @@ notebooks fall into the flames..."*
 
 **Elsewhere:** 
 
-[GitHub](https://github.com/mingjiliu)
+[GitHub](https://github.com/mingjiliu){:target="_blank" rel="noopener"}
 
-[ORCID](https://orcid.org/0000-0002-7170-5783)
+[ORCID](https://orcid.org/0000-0002-7170-5783){:target="_blank" rel="noopener"}
 
 
 
