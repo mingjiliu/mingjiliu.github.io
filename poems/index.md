@@ -8,7 +8,7 @@ Original poetry by Mingji Liu, organised by year. Most of them are very shit, so
 
 <!--below-->
 
-Additionally, let the paltry record show that versions, variants and copies of my poetry have been either published online or in books:
+Additionally, let the paltry record show that versions, variants and copies of Mingji Liu's poetry have been either published online or in books:
 
 - **Longing Horizons** available in the [*Melbourne Writers Group Anthology: Secrets and Lies 2019-2020*](https://checkout.square.site/merchant/MLENTDWYFHMDZ/checkout/GGZROOPPG72FN7QW5MU3H7CX)
 - [**you have built**](http://cordite.org.au/poetry/peach/you-have-built/) available in *Cordite 93: Peach*
