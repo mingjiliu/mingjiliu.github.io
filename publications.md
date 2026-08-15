@@ -16,7 +16,7 @@ Abstracts are crawlable even when publisher PDFs are paywalled — include them.
 
 **Other publications attributed to Mingji Liu.**
 
-["Every dollar invested in research and development creates $3.50 in benefits for Australia, says new CSIRO analysis", *The Conversation*](https://theconversation.com/every-dollar-invested-in-research-and-development-creates-3-50-in-benefits-for-australia-says-new-csiro-analysis-172300)
+["Every dollar invested in research and development creates $3.50 in benefits for Australia, says new CSIRO analysis", *The Conversation*](https://theconversation.com/every-dollar-invested-in-research-and-development-creates-3-50-in-benefits-for-australia-says-new-csiro-analysis-172300){:target="_blank" rel="noopener"}
 
-["Healthcare, minerals, energy, food: how adopting new tech could drive Australia’s economic recovery", *The Conversation*](https://theconversation.com/healthcare-minerals-energy-food-how-adopting-new-tech-could-drive-australias-economic-recovery-146410)
+["Healthcare, minerals, energy, food: how adopting new tech could drive Australia’s economic recovery", *The Conversation*](https://theconversation.com/healthcare-minerals-energy-food-how-adopting-new-tech-could-drive-australias-economic-recovery-146410){:target="_blank" rel="noopener"}
 
