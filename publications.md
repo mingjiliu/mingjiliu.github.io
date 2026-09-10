@@ -17,12 +17,48 @@ permalink: /publications/
 
    A pre-print copy of *Lane, O. and Liu, M. (2026), Do Early Pension Withdrawals Reduce Labour Supply? Evidence from Australia's Pandemic Response* is [available here](https://github.com/OscarLane/Early-Super-Release/blob/main/Lane%20%26%20Liu%20-%202026%20-%20Do%20early%20pension%20withdrawals%20reduce%20labour%20supply.pdf){:target="_blank" rel="noopener"} and the earliest original version of this research topic (written as a Barcelona of Economics Master's Thesis in 2023) is available at [http://hdl.handle.net/10230/60932](http://hdl.handle.net/10230/60932){:target="_blank" rel="noopener"}.
 
+**Consulting reports with Mingji Liu as an author/co-author.**
+
+<ul>
+  <li>
+    CSIRO (2023). <em>Reshaping Australian Food Systems</em>.
+    <a href="https://doi.org/10.25919/d5ft-a477" target="_blank" rel="noopener">doi.org/10.25919/d5ft-a477</a>
+  </li>
+  <li>
+    CSIRO (2022). <em>Growing Australia’s Quantum Technology Industry: Updated economic modelling</em>.
+    <a href="https://doi.org/10.25919/7ste-gg55" target="_blank" rel="noopener">doi.org/10.25919/7ste-gg55</a>
+  </li>
+  <li>
+    CSIRO (2022). <em>Protein: A Roadmap for unlocking technology-led growth opportunities for Australia</em>.
+    <a href="https://doi.org/10.25919/n510-rh64" target="_blank" rel="noopener">doi.org/10.25919/n510-rh64</a>
+  </li>
+  <li>
+    CSIRO (2021). <em>Unlocking the innovation potential of Australian companies</em>.
+    <a href="https://doi.org/10.25919/c2wg-5r54" target="_blank" rel="noopener">doi.org/10.25919/c2wg-5r54</a>
+  </li>
+  <li>
+    CSIRO (2021). <em>A National Synthetic Biology Roadmap: Identifying commercial and economic opportunities for Australia</em>.
+    <a href="https://doi.org/10.25919/6666-h559" target="_blank" rel="noopener">doi.org/10.25919/6666-h559</a>
+  </li>
+  <li>
+    CSIRO (2020). <em>COVID-19: Recovery and resilience</em>.
+    <a href="https://hdl.handle.net/102.100.100/374829" target="_blank" rel="noopener">hdl.handle.net/102.100.100/374829</a>
+  </li>
+</ul>
+
 **Other publications attributed to Mingji Liu.**
 
-["Every dollar invested in research and development creates $3.50 in benefits for Australia, says new CSIRO analysis", *The Conversation*](https://theconversation.com/every-dollar-invested-in-research-and-development-creates-3-50-in-benefits-for-australia-says-new-csiro-analysis-172300){:target="_blank" rel="noopener"}
-
-["Healthcare, minerals, energy, food: how adopting new tech could drive Australia’s economic recovery", *The Conversation*](https://theconversation.com/healthcare-minerals-energy-food-how-adopting-new-tech-could-drive-australias-economic-recovery-146410){:target="_blank" rel="noopener"}
-
+<ul>
+  <li>
+    “<a href="https://theconversation.com/every-dollar-invested-in-research-and-development-creates-3-50-in-benefits-for-australia-says-new-csiro-analysis-172300" target="_blank" rel="noopener">Every dollar invested in research and development creates $3.50 in benefits for Australia, says new CSIRO analysis</a>,”
+    <em>The Conversation</em>.
+  </li>
+  <li>
+    “<a href="https://theconversation.com/healthcare-minerals-energy-food-how-adopting-new-tech-could-drive-australias-economic-recovery-146410" target="_blank" rel="noopener">Healthcare, minerals, energy, food: how adopting new tech could drive Australia’s economic recovery</a>,”
+    <em>The Conversation</em>.
+  </li>
+</ul>
+   
 **Mingji Liu's odd little media appearances.**
 
 <ul>
