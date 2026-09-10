@@ -11,7 +11,7 @@ permalink: /publications/
 
    Replication package is downloadable [here](https://github.com/OscarLane/Early-Super-Release){:target="_blank" rel="noopener"}.
 
-   A pre-print copy of *Lane, O. and Liu, M. (2026), Do Early Pension Withdrawals Reduce Labour Supply? Evidence from Australia's Pandemic Response* is [available here](https://github.com/OscarLane/Early-Super-Release/blob/main/Lane%20%26%20Liu%20-%202026%20-%20Do%20early%20pension%20withdrawals%20reduce%20labour%20supply.pdf){:target="_blank" rel="noopener"} and the earliest original version of this research topic, written as a Barcelona of Economics Master's Thesis in 2023, is available at [http://hdl.handle.net/10230/60932](http://hdl.handle.net/10230/60932){:target="_blank" rel="noopener"}.
+   A pre-print copy is [available here](https://github.com/OscarLane/Early-Super-Release/blob/main/Lane%20%26%20Liu%20-%202026%20-%20Do%20early%20pension%20withdrawals%20reduce%20labour%20supply.pdf){:target="_blank" rel="noopener"} and the earliest original version of this research topic, written as a Barcelona of Economics Master's Thesis in 2023, is available at [http://hdl.handle.net/10230/60932](http://hdl.handle.net/10230/60932){:target="_blank" rel="noopener"}.
 
 2. Wynn, K., Liu, M., & Cohen, J. (2022). Quantifying the economy-wide returns to innovation for Australia. Australian Economic Papers, 61(3), 591–614. [https://doi.org/10.1111/1467-8454.12262](https://doi.org/10.1111/1467-8454.12262){:target="_blank" rel="noopener"}
 
