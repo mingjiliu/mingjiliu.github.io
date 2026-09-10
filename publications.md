@@ -29,8 +29,6 @@ Abstracts are crawlable even when publisher PDFs are paywalled — include them.
     <em>SBS Chinese</em>, <time datetime="2023-08-14">14 August 2023</time>.
     <span class="role">Interviewed.</span>
   </li>
-</ul>
-<ul>
   <li>
     “<a href="https://www.csiro.au/en/news/all/news/2022/october/australias-quantum-technology-set-for-growth" target="_blank" rel="noopener">Australia’s quantum technology set for growth</a>,”
     <em>CSIRO news release</em>, <time datetime="2022-10-19">19 October 2022</time>.
