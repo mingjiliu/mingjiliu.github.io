@@ -4,15 +4,15 @@ permalink: /publications/
 ---
 
 **Academic publications by Mingji Liu.**
-<!-- TODO: list each publication with full citation and abstract, e.g.:
 
-1. Liu, Mingji. "Paper Title." *Journal Name*, vol. X, 20XX.
-   [Preprint](https://arxiv.org/abs/XXXX.XXXXX) · [DOI](https://doi.org/...)
+1. Wynn, K., Liu, M., & Cohen, J. (2022). Quantifying the economy-wide returns to innovation for Australia. Australian Economic Papers, 61(3), 591–614. https://doi.org/10.1111/1467-8454.12262
 
-   *Abstract:* ...
+   *Abstract:* *Innovation plays a vital role in driving Australia's economic growth, and the desire to quantify this relationship is ever present. This article quantifies the relationship between domestic gross expenditure on research and development (R&D) and gross domestic product (GDP) per capita growth to estimate the return on investment (ROI) to innovation for Australia. This article adopts the Jones and Summers (2020) approach to quantify the ROI of gross R&D spending for Australia. This novel yet simple macroeconomic approach complements other existing methodologies. It quantifies only economic benefits, excluding non-monetary societal and environmental benefits. The baseline results state that $1 of R&D investment creates an average of $20.8 in economy-wide benefits in today's dollars, and investment in R&D creates an average annual return of 104% for Australia. Importantly, this baseline result can be recalculated with adjustments to account for specific features of innovation activity. Incorporating a 10-year delay between R&D and payoffs, combined with a correction for building R&D into new capital inputs (known as embodied capital deepening) to account for the additional time and costs associated with R&D expenditure yields lower results of $3.5 of economy-wide benefits and 10% average annual return for every dollar spent on R&D. Even when corrections are applied to the baseline for conservative estimates, the economy-wide returns to innovation are comparable to historical private investment returns in Australia.*
 
-Abstracts are crawlable even when publisher PDFs are paywalled — include them.
--->
+2. Lane, O. and Liu, M. (2026), Do Early Pension Withdrawals Reduce Labour Supply? Evidence from Australia's Pandemic Response*. Econ Rec. https://doi.org/10.1111/1475-4932.70057
+
+   *Abstract:* *We investigate the impact of the early release of Australian pension savings during the COVID-19 pandemic on short- and medium-term labour supply behaviour. Given the endogenous nature of this policy, we also apply an instrumental variable strategy to isolate the causal effect of the policy on employment and weekly hours worked. Our findings show the pension release scheme led to a sizeable and negative extensive margin response to labour supply in 2020, before dissipating in 2021. This points to the reduction in labour supply caused by the policy being a brief shock rather than a persistent effect. We find evidence that the effect was primarily concentrated among female withdrawers and those who withdrew the full amount allowable under the policy. Our findings improve our understanding of the labour market impacts of early pension release schemes in a crisis context, and can also inform the design of pension systems more broadly.*
+
 
 **Other publications attributed to Mingji Liu.**
 
