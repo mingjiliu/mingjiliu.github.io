@@ -22,7 +22,6 @@ Abstracts are crawlable even when publisher PDFs are paywalled — include them.
 
 **Mingji Liu's odd little media appearances.**
 
-<h3>2023</h3>
 <ul>
   <li>
     Tania Lee &amp; Tianyuan Qu,
@@ -31,8 +30,6 @@ Abstracts are crawlable even when publisher PDFs are paywalled — include them.
     <span class="role">Interviewed.</span>
   </li>
 </ul>
-
-<h3>2022</h3>
 <ul>
   <li>
     “<a href="https://www.csiro.au/en/news/all/news/2022/october/australias-quantum-technology-set-for-growth" target="_blank" rel="noopener">Australia’s quantum technology set for growth</a>,”
