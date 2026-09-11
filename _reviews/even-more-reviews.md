@@ -110,10 +110,10 @@ Ah yes, the mysterious Elena Ferrante. It's a fantastic book that has been prais
 
 Lastly, some Wallace Stevens poems I enjoyed:
 
-- [A Dish of Peaches in Russia](https://hellopoetry.com/poem/14548/a-dish-of-peaches-in-russia/)
-- [Bartleby.com 300/2364](http://www.bartleby.com/300/2364.html)
-- [The Snow Man](https://www.poetryfoundation.org/poems/45235/the-snow-man-56d224a6d4e90)
-- [Sunday Morning](https://en.wikisource.org/wiki/Sunday_morning)
+- [A Dish of Peaches in Russia](https://hellopoetry.com/poem/14548/a-dish-of-peaches-in-russia/){:target="_blank" rel="noopener"}
+- [Of Heaven Considered As a Tomb](http://www.bartleby.com/300/2364.html){:target="_blank" rel="noopener"}
+- [The Snow Man](https://www.poetryfoundation.org/poems/45235/the-snow-man-56d224a6d4e90){:target="_blank" rel="noopener"}
+- [Sunday Morning](https://en.wikisource.org/wiki/Sunday_morning){:target="_blank" rel="noopener"}
 
 ## 5 July 2018 — Critiques de juin 2018
 
@@ -766,10 +766,6 @@ I made a joke a while back that 'as far as I can tell, the whole point of the no
 *The Unbearable Lightness of Being* is a bearable book. It is thoroughly readable and above-average. At worst, the novel comes across as something a book club composed of intelligent, but slightly bored housewives would feel compelled to discuss. The oft-praised continental philosophy in this book is at Alain de Botton levels of tofu soft humanism and lyrical waxing. (Ouch! How's that for a stinger?) Moreover, its descriptions of female psychosexual terror and polyamory aren't as impactful these days as they were back in the 1980s. Nor has the book's shaky and loose definition of the aesthetics of kitsch aged well in this era of hyper-charged memetic irony.
 
 So should you give this book a go? Consider this rather lovely assertion in the book: 'Shit is a more onerous theological problem than is evil. Since God gave man freedom, we can, if need be, accept the idea that He is not responsible for man's crimes. The responsibility for shit, however, rests entirely with Him, the Creator of man.' If you find that astoundingly deep and meaningful, then this will be your next favourite novel. Cool story, Kundera.
-
-### *My Year of Rest and Relaxation* (2018) by Ottessa Moshfegh
-
-Read my full review here.
 
 ### *Travels with Herodotus* (2004) by Ryszard Kapuściński
 
