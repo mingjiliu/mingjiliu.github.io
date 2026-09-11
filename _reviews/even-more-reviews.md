@@ -131,22 +131,6 @@ But I suspect that those readers will stumble at a hoop eventually. Maybe they f
 
 For anyone unsure of whether or not to give *Lolita* a go, I seriously recommend it. Ignore the salacious knee-jerk reactions. Just don't buy the versions of the book that show a little girl sucking a pink lollipop on the cover. Then you'll actually look like a creep if you read it on the train to work. Order a respectable hardcover, like I did, with an austere dust jacket, a bound bookmark, and nice thick margins you can jot your scandalised notes in.
 
-### *The Plains*, Gerald Murnane
-
-What first attracted me to this book was the enchanting and bewildering figure of Murnane himself. By all accounts, he's a true blue eccentric. Murnane lives as a recluse in Goroke, Victoria (pop. ~600). He's never left the country or flown in an airplane. He writes all his books with a typewriter using one finger. He taught himself Hungarian. For some reason. From his *New York Times* profile:
-
-> I cannot recall having gone voluntarily into any art gallery or museum or building said to be of historic interest. I have never worn sunglasses. I have never learned to swim. I have never voluntarily immersed myself in any sea or stream. ... I have never touched any button or switch or working part of any computer or fax machine or mobile telephone. I have never learned to operate any sort of camera.
-
-If the article (and the betting market) is to be believed, he's a solid contender for the Nobel Prize in Literature. (And if he does win, I'm driving out east into Wimmera and ordering a beer from him. He apparently also works as a bartender.) Given his reputation, I was eager to experience what was praised — according to the introduction of *The Plains* by Wayne Macauley — as "word for word, sentence for sentence, one of the best novels ever written in this country."
-
-Needless to say, I began to worry about my level of intelligence when halfway through the book I began to suspect it was trolling me. The book — despite being very short — is a deeply inscrutable and elliptical trudge through the mind of an obsessive artist. Its premise is of an alt-universe Australia where the authentic national culture resides in the regional/rural heartland, far away from the decadent and culturally bankrupt coastal metropoles. Great estates dominate the plains, ruled by mighty barons with generations upon generations of Byzantine sophistication, philosophy, and art. Desperate artists and scholars from decadent backwaters such as Sydney and Melbourne travel to the plains in order to court the country elites, so they may earn private patronage and devote their lives to exploring the mysteries of the plains.
-
-And *mein Gott*, what a frustrating book to decipher! An entire sequence is dedicated to labouring over esoteric philosophies of time as interpreted out on the plains. Another is focussed on the protagonist, a hapless filmmaker, ruminating over a scheme to court a plainswoman by secretly writing a book for her — and then destroying the book, before it could ever be read. And then there's the endless contemplation over the excruciatingly subtle qualities of light, heat, and shadow on the plains. It's deliberately maddening.
-
-The crux of *The Plains* (if there even is one) is a comfortless meditation on how art is incapable of conveying the full meaning of the artist. Such a commitment is doomed to failure. The haunting, intangible sadness of failed art shivers throughout the novel. I can't exactly say I enjoyed it, nor can I exactly recommend it, but at least I now know the middling limits of my reading comprehension.
-
-Finally, a final, cheeky leftie comment: The fictional premise of the book — that there's a unique, culturally exquisite inner Australia divorced from the Old World sensibilities of the coastland — is fascinating, except for the fact that Murnane forgets that one already exists. It's called Indigenous Australia, ya bastard.
-
 ### *The Expanse*, season 3
 
 I don't know how I feel about Jeff Bezos anymore. On one hand, he runs a soul-destroying hypercorporation and probably eats babies. But on the other hand, he did help revive *The Expanse* for a fourth season after the Syfy channel cancelled it. Thank you, I guess?
@@ -253,31 +237,15 @@ Next month: Going to smash out some more Nabokov and hopefully see some internat
 
 ## 28 August 2018 — August 2018 reviews
 
-### *Antichrist*, directed by Lars von Trier
-
-Synopsis: This is the film where Willem Dafoe's character gets his genitals crushed with a large wooden block by his wife, who then performs manual stimulation on him until he ejaculates blood. Later in the film, the camera zooms in on the wife's own nether regions as her character performs FGM on herself with a pair of rusty scissors. You also see Willem Dafoe's naked buttocks throughout the film.
-
-So, um, interested... anyone?
-
-Proper synopsis: After the tragic death of their child, an unnamed man (Willem Dafoe) and woman (Charlotte Gainsbourg) are confronted with the tidal waves of unspeakable grief. In order to help his wife process her immense psychological pain, the man – who is also a clinical psychologist – takes her to their old cabin in the woods to heal. However, there are dark primal forces at play, both in the forest itself, and within the souls of the characters as well.
-
-Now, I'm not normally one for extreme films. I don't see the appeal in "torture porn" genre flicks (*Wolf Creek*, *Hostel*, etc., etc.), nor do I lean towards exploitative art house (I have no interest in watching *Irréversible*, for instance), but ever since I watched von Trier's experimental film *Dogville* (a film set entirely on a black, minimalist stage with a punishing three hour runtime and equally punishing moral content), I felt that I needed to check out *Antichrist*.
-
-Despite going into this film knowing that it would contain quite intense content, I was so disturbed by the tone and visual aesthetic of the film, I had trouble sleeping for two nights. I'm not fucking kidding. It genuinely messed with me.
-
-But here's the odd thing: I kind of loved this film. Dafoe and Gainsbourg are superb leads. The cinematography, at times, is both disorientating and beautiful (the opening sequence, which depicts the death of their child, is aesthetically outstanding). It's sharply paced. It painfully meditates on the treatment of women in Christian tradition. I liked how the film culminates in a hallucinatory gnostic mythos, which almost takes on cosmic horror elements. I liked how it inverted not only Genesis motifs, but also Passion and Resurrection imagery. I've even found some Very Serious Essays written about this film by theology professors.
-
-But with that said, let's not forget that it is still a film that has sadomasochistic genital mutilation as a major plot device. It's a film about misogyny, that also struggles not to come across as misogynistic — namely, in its cruel reveal of the female protagonist's past actions and motivations. And a side note: The fly-on-the-wall handheld camerawork felt unintentionally hilarious in a handful of moments, reminding me of the faux-documentary style of *The Office* or *The Thick of It*. Plus, the epilogue scene is a tad baffling. Was it meant to come across as parody? Was von Trier just trolling? I can't decide.
-
-So is *Antichrist* a piece of sick, misogynistic troll-cinema? Or is it a serious work of genius? The answer is 'yes'. It has my recommendation. But only if you can handle very, very extreme content and a very, very naked Willem Dafoe.
-
 ### *One-Punch Man*, season one
 
 > Against boredom even gods struggle in vain.
 >
 > --- Friedrich Nietzsche
 
-A favourite, or so I think, of my old housemates Clare, Jack and David. This anime is the story of Saitama, an unemployed *sararīman* who decides to become a superhero just for the fun of it. He has no deep motivations or internal conflicts. He has no unusual backstory. He does not train particularly hard. Yet, in a very short span of time, he ends up as essentially the most powerful being in the universe, able to turn gigantic monsters into crimson giblets with a single, unenthusiastic punch. And now he's bored and his life feels empty.
+*Existential brilliance.*
+
+A favourite, or so I think, of my old housemates. This anime is the story of Saitama, an unemployed *sararīman* who decides to become a superhero just for the fun of it. He has no deep motivations or internal conflicts. He has no unusual backstory. He does not train particularly hard. Yet, in a very short span of time, he ends up as essentially the most powerful being in the universe, able to turn gigantic monsters into crimson giblets with a single, unenthusiastic punch. And now he's bored and his life feels empty.
 
 This absurd premise provides an incredible canvas for existential pondering. Ennui and malaise circle this show like insatiable sharks. The show presents a host of colourful side characters that stand up to insurmountable challenge, only for their valour to be revealed as illusory when Saitama steps in to punch their obstacles away in an instant. The show depicts an array of villains with fiendish abilities who, an *augenblick* after being introduced, are reduced to raining viscera with a single knuckle sandwich.
 
@@ -290,6 +258,8 @@ Along with these philosophical musings, the show also presents an imaginative in
 - **The significance of perverse incentives within measurement implementation:** One issue that is raised in the show is the fact that C-class heroes must perform a heroic act every week, lest they be removed from the Hero Registry. This, as it turns out, incentivises heroes to race around the city trying to find problems to solve, inadvertently generating suboptimal outcomes. As such, it is important that performance structures are carefully designed as to mitigate the emergence of unintended and undesirable incentives.
 
 ### *Pale Fire*, by Vladimir Nabokov
+
+*And blood-black nothingness began to spin | A system of cells interlinked within | Cells interlinked within cells interlinked | Within one stem. And dreadfully distinct | Against the dark, a tall white fountain played.*
 
 > A thousand years ago five minutes were
 > Equal to forty ounces of fine sand.
@@ -315,25 +285,9 @@ The book is a hilarious puzzle box, with jigsaw pieces composed of Nabokov's all
 
 Simply put, this book is awesome.
 
-### *Enter the Dragon*, directed by Robert Clouse
-
-A masterpiece of 70s Hong Kong martial arts cheese. I don't get why people are so keen on martial arts parodies (*Kung Fury*, *Kung Pow! Enter the Fist*, what have you) when the originals are already so comically entertaining. I must've giggled every five or so minutes while watching this movie. And what makes authentic martial arts film obviously superior to their soft knuckle parodies is that they depict people who are, y'know, actually talented at martial arts.
-
-In *Enter the Dragon*, the late, great Bruce Lee plays a powerful Shaolin monk imaginatively named 'Lee'. Due to his abilities, Lee is called upon by the British intelligence service to infiltrate a martial arts tournament being held on a private island off the coast of Hong Kong by the villainous crime boss Han. If this sounds awfully similar to the half-assed plot of every PlayStation fighting game in existence, then you'd be right — *Enter the Dragon* was a brave pioneer in finding excuse scenarios for shirtless dudes to beat the snot out of each other in an enclosed environment.
-
-So, a fighting tournament island? Check.
-Topless, howling Bruce Lee? Check.
-Funk-inspired soundtrack? Check.
-Low budget Bond villain and evil lair? Check.
-A thirteen year old boy's conception of racial/sexual politics? Single, double, triple check.
-
-To elaborate on that last point, it should be noted that Lee is accompanied on his journey to the island by a sharp-witted white guy and a streetwise black guy (who was forced to beat up two racist American cops on his way to Hong Kong, because duh). During their stay, the hospitable yet nefarious Han sends them his entourage of beautiful ladies as evening gifts. Lee, the pure and righteous Asian man, declines the offer and keeps his mind on the mission. In contrast, the white guy goes straight to the top and seduces the head procuress, while the black guy shows off his libidinal kung fu by going to bed with multiple women at the same time. It's not exactly subtle!
-
-Such an amusing film. A lot of the fight choreography still holds up. Hong Kong in its heyday is rendered, albeit briefly, in all its robust glory. The villain even pets a white cat while delivering a monologue. Really.
-
-Fun fact: One of the side characters is meant to be a thuggish kung fu fighter from New Zealand. Weirdly though, he is played by a Queensland martial artist and his lines were dubbed over with what sounds like a mangled bogan accent.
-
 ### *Disenchantment*, Matt Groening
+
+*BOREDOM and TEDIOUS JOKES await.*
 
 It sucks! Hurrah!
 
@@ -343,69 +297,9 @@ One thing which killed it for me is how the joke setup/payoff structure really l
 
 By the way, when did *The Simpsons* well and truly die for you? (You better not be one of those weirdos that still watch the new episodes on a regular basis.) For me, it was after the season eleven finale "Behind the Laughter". They should've called it quits after that. A meteor should've hit Fox studios lot. Can you believe they're about to release season thirty? When they got Don Hertzfeldt to come in as a guest animator to do a couch gag, did they not realise that he was making fun of the fact that *The Simpsons* would go on forever and turn into incoherent fucking garbage?
 
-### *Sum: Forty Tales from the Afterlives*, by David Eagleman
-
-Like a bowl of strawberries, accidentally dabbed in horseradish sauce, and consumed on a swooning autumn evening, *Sum: Forty Tales from the Afterlives* is short, punchy and bittersweet. It's a collection of wistful, existential, funny, and quirky stories about creation, existence and the afterlife. There are a few stinkers (some read like Pratchett/Gaiman ripoffs) but you can't hit a bullseye every single time, of course. The ones I found most thought provoking were (in no particular order):
-
-- The one about reincarnating yourself as a horse.
-- The one about an automated telecommunications network that sends messages on your behalf after you die.
-- The one about cosmic beings trying to keep the universe from collapsing.
-- The one about a very virtuosic quark particle.
-- The one about being split into your multiple ages in the afterlife.
-
-If I have to make one objection to Eagleman's writing style, it's that he commits the sin of what I like to call the "overuse of the literary lover". This refers to the hackneyed and endless referrals to 'memories of your lovers' or 'recalling your lover's caress' or whatever. You meet people in real life who have a weakness for this style of speaking (it's egregious among certain arty types) — individuals who are always going on about 'my lover(s) this' and 'my lover(s) that'.
-
-This behaviour annoys me. By all means, feel free to talk about your sexual predilections (it does not make you more of a marvel or less of a disappointment to me), but please, refer to a goddamn thesaurus. I interpret these people as self-mythologisers: weavers of grand pseudo-narratives about the fairy light string of people they've been intimate with. Gah!
-
 --- Fin. ---
 
-*Not sure I can include the very unsettling Antichrist poster — might get an inappropriate image flag on Facebook or something.*
-
-*Existential brilliance.*
-
-*And blood-black nothingness began to spin | A system of cells interlinked within | Cells interlinked within cells interlinked | Within one stem. And dreadfully distinct | Against the dark, a tall white fountain played.*
-
-*You have offended my family and you have offended the Shaolin Temple!*
-
-*BOREDOM and TEDIOUS JOKES await.*
-
-*"Whoa man..." \*Puffs joint\* "What if in the afterlife it's all like <insert marijuana fever dream>."*
-
 ## 30 September 2018 — A spoilerific September 2018 round-up
-
-### *The Things They Carried*, by Tim O'Brien
-
-> They carried the soldier's greatest fear, which was the fear of blushing. Men killed, and died, because they were embarrassed not to. It was what had brought them to the war in the first place, nothing positive, no dreams of glory or honor, just to avoid the blush of dishonor. They died so as not to die of embarrassment. They crawled into tunnels and walked point and advanced under fire. Each morning, despite the unknowns, they made their legs move. They endured. They kept humping. They did not submit to the obvious alternative, which was simply to close the eyes and fall... It was not courage, exactly; the object was not valor. Rather, they were too frightened to be cowards.
-
-The Vietnam War was a crazy war. It was a war built on a shaky premise (Domino Theory) and kicked off by an even shakier catalyst (the Gulf of Tonkin 'incident'). It was a war where roughly 20% of American servicemen were habitual heroin users. It was a war where the United States decided to literally blow up neighbouring Laos with the equivalent of a planeload of bombs every 8 minutes for 9 years straight. It was a war that poisoned domestic society like Agent Orange on Indochinese foliage. Say what you will about our troubling times, but at least we're not living in the world of 1968 with all its global protests, mass riots, political assassinations, Tet Offensives and My Lai Massacres.
-
-*The Things They Carried* is a great little book about the extremes of the human experience during this time. It waxes poetically about not only the harsh and haggard world of grunts on patrol, but also explores their civilian lives before the war and their transfigured codas as returned veterans. There's gallows humour and military superstitions; tall tales and platoon mischief; a failed attempt to dodge the draft by fleeing to Canada; a meditation on the life of a killed Viet Cong fighter; and a preposterous *Apocalypse Now*-esque story about a young woman swallowed by the primal forces of the jungle. Its scope of the conflict is epic. Its focus on the people that lived it is restlessly intimate.
-
-It's a book that is also deceptively presented as a collection of short stories. In actuality, it's a novel whose power comes entirely from being read linearly from cover-to-cover. The stories are often corrected, deconstructed or even outright debunked immediately after they are told. This deliberate fluidity of the narrative allows the book to come across as vulnerable and painfully human. The book frequently pauses to reflect on what constitutes authenticity in war literature, on what it means to tell a 'true' wartime story. Uncertainty is its essential condition. Think Vonnegut's *Slaughterhouse-Five* where World War 2 veteran Billy Pilgrim is 'unstuck in time' — here, *The Things They Carried* goes a step further with the narrator being unstuck in perspective, unstuck in truth.
-
-Anyway, I think the main takeaway point is that the Vietnam War was totally fubar. Hit it, Johnny!
-
-### *Hereditary*, dir. Ari Aster
-
-Scariest film of the decade! As good as *The Exorcist*! The spookiest masterpiece of the year! Or so some film critics have said. I beg to differ. *Hereditary* is an entertaining and, at times, startlingly beautiful horror film with great cinematography, electrifying acting, and a surprisingly fearless screenplay. However the heir to *The Exorcist* it is unfortunately not.
-
-Firstly, no horror film can ever be as extraordinary as *The Exorcist*, a well-nigh perfect film. Secondly, it's just not that frightening! Despite its disturbing atmosphere, the film falters due to its preoccupation with 19th century style American spiritualism, with its séances and ideomotor effects and gibberish Latin. That stuff simply isn't particularly scary. It's silly, Raimi-style schlock.
-
-That noted, these are only venial sins. There are some gut-wrenching scenes of family drama, with Toni Collette's performance being an electrifying highlight. *Hereditary* even has some thematic teeth, with the film's central concept being that of fate. The plot is essentially a Greek tragedy (it even outright mentions Sophocles, since who needs subtlety) that poses the following question: If you have no control over the suffering that befalls you—that is, the Fates have threaded your doom—is it really a tragedy? Does the inevitability of torment make it more or less horrifying? *Hereditary* turns over this idea of inevitable tragedy like a worry stone throughout its runtime. This idea manifests in the film's exploration of mental illness running through the family and in its final reveal that a circle of naked cultists masterminded everyone's grief and anguish. Bloody hell.
-
-It's worth a watch. But if you scream while viewing it, I'll judge your emotional fortitude as a human being forever.
-
-Since I can't help myself, I'll briefly log my views on *The Exorcist*: It's a masterpiece. The practical effects are horrific. The dialogue is unforgettable. And I (a heathenish atheist) found its gradual descent from the cool rationality of modern medicine into a desperate plea for faith utterly compelling. Max von Sydow shows up at the end and completely steals the show in less than 20 seconds flat. But let me explain what the film is really about: It's a film about having a gutsy work ethic. Seriously. *The Exorcist* culminates in two blokes knuckling down for the long night—that is, two priests confronting the physical manifestation of supreme evil itself with nothing but their wits and belief system. It's about kids pulling all-nighters to get their essays done. It's about political operatives hunkering down to get the votes through. It's about the surgeons settling in for a multi-hour procedure. It's *Apollo 13* with demons. It's the final fight in *Rocky IV*, but with more Catholicism.
-
-### *Small Country*, by Gaël Faye
-
-> The earth had moved imperceptibly beneath our feet. It did so every day in this country, in this corner of the world. We were living on the axis of the Great Rift, at the precise spot where Africa fractures. The people of this region mirrored the land. Beneath the calm appearance, behind the façade of smiles were continuously at work, fomenting violence and destruction that returned for successive periods... This poisonous lava, the thick flow of blood, was ready to rise to the surface once more. We didn't know it yet, but the hour of the inferno had come, and the night was about to unleash its cackle of hyenas and wild dogs.
-
-Perhaps the best book by a French hip-hop artist about Burundi that I've ever read. But in all seriousness, it's a neat little novella that can be read over a weekend. If there's a literary prize for the most harrowing setting of a 'loss of innocence' style Bildungsroman (and if the prize excluded the mountain of young adult novels out there about the Second World War and the Holocaust), *Small Country* would probably make the short list.
-
-It's the story about the Rwandan genocide and how the violence spilt over into neighbouring Burundi, as told through the eyes of a young boy with both French and Tutsi heritage. It doesn't hold back in its depiction of how a bucolic childhood can sour into sheer mortal trauma. And the children in this story aren't just static victims either: they live and breathe and enact the violence of the adult world as well.
-
-*Small Country* is also a very carefully structured book in terms of emotional cadence—with punishing moments punctuated by happy moments and glimmers of hope. The storyteller's tricks are more apparent here than I would've liked, but it never felt inorganic either. It was also maybe a little too short of a book (and this is coming from someone who has to diligently schedule time to finish books). There were moments where I felt the book should've lingered on events, where it should've dug a bit deeper into the characters and their actions. Ah well, as the classic adage goes: the candle that burns twice as bright burns half as long, and books burn better than candles.
 
 ### Anthony Bourdain's *No Reservations* and *Parts Unknown*
 
@@ -459,22 +353,6 @@ You can probably guess that the film has some jarring structural qualities to it
 
 Christ, it's November already and I'm twenty-seven. *Ne cherchez plus mon coeur; les bêtes l'ont mangé.* "My heart is lost; the beasts have eaten it."
 
-### *Melancholia*, dir. Lars von Trier
-
-*Melancholia* is a science-fiction-cum-mental-illness drama cleaved into two beguiling and balanced halves.
-
-The first half of the film depicts our heroine, a cripplingly depressed newlywed named Justine (Kirsten Dunst) suffering through her wedding reception. Everything goes to ruin as an ensemble cast of cruel and dysfunctional characters help turn her night into a disorientating and exhausting trial. This is greatly contrasted by the second half of the film, which intimately explores how Justine and her sister Claire (Charlotte Gainsbourg) deal with the imminent destruction of Planet Earth from its collision with a giant rogue planet.
-
-Well, shit. This certainly is a film that knows how to mix things up at the midway mark. And in true Lars von Trier fashion, the entire plot of the film (including the destruction of the Earth) is summarised in a stunning, somnambulant montage in the opening minutes.
-
-It's primarily a film about dealing with depression in the most buoyant (e.g. a wedding night) and adverse (e.g. the destruction of all life as we know it) of circumstances. I'm depressed, Dunst's character is clinically depressed throughout the film, and von Trier is a famously depressed director. So hurrah, this review is in good company.
-
-The first half of the film is the strongest. It is perhaps the most awkward and painful wedding celebration ever depicted onscreen. The centre does not even attempt to hold. Everything collapses, with actors like John Hurt, Stellan Skarsgård, and Kiefer Sutherland portraying characters that are various shades of human assholery. The staging, the pacing, the smallest of character interactions are all painfully realised. A couple of the scenes were so cringe inducing, I laughed aloud to relieve the tension.
-
-The second part, though conceptually fascinating, is less consistent in quality than the first. Whereas the first half was told from Justine's point-of-view, the second largely switches to that of Claire, who simply did not have as compelling a screen presence as Dunst's character. Because the film ends with Justine coming to terms with the ending of the world, I would've preferred the film to depict her character arc all the way through. Instead, towards the end of the film, Justine becomes a director self-insert character that delivers clomping, inorganic statements. "The Earth is evil, we don't need to grieve for it," she says to her sister at one point, and claims to have omniscient knowledge about life in the cosmos. Wait, what? So her depression... gave her oracular superpowers? The film briefly goes a bit loopy.
-
-This is still a stellar film. Not as good as *Antichrist*, not as punishing as *Dogville*, but well directed and effectively acted. Recommended. Enjoy plenty of obtuse symbolism and deeply uncomfortable character moments.
-
 ### *Those Who Leave and Those Who Stay*, Elena Ferrante
 
 > Become. It was a verb that had always obsessed me, but I realized it for the first time only in that situation. I wanted to become, even though I had never known what. And I had become, that was certain, but without an object, without a real passion, without a determined ambition. I had wanted to become something—here was the point—only because I was afraid that Lila would become someone and I would stay behind. My becoming was a becoming in her wake. I had to start again to become, but for myself, as an adult, outside of her.
@@ -497,9 +375,11 @@ It does not help (or maybe it helps a lot), that I am reminded of characters in 
 
 Three down, one more book to go.
 
+*(Fun fact: I've noticed that a number of English versions of Ferrante's novels have weird typos and typographical errors in their back cover blurbs. What the hell?)*
+
 ### *Once Upon a Time in the West*, dir. Sergio Leone
 
-Long, harsh stares and laconic dialogue. An Ennio Morricone score upon a sun-scorched wasteland. Close-up shots of grizzled gunslingers. The sudden flash of gunmetal and the just and unjust alike are dead on the ground, smoke wafting from their wounds.
+Long, harsh stares and laconic dialogue. An Ennio Morricone score upon a sun-scorched wasteland. Close-up shots of grizzled gunslingers. The sudden flash of gunmetal and the just and unjust alike are dead on the ground, smoke wafting from their wounds. *The quick and the dead.*
 
 What's not to love?
 
@@ -513,29 +393,9 @@ It's fascinating how immediately the film accepts the demise of the Wild West. A
 
 The sexual voice in this film is unexpectedly stark. At one point, Jill McBain plainly states that if she were to be gang raped by bandits, she wouldn't bat an eye given her past occupation as a 'fallen woman'. Likewise, near the end of the film, Cheyenne cheekily tells her that she shouldn't be offended if one of the railway workers under her command gives her a pat on the behind, because their existence is a tough lot and they've 'earned it'. My surprise is more due to the fact that the film 'feels' like a much older film than it actually is—*Once Upon a Time in the West* was released in 1968 after all, which places it well within the right timeframe.
 
-### *Portnoy's Complaint*, Philip Roth
-
-> Why is a little turbulence so beyond my means? Why must the least deviation from respectable conventions cause me such inner hell? When I hate those fucking conventions! When I know better than the taboos! Doctor, my doctor, what do you say, LET'S PUT THE ID BACK IN YID! Liberate this nice Jewish boy's libido, will you please? Raise the prices if you have to—I'll pay anything!
-
-A hilarious little book by the American novelist Philip Roth, who only passed away earlier this year. The titular 'Portnoy's Complaint' is supposedly a psychosexual disorder that certain individuals can suffer from if they've grown up under the thumb of neurotic, overbearing Jewish parents (I mean, who hasn't?), which manifests in wild acts of 'exhibitionism, voyeurism, fetishism, auto-eroticism and oral coitus'.
-
-Unsurprisingly, the book was considered quite shocking when it was first published and was even subject to importation bans by the Australian government due to its obscene content. According to Wikipedia: Penguin Books, the Australian publisher, dodged the ban by having copies covertly printed in Sydney and "stored in fleets of moving trucks to avoid seizure under state obscenity laws".
-
-Our brave protagonist/patient is one Alexander Portnoy, a deeply intelligent and brilliant 30-something 'Assistant Commissioner of Human Opportunity for the City of New York'. In a series of unhinged monologues to his psychotherapist, Portnoy reveals his struggles with his American Jewish identity and confesses to a legion of sexual transgressions. Since a young boy, he's had wild sexual fantasies about gentile girls and been a rampant masturbator. And oh boy, does the main character like talking about the art of onanism: He accidentally masturbates into his eye. He masturbates into a baseball glove at a burlesque show. He even masturbates into a piece of liver in the kitchen. Which his family then unwittingly eats.
-
-Trust me—it's very, very funny. The writing is clever, free flowing, riddled with Yiddish slang, and dotted with hilarious reflections on American Jewish life (I did not know, for example, that mah-jong was considered an iconic Jewish game). It's also a great book to read to other people. There's an excellent lilt and cadence to much of it. Try reciting to your friends and family the sequence where brave Portnoy, after he has snuck into a burlesque show, observes the following:
-
-> The big thing at the Empire is hats. Down the aisle from me a fellow-addict fifty years my senior is dropping his load in his hat. His hat, Doctor! Oy, I'm sick. I want to cry. Not into your hat, you shvantz, you got to put that thing on your head! You've got to put it on now and go back outside and walk around downtown Newark dropping gissum down your forehead. How will you eat your lunch in that hat!
-
-It's also a story that I sympathised with insofar as it's about a young member of a minority group struggling to push back their home culture in order to fit into a western country and interface with Anglo-Protestant society. (Doctor, doctor... I too had neurotic parents who tossed a stew of conflicting messages into my head when I desperately wanted to fit in... Do I exhibit the same rampant psychosexual dysfunctions as Portnoy? Not to the same extent, I don't think...!)
-
-Two final observations I'd like to make:
-
-A good portion of the story takes place around the Second World War period, yet the Holocaust is barely mentioned and, at one point, is even treated by the narrator as a bit of a half-joke. I suspect this unusual omission was deliberate given that the story culminates in Portnoy visiting Israel and being exposed to contemptuous Israeli attitudes towards the greater diaspora.
-
-There's also the ongoing debate around misogyny in Roth's oeuvre. As entertaining as the sexist diatribes in *Portnoy's Complaint* are, they are, well, still sexist diatribes that reveal some monstrous feelings towards women. This book toes the line just enough, in my opinion, though whether the patina cracks in his later novels, I'm not sure.
-
 ### *Raise the Red Lantern*, dir. Zhang Yimou
+
+*Spoilers: This film has red lanterns.*
 
 This is a film that I'm glad to have revisited. I first saw it as a child (weird, I know), and I didn't really get it then. For one thing, I wasn't old enough to appreciate the film's bold use of colours and striking cinematography.
 
@@ -544,16 +404,6 @@ Set during the tumultuous Warlords Era in the Republic of China, the film tells 
 The film depicts how insidious a system of patriarchy can be. Cleverly, the man's face is never directly shown, and is instead obscured, off-camera, or filmed at a distance. Instead, the system acts invisibly as the concubines plot against one another, not fully realising they are caught up in the chambers of a much larger social machine.
 
 A cold, distant film at times, it deserves a deliberate and patient reading. It's a contemporary Chinese classic. Check it out!
-
-*The rogue planet, incidentally, is called "Melancholia". Gee, golly. Do you get it??*
-
-*Fun fact: I've noticed that a number of English versions of Ferrante's novels have weird typos and typographical errors in their back cover blurbs. What the hell?*
-
-*The quick and the dead.*
-
-*'Portnoy's Complaint: A disorder in which strongly-felt ethical and altruistic impulses are perpetually warring with extreme sexual longings, often of a perverse nature.'*
-
-*Spoilers: This film has red lanterns.*
 
 ## 11 December 2018 — The best books, films and TV shows I read/watched this year
 
@@ -756,32 +606,6 @@ Other than that, the film also taught me that if you pay Ben Mendelsohn enough, 
 ### *Star Trek: Discovery*, season 2
 
 It was very loud and somewhat confusing. I'm not sure I like *Star Trek* anymore. I'm not even sure I liked it that much to begin with. I'll say this though: Despite its schlocky, frenetic story and embarrassing, mawkish attempts at character drama, I was never bored by it. It was too dumb to be boring. It was a show that was fun to laugh at — though, sadly, never to laugh with. That's all I have to say.
-
-### *An Elephant Sitting Still*, dir. by Hu Bo
-
-> He told me the other day. There is an elephant in Manzhouli. It sits there all day long. Perhaps some people keep stabbing it with forks. Or maybe it just enjoys sitting there. I don't know.
-
-I'm not sure if this film is worth talking about since literally none of you have heard of it, seen it, or will ever see it.
-
-This Chinese film, which was released last year in 2018, can be difficult to assess objectively given its external circumstances. *An Elephant Sitting Still* is overshadowed by the fact it was the first and only film by the director, Hu Bo, who committed suicide shortly after the film's completion. While some media outlets suggested that the director's death came following a long battle he had with the producers over the film's length (it's a four-hour long film), it's fairly apparent that this film is the product of a severely, severely depressed mind. It's hard not to see it as a four-hour long suicide note.
-
-Taking place over a course of a single miserable day, the film follows the complex lives of four characters in a decaying, industrial town vaguely around the Inner Mongolia Autonomous Region of China. There's a bullied schoolboy and a lonely, neglected schoolgirl from a dead-end public school. There's a low-level thug, whose actions led to a friend's suicide. And there's a pensioner who is getting kicked out of his home by his own family.
-
-People fall to their doom. A dog is mauled to death. Someone catches on fire in a restaurant kitchen. People's lives are ruined by social media. Characters proclaim the world is a wasteland and that there is no escape from the pain of life. All the while, the characters are drawn to the rumour of a mythical elephant in the China-Russian border city of Manzhouli who sits all day in its enclosure, ignoring the rest of the world...
-
-And what of the film's artistic merits? Despite its daunting length, the film never feels punishingly long. The cinematography employs a bitter, documentary-like realism. There's an excellently broody Chinese post-rock soundtrack underpinning the whole film. The film has numerous long takes, which are all well-composed and surprisingly graceful at times. The few moments of violence are never gratuitous, happening largely off-camera. There are parts of it which reminded me of some of Jia Zhangke's films (*A Touch of Sin*, *Mountains May Depart*, *Ash Is Purest White*) in its examination of firearms in Chinese culture and in its depiction of callous, uncaring humanity.
-
-To call this film "raw" is an understatement. To call this film "nihilistic" is an understatement. It's a film that seems to embrace the call for total nonexistence. It is an interesting, heavy thing to exist in this world. I don't regret watching it. But don't watch it unless you desperately think you want to. I'm sure you can find something better to do with four hours of your life.
-
-### *Black Coal, Thin Ice*, dir. by Diao Yinan
-
-Another Chinese film set in a cold, miserable industrial environment. (Yikes, what is wrong with me?) This one is an odd thriller film released in 2014. Jumping off from my earlier thoughts on Mikhail Bulgakov's *The Master and Margarita*, a famous work of Soviet-era political satire, I've begun musing about the following: What strategies can an artist employ to indirectly critique their society/government without getting in trouble? I reckon this film is a good example of one approach.
-
-At face value, it's a neo-noir film about an alcoholic ex-cop haunted by a grisly murder case. It draws on the same dark, snowy language as Nordic crime thrillers, but unlike that particular sub-genre — which I never thought had much interesting to say, being set in (so-called) social democratic Scandinavian utopias and all that — *Black Coal, Thin Ice* oozes with social realism. Yet as far as I can tell, this film managed a wide release domestically and was fairly successful at the Chinese box office without drawing any ire.
-
-The film is set in the Heilongjiang province in far northeastern China and depicts it as a deeply unpleasant place. It's lonely, the people are untrustworthy, and the opportunities are limited. Using genre tropes as a cloak, it also critiques the local police force as under-equipped and unprofessional. Most interestingly, it's a bit of a proto-Chinese 'Me Too' film, predating the movement in China (which is chronically quashed by state censors) by a few years. The crushing cruelty, domination and humiliation inflicted on the female lead by powerful men is fully revealed by the film's conclusion.
-
-This is by no means a perfect film. It's clankily paced and its direction is not always cogent at times. But it's a film that stirs contemplation well after it has concluded. Not sure if I'd ever like to visit Heilongjiang after viewing this film, although I hear it has excellent Manchu cuisine.
 
 ### *Calvary*, dir. by John Michael McDonagh
 
