@@ -1,5 +1,5 @@
 ---
-title: "Short book and film reviews"
+title: "Short-form book reviews, film reviews, and rants"
 date: 2025-12-29
 ---
 
