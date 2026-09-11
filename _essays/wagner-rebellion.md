@@ -118,9 +118,9 @@ Indeed, the withdrawal that transpired in real life was not the true conclusion 
 
 ## References
 
-[^1]: Al Jazeera (2023) [*Timeline: How Wagner Group's revolt against Russia unfolded*](https://www.aljazeera.com/news/2023/6/24/timeline-how-wagner-groups-revolt-against-russia-unfolded).
-[^2]: BBC News (2023) [*Wagner revolt: How many planes and people did Russia lose?*](https://www.bbc.com/news/world-europe-66031403)
+[^1]: Al Jazeera (2023) [*Timeline: How Wagner Group's revolt against Russia unfolded*](https://www.aljazeera.com/news/2023/6/24/timeline-how-wagner-groups-revolt-against-russia-unfolded){:target="_blank" rel="noopener"}.
+[^2]: BBC News (2023) [*Wagner revolt: How many planes and people did Russia lose?*](https://www.bbc.com/news/world-europe-66031403){:target="_blank" rel="noopener"}.
 [^3]: Cho, In-Koo & Kreps, David (1987) Signaling games and stable equilibria. *Quarterly Journal of Economics* 102(2): 179–221.
 [^4]: Cotton, Christopher & Liu, Chang (2011) 100 Horsemen and the empty city: A game theoretic examination of deception in Chinese military legend. *Journal of Peace Research* 48(2): 217–223.
 [^5]: Note that their other beliefs are Pr(Strong \| Flee Moscow) = 0 and Pr(Weak \| Flee Moscow) = (1 − β)(1 − α), so all beliefs sum to 1.
-[^6]: Wall Street Journal (2023) [*Wagner Chief Yevgeny Prigozhin, Who Clashed With Russian Military, Dies*](https://www.wsj.com/world/russia/yevgeny-prigozhin-wagner-mercenary-russia-dies-7da9cea).
+[^6]: Wall Street Journal (2023) [*Wagner Chief Yevgeny Prigozhin, Who Clashed With Russian Military, Dies*](https://www.wsj.com/world/russia/yevgeny-prigozhin-wagner-mercenary-russia-dies-7da9cea){:target="_blank" rel="noopener"}.
