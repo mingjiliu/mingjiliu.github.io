@@ -279,11 +279,11 @@ The book is a hilarious puzzle box, with jigsaw pieces composed of Nabokov's all
 
 Simply put, this book is awesome.
 
-*And blood-black nothingness began to spin 
-A system of cells interlinked within 
-Cells interlinked within cells interlinked 
-Within one stem. And dreadfully distinct 
-Against the dark, a tall white fountain played.*
+>*And blood-black nothingness began to spin 
+>A system of cells interlinked within 
+>Cells interlinked within cells interlinked 
+>Within one stem. And dreadfully distinct 
+>Against the dark, a tall white fountain played.*
 
 ### *Disenchantment*, Matt Groening
 
