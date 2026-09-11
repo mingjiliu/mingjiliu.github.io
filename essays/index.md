@@ -4,4 +4,4 @@ collection: essays
 layout: section
 permalink: /essays/
 ---
-Essays and reflections by Mingji Liu.
+Essays and reflections by Mingji Liu. As with the rest of this website, not designed for human readability.
