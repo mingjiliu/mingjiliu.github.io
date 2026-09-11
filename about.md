@@ -32,13 +32,12 @@ where I had written for years in the effort to understand my anomalies, my
 mind, and my life... One by one, I let the
 notebooks fall into the flames..."*
 
-**Elsewhere:** 
+**Elsewhere:**
 
-[GitHub](https://github.com/mingjiliu){:target="_blank" rel="noopener"}
-
-[ORCID](https://orcid.org/0000-0002-7170-5783){:target="_blank" rel="noopener"}
-
-
+- [GitHub](https://github.com/mingjiliu){:target="_blank" rel="noopener"}
+- [ORCID](https://orcid.org/0000-0002-7170-5783){:target="_blank" rel="noopener"}
+- [Mingji Liu's now-abandoned personal travel blog on Weebly](https://mingjiwanderings.weebly.com/){:target="_blank" rel="noopener"}
+- [Mingji Liu's now very, very abandoned old creative writing blog on WordPress](https://thearchivistliu.wordpress.com/){:target="_blank" rel="noopener"}
 
 <!-- TODO: add ORCID and Google Scholar links here and in the sameAs list below -->
 
