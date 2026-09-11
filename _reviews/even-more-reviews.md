@@ -3,7 +3,7 @@ title: "Even more reviews!"
 date: 2019-10-08
 ---
 
-*Monthly and quarterly review round-ups, 2018–2019, collected from my Facebook notes. Oldest first.*
+*Monthly and quarterly review round-ups, 2018–2019, collected from various sources. Oldest first.*
 
 ## 22 February 2018 — Amateur film criticism: 2018 Academy Awards edition
 
