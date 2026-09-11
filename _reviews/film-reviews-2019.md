@@ -1,5 +1,5 @@
 ---
-title: "Medium-short film reviews"
+title: "Short-ish film reviews"
 date: 2019-12-30
 ---
 
