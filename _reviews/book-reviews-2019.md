@@ -125,7 +125,7 @@ Needless to say, I began to worry about my level of intelligence when halfway th
 
 The crux of *The Plains* (if there even is one) is a comfortless meditation on how art is incapable of conveying the full meaning of the artist. Such a commitment is doomed to failure. The haunting, intangible sadness of failed art shivers throughout the novel. I can't exactly say I enjoyed it, nor can I exactly recommend it, but at least I now know my own middling limits at this point in my life.
 
-A final, cheeky leftie remark: The fictional premise of the book—that there's a unique, culturally exquisite inner Australia divorced from the Old World sensibilities of the coastland—is fascinating, except for the fact that Murnane forgets that one already exists. It's called Indigenous Australia, which has one of the world's oldest living cultures. Yeah, take that Mister Writer!
+A final, cheeky leftie remark: The fictional premise of the book—that there's a unique, culturally exquisite inner Australia divorced from the Old World sensibilities of the coastland—is fascinating, except for the fact that Murnane forgets that one already exists. It's called Indigenous Australia, which has one of the world's oldest living cultures. Yeah, take that, ya bastard.
 
 ## The Things They Carried
 
