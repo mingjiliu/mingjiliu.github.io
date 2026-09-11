@@ -3,6 +3,11 @@ title: "A culinary review of Australian military rations"
 date: 2018-05-07
 ---
 
+<blockquote>
+<p>A man who's been trained to ignore pain, ignore weather, to live off the land, to eat things that would make a billy goat puke!</p>
+<p>&mdash; Colonel Trautman, <em>First Blood</em> (1982)</p>
+</blockquote>
+
 ## 1. One of my slightly more eccentric writing exercises...
 
 For a while now, I've been fascinated by 'Meal, Ready-to-Eat' (MRE) and other self-contained meal products. For example, I've tried the infamous 'meal replacement' powder Soylent (or more accurately—its Australian knock-offs Aussilent and Oz Soylent), and those 'One-Square-Meal' snack bars (which are effectively human chow biscuits, if you think about it).
@@ -78,8 +83,6 @@ The drink mix packet states the following: "Note: No real oranges were squished 
 
 ## 7. Dinner is served (at last!)
 
-*Cooking is for chumps.*
-
 This is a bit more interesting. We have:
 
 - 85g sweetened condensed milk (1190 kJ) – made in Australia (finally, an Australian product)
@@ -87,9 +90,7 @@ This is a bit more interesting. We have:
 - 310g just-add-water instant mashed potatoes (1040 kJ) – made in NZ
 - Salt & pepper. Also made in NZ
 
-*"To eat things that would make a billy goat puke!"*
-
-The potatoes were surprisingly edible, with a fluffy texture and pleasant cilantro flavouring. However, the beef casserole was joyless and flavourless (y'know, like an actual beef casserole). I clumsily sat the casserole packet in a pot of boiling water for a few minutes to 'cook' it, which did nothing to help. The casserole consisted of globs of glistening meat which, along with squidgy carrots and potato chunks, were suspended in an unidentifiable boggy sauce. Needed more salt.
+The potatoes were surprisingly edible, with a fluffy texture and pleasant cilantro flavouring. However, the beef casserole was joyless and flavourless (y'know, like an actual beef casserole). I clumsily sat the casserole packet in a pot of boiling water for a few minutes to 'cook' it, which did nothing to help. The casserole consisted of glibs and globs of glistening meat which, along with squidgy carrots and potato chunks, were suspended in an unidentifiable boggy sauce. Needed more salt.
 
 On the plus side, I enjoyed slurping up the tube of condensed milk off the spoon. I mean, isn't that the only right way to consume it?
 
@@ -100,7 +101,7 @@ On the plus side, I enjoyed slurping up the tube of condensed milk off the spoon
 
 The dark choc bar was pleasantly sweet, while the drinking chocolate was bland, bland, bland. I'm tired and full and that, ladies and gentlemen, completes our 24-hour ration pack.
 
-## 9. Overall Zomato score
+## 9. Overall Zomato score (cooking is for chumps)
 
 A somewhat tolerable sack of long-life food. When the nuclear bombs inevitably fall and we all end up wearing BDSM leather out in the wastelands, trading bottle caps and fighting giant irradiated cockroaches, this kind of stuff will be a gourmet luxury.
 
