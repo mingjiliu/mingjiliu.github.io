@@ -29,8 +29,6 @@ To call this film "raw" is an understatement. To call this film "nihilistic" is 
 
 *Antichrist* (2009), directed by Lars von Trier
 
-**Please note: this review spoils the entire film.**
-
 No discussion of Lars von Trier's *Antichrist* is complete without mentioning two incredibly infamous scenes. *Those* scenes. Yes, those goddamn scenes. So it helps to move things along if I quickly describe them with perfunctory bureaucratic detail:
 
 > **Scene One:** Willem Dafoe's character is attacked by his crazed wife, who crushes his genitals with a large wooden block. He passes out from the pain, upon which his wife then pulls out his penis and performs manual stimulation on him until he ejaculates blood. It spurts rather high into the air.
@@ -67,7 +65,7 @@ So is *Antichrist* a piece of sick, misogynistic troll-cinema? Or is it a seriou
 
 *Black Coal, Thin Ice* (2014), directed by Diao Yinan
 
-Similar to my earlier review of the fascinating, if deeply depressing [*An Elephant Sitting Still*](#an-elephant-sitting-still), this is another Chinese film I saw recently that was set in a cold, miserable industrial environment. (Yikes, what is wrong with me?) This one is ostensibly a crime thriller, though a rather odd and uneven entry to the genre.
+Similar to my earlier review of the fascinating, if deeply depressing *An Elephant Sitting Still*, this is another Chinese film I saw recently that was set in a cold, miserable industrial environment. (Yikes, what is wrong with me?) This one is ostensibly a crime thriller, though a rather odd and uneven entry to the genre.
 
 The reason I want to discuss this film is because I recently finished Mikhail Bulgakov's *The Master and Margarita*, a monumental work of Soviet-era political satire, and I've begun musing about the following puzzle: What strategies can an artist employ to indirectly critique their society/government without getting in trouble? I reckon this film is a good example of one approach.
 
@@ -123,16 +121,7 @@ Firstly, the simple fact is that no horror film can ever be as extraordinary as 
 
 Yet these are only venial sins. There are some gut-wrenching scenes of family drama and Toni Collette's performance is an electrifying highlight. *Hereditary* even has some thematic teeth, with the film's central concept being that of fate. The plot is essentially a Greek tragedy (it even outright mentions Sophocles near the start of the film, since who needs subtlety) that poses the following question: If you have no control over the suffering that befalls you—that is, the Fates have threaded your doom—is it really a tragedy? Does the inevitability of torment make it more or less horrifying?
 
-*Hereditary* turns over this notion of an inevitable tragedy like a worry stone throughout its runtime. This idea of fate manifests in the film's exploration of mental illness running through the family. This idea also manifests in its final plot reveal that ...
-
-<details>
-<summary>Spoiler</summary>
-
-TODO: spoiler text goes here.
-
-</details>
-
-Bloody hell.
+*Hereditary* turns over this notion of an inevitable tragedy like a worry stone throughout its runtime. This idea of fate manifests in the film's exploration of mental illness running through the family. This idea also manifests in its final reveal that a circle of naked cultists masterminded everyone's grief and anguish. Bloody hell.
 
 It's worth a watch. But if you find it extremely terrifying, I'll judge your emotional fortitude as a human being forever.
 
