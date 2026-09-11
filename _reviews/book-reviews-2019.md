@@ -1,5 +1,5 @@
 ---
-title: "Book reviews"
+title: "Medium-short book reviews"
 date: 2019-12-31
 ---
 
