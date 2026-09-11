@@ -227,13 +227,11 @@ In one of the few scenes of spoken dialogue in the film, Emily Blunt's character
 
 And you know what? I respect that. I respect works of art that have a coherent sense of conviction; even if they espouse values I don't personally hold. For instance, one of my favourite science fiction novels of all time, *A Canticle for Leibowitz*, is intensely steeped in Catholicism (the "Wandering Jew" shows up repeatedly and, at one point, it's implied that one of the characters is the Second Coming of Christ).
 
-Anyway, the abortion debate in America is weird, man. I'm not sure I fully understand it. It can't be explained away in terms of a minority cohort having a stranglehold on public discussion or engaging in policy capture. The issue is deeply divisive across the nation in a way that few other industrialised Western countries experience.
+Anyway, the abortion debate in America is weird, man. I'm not sure I fully understand it. It can't be explained away in terms of a minority cohort having a stranglehold on public discussion or engaging in policy capture. The issue is deeply divisive across the nation in a way that few other industrialised Western countries experience. According to a 2018 Gallup poll, it goes 48% either way, ladies and gentlemen.
 
 Anyway, *A Quiet Place* is effective. Worth a watch. But remember that John Krasinski is probably helping dismantle *Roe v. Wade*. Now think about that the next time you see him flirt with Pam on *The Office*.
 
 Next month: Going to smash out some more Nabokov and hopefully see some international films I've heard good things about at MIFF.
-
-*48% either way, ladies and gentlemen (Gallup, 2018)*
 
 ## 28 August 2018 — August 2018 reviews
 
@@ -243,9 +241,7 @@ Next month: Going to smash out some more Nabokov and hopefully see some internat
 >
 > --- Friedrich Nietzsche
 
-*Existential brilliance.*
-
-A favourite, or so I think, of my old housemates. This anime is the story of Saitama, an unemployed *sararīman* who decides to become a superhero just for the fun of it. He has no deep motivations or internal conflicts. He has no unusual backstory. He does not train particularly hard. Yet, in a very short span of time, he ends up as essentially the most powerful being in the universe, able to turn gigantic monsters into crimson giblets with a single, unenthusiastic punch. And now he's bored and his life feels empty.
+A favourite, or so I think, of my old housemates. This anime is the story of Saitama, an unemployed *sararīman* who decides to become a superhero just for the fun of it. He has no deep motivations or internal conflicts. He has no unusual backstory. He does not train particularly hard. Yet, in a very short span of time, he ends up as essentially the most powerful being in the universe, able to turn gigantic monsters into crimson giblets with a single, unenthusiastic punch. And now he's bored and his life feels empty. *Ah, existential brilliance.*
 
 This absurd premise provides an incredible canvas for existential pondering. Ennui and malaise circle this show like insatiable sharks. The show presents a host of colourful side characters that stand up to insurmountable challenge, only for their valour to be revealed as illusory when Saitama steps in to punch their obstacles away in an instant. The show depicts an array of villains with fiendish abilities who, an *augenblick* after being introduced, are reduced to raining viscera with a single knuckle sandwich.
 
@@ -258,8 +254,6 @@ Along with these philosophical musings, the show also presents an imaginative in
 - **The significance of perverse incentives within measurement implementation:** One issue that is raised in the show is the fact that C-class heroes must perform a heroic act every week, lest they be removed from the Hero Registry. This, as it turns out, incentivises heroes to race around the city trying to find problems to solve, inadvertently generating suboptimal outcomes. As such, it is important that performance structures are carefully designed as to mitigate the emergence of unintended and undesirable incentives.
 
 ### *Pale Fire*, by Vladimir Nabokov
-
-*And blood-black nothingness began to spin | A system of cells interlinked within | Cells interlinked within cells interlinked | Within one stem. And dreadfully distinct | Against the dark, a tall white fountain played.*
 
 > A thousand years ago five minutes were
 > Equal to forty ounces of fine sand.
@@ -285,11 +279,15 @@ The book is a hilarious puzzle box, with jigsaw pieces composed of Nabokov's all
 
 Simply put, this book is awesome.
 
+*And blood-black nothingness began to spin 
+A system of cells interlinked within 
+Cells interlinked within cells interlinked 
+Within one stem. And dreadfully distinct 
+Against the dark, a tall white fountain played.*
+
 ### *Disenchantment*, Matt Groening
 
-*BOREDOM and TEDIOUS JOKES await.*
-
-It sucks! Hurrah!
+It sucks! BOREDOM and TEDIOUS JOKES await! Hurrah!
 
 The new Netflix show by the creator of *The Simpsons* and *Futurama* set in a "wacky" fantasy setting that is "laden with adult humour". The first episode does a decent enough job and the animation quality is top-notch, but the show quickly wears out its welcome. The serialised format is uninteresting. The jokes are not as clever as the writers think they are. And none of the characters are terribly engaging, with Eric Andre's talents wasted as a voice actor.
 
@@ -338,16 +336,6 @@ The film's lush, bold colours help underpin its bold, simplistic characters. It 
 3. Act Three. THE JAPANESE INVADE CHINA AND EVERYONE DIES.
 
 You can probably guess that the film has some jarring structural qualities to it. Nevertheless, it's a solid flick from the distant reaches of the Orient. Made me want to drink some cheap Asian grain liquor. Maybe watch this instead of *Crazy Rich Asians*. You subtitle hating philistines.
-
-*The dead know only one thing: it is better to be alive.*
-
-*Little Miss Sunshine from the Mirror Universe.*
-
-*'Fun' fact: The World Happiness Report 2018 ranked Burundi as the world's least happy nation.*
-
-*Do androids dream of self-congratulatory literary references?*
-
-*Pictured: Lots of red. Maybe some sorghum.*
 
 ## 5 November 2018 — Low-effort October 2018 reviews
 
