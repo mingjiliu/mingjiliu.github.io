@@ -36,8 +36,8 @@ notebooks fall into the flames..."*
 
 - [GitHub](https://github.com/mingjiliu){:target="_blank" rel="noopener"}
 - [ORCID](https://orcid.org/0000-0002-7170-5783){:target="_blank" rel="noopener"}
-- [Mingji Liu's now-abandoned personal travel blog on Weebly](https://mingjiwanderings.weebly.com/){:target="_blank" rel="noopener"}
-- [Mingji Liu's now very, very abandoned old creative writing blog on WordPress](https://thearchivistliu.wordpress.com/){:target="_blank" rel="noopener"}
+- [Mingji Liu's now-abandoned old travel blog on Weebly](https://mingjiwanderings.weebly.com/){:target="_blank" rel="noopener"}
+- [Mingji Liu's very, very abandoned old creative writing blog on WordPress](https://thearchivistliu.wordpress.com/){:target="_blank" rel="noopener"}
 
 <!-- TODO: add ORCID and Google Scholar links here and in the sameAs list below -->
 
