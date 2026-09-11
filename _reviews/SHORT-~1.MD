@@ -473,7 +473,7 @@ A much stronger work than *Autumn*. Just as how *Autumn* was a meditation on tra
 
 ### *Space Is the Place*, directed by John Coney
 
-Thanks to Susannah for bringing this to my attention. This very bizarre 1974 film is one of first true examples of the Afrofuturist science-fiction genre and stars Sun Ra, an avant-garde jazz musician who in real life claimed to have been abducted by aliens from Saturn (no, seriously). The plot's about Sun Ra (all decked out in Egyptian pharaoh getup) trying to send the black youths of Oakland to a utopian space colony through the power of jazz music. In one scene, two NASA engineers beat up sex workers in a brothel. I liked it, despite the scientific inaccuracies.
+Thanks to a friend for bringing this to my attention. This very bizarre 1974 film is one of first true examples of the Afrofuturist science-fiction genre and stars Sun Ra, an avant-garde jazz musician who in real life claimed to have been abducted by aliens from Saturn (no, seriously). The plot's about Sun Ra (all decked out in Egyptian pharaoh getup) trying to send the black youths of Oakland to a utopian space colony through the power of jazz music. In one scene, two NASA engineers beat up sex workers in a brothel. I liked it, despite the scientific inaccuracies.
 
 ### *Lincoln in the Bardo* by George Saunders
 
