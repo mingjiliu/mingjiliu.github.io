@@ -39,9 +39,9 @@ So whenever I wanted to watch Star Wars, I had to sit through five minutes of 9/
 
 Star Wars and 9/11. As weird as it sounds, this unholy pairing is not entirely unheard of. Some examples:
 
-- Comedy Central did a [skit back in 2009](https://www.youtube.com/watch?v=xV7Ha3VDbzE), with stormtroopers in a space cantina reflecting on the destruction of the Death Star à la the anniversary of the Twin Tower attacks.
-- There was [this delicious parody](https://vimeo.com/61930750) of the 9/11 truther video *Loose Change*, talking up the attack on the Death Star as a conspiracy masterminded by Vader, Luke and Leia, who were all secretly working together.
-- Around the time that Osama bin Laden was killed, someone wrote up a joke article announcing that ["Obi-Wan Kenobi Is Dead, Vader Says"](https://www.theatlantic.com/politics/archive/2011/05/the-best-nyt-parody-yet-obi-wan-kenobi-is-dead-vader-says/238739/), with Darth Vader doing the Sith version of President Obama's announcement of bin Laden's death.
+- Comedy Central did a [skit back in 2009](https://www.youtube.com/watch?v=xV7Ha3VDbzE){:target="_blank" rel="noopener"}, with stormtroopers in a space cantina reflecting on the destruction of the Death Star à la the anniversary of the Twin Tower attacks.
+- There was [this delicious parody](https://vimeo.com/61930750){:target="_blank" rel="noopener"} of the 9/11 truther video *Loose Change*, talking up the attack on the Death Star as a conspiracy masterminded by Vader, Luke and Leia, who were all secretly working together.
+- Around the time that Osama bin Laden was killed, someone wrote up a joke article announcing that ["Obi-Wan Kenobi Is Dead, Vader Says"](https://www.theatlantic.com/politics/archive/2011/05/the-best-nyt-parody-yet-obi-wan-kenobi-is-dead-vader-says/238739/){:target="_blank" rel="noopener"}, with Darth Vader doing the Sith version of President Obama's announcement of bin Laden's death.
 - Various hipster clickbait articles that have argued that the prequel movies were superior because they reflected the moral ambivalence of post-9/11 global geopolitics. I won't even bother providing links.
 
 Why have these comparisons between 9/11 and Star Wars been made? Are Star Wars fans a bunch of black-humoured geeks? Do we tend to cope with tragedy by drawing on childhood comforts? The correct hypothesis, I believe, is that Star Wars has become such a cultural monolith, it has seeped into <u>every fucking facet</u> of American and (by extension) Western culture, for better or worse.
