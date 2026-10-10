@@ -3,7 +3,79 @@ title: "Travel odds and ends"
 date: 2023-08-25
 ---
 
-*Short travel notes salvaged across 2018–2023. Anything already covered elsewhere on this site has been omitted.*
+*Short travel notes salvaged across 2018–2024. Anything already covered elsewhere on this site has been omitted.*
+
+## 26 September 2024 — Petra
+
+![Petra](/assets/travel/odds-54-petra.jpg)
+
+Top three tips for exploring Petra:
+
+1. The penitent man kneels before God
+2. In Latin, "Jehovah" begins with an "I"
+3. It's just a rock coloured bridge, Indy
+
+## 21 September 2024 — Delphi
+
+![Delphi](/assets/travel/odds-53-delphi.jpg)
+
+Huffing the sacred fumes and receiving prophecies from Apollo at Delphi.
+
+## 18 September 2024 — Athens
+
+![Athens](/assets/travel/odds-52-athens.jpg)
+
+Athens should've won the Peloponnesian War. Will never recover from what happened.
+
+## 5 September 2024 — Merzouga, Morocco
+
+![Merzouga, Morocco](/assets/travel/odds-51-merzouga.jpg)
+
+I love sand, it's soft and gentle and comforting and it gets everywhere.
+
+## 26 August 2024 — Naples
+
+![Naples](/assets/travel/odds-50-naples.jpg)
+
+Napoli! Clearly, Elena Ferrante despised this place and I can't imagine Neapolitans liking her depiction of their beloved city.
+
+## 25 August 2024 — Naples
+
+![Naples](/assets/travel/odds-49-naples-sri-lankan-buffet.jpg)
+
+Time for a heretical opinion. The best meal I've had in Naples was at a 5 euro Sri Lankan lunch buffet. (Napoli has a very large Sri Lankan community — similar weather, same driving standards.) Ate with my hands and everything. I can't do pasta and pizza anymore! Farewell Europe.
+
+## 29 January 2024 — Andorra
+
+![Andorra](/assets/travel/odds-48-andorra.jpg)
+
+Skiing in Andorra this weekend... just so I can say I've been to this odd little country called Andorra.
+
+## 22 December 2023 — Barcelona
+
+![Barcelona](/assets/travel/odds-47-museum-of-forbidden-art.jpg)
+
+Sacrilegious fun at Barcelona's Museum of Forbidden Art — a collection of pieces censored, attacked, or withdrawn from exhibitions around the world.
+
+## 18 November 2023 — Barcelona
+
+![Barcelona](/assets/travel/odds-46-studying-in-barcelona.jpg)
+
+What I thought studying economics in Europe would be like: Drinking cava, maybe wearing a beret.
+
+What studying economics in Europe is actually like: Smoking cheap cigarettes on my balcony at midnight while thinking about the pros & cons of the German pension system.
+
+## 1 September 2023 — Barcelona
+
+![Barcelona](/assets/travel/odds-45-casa-vicens-casa-amatller.jpg)
+
+Checking out Gaudí's Casa Vicens and Puig's Casa Amatller. Back when rich people commissioned nice things, died, and then you could just walk around their former bedrooms.
+
+## 29 August 2023 — The Sagrada Família
+
+![The Sagrada Família](/assets/travel/odds-44-sagrada-familia.jpg)
+
+Is the Sagrada Família one of the most beautiful buildings in the world? Will it even be completed in our lifetime? Well, it's certainly proof we can build some very nice things out of mainly concrete.
 
 ## 25 August 2023 — Madrid
 
@@ -26,6 +98,41 @@ The National Gallery and Tate Britain. Contains one of my all-time favourite pai
 ![A park bench in Oxford](/assets/travel/odds-3-a-park-bench-in-oxford.jpg)
 
 It was at this park bench many years ago that a 12 year old girl and her pet ferret concluded their quest to destroy an inter-dimensional Catholic empire and euthanise God. Or something. I dunno, I thought Philip Pullman did a good job with it.
+
+## 3 August 2023 — The National Portrait Gallery, London
+
+![The National Portrait Gallery, London](/assets/travel/odds-42-national-portrait-gallery.jpg)
+
+Fun fact: every Wikipedia article "profile painting" for every historical English person ever came from the National Portrait Gallery.
+
+## 25 April 2023 — Pokhara, Nepal
+
+![Pokhara, Nepal](/assets/travel/odds-41-pokhara.jpg)
+
+> Into my heart an air that kills  
+> From yon far country blows:  
+> What are those blue remembered hills,  
+> What spires, what farms are those?  
+> That is the land of lost content,  
+> I see it shining plain,  
+> The happy highways where I went  
+> And cannot come again.
+>
+> --- A.E. Housman, *A Shropshire Lad*
+
+## 22 April 2023 — Thorung La pass
+
+![Thorung La pass](/assets/travel/odds-40-thorung-la.jpg)
+
+The roof of the world! After ten days of trekking, high altitude acclimatisation and masala teas I've finally made it over Thorung La pass — one of the highest mountain passes on earth at over 5,400m above sea level.
+
+I think I need a nap.
+
+## 21 April 2023 — The Annapurna Circuit
+
+![The Annapurna Circuit](/assets/travel/odds-39-annapurna-circuit.jpg)
+
+The Annapurna Circuit continues! Trudging our way through snow, mud, yak poop, and blisters to High Camp...
 
 ## 27 October 2022 — A cantina in Guanajuato
 
