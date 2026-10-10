@@ -4,4 +4,4 @@ collection: travel
 layout: section
 permalink: /travel/
 ---
-Travel writing and photography by Mingji Liu.
+Travel writing and associated photography by Mingji Liu.
