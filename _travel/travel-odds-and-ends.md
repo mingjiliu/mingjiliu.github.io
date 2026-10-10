@@ -3,7 +3,7 @@ title: "Travel odds and ends"
 date: 2023-08-25
 ---
 
-*Short travel notes salvaged from, 2018–2023. Anything already covered elsewhere on this site has been omitted.*
+*Short travel notes salvaged across 2018–2023. Anything already covered elsewhere on this site has been omitted.*
 
 ## 25 August 2023 — Madrid
 
