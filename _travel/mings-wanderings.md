@@ -1,5 +1,5 @@
 ---
-title: "Ming's Wanderings"
+title: "Ming's Wanderings (complete set of posts)"
 date: 2023-09-30
 ---
 
