@@ -3,7 +3,7 @@ title: "Travel posts, pre-2020"
 date: 2019-12-18
 ---
 
-*Travel notes written before I started the blog proper, 2014–2019. Most recent first.*
+*Travel notes written pre–2020. Most recent first.*
 
 ## 18 December 2019 — A balcony in Kuala Lumpur
 
@@ -113,27 +113,6 @@ It's almost time. And who better to turn to at a time like this than the great p
 And to quote the journalist and writer Ryszard Kapuściński:
 
 > Why was I travelling? To look, to walk around, to ask, to listen, to sniff, to think, to write.
-
-## 27 January 2019 — Shanghai
-
-Shanghai, what a metropolis. The largest city in China and the second most populous city proper on the planet. Arriving into the city from the smoggy industrial sprawls of the Jiangsu Province was a godsend. Crisp, clean air! Here, the air is dense with something other than the belchings of coal-fired plants and light manufactories. It's redolent of international finance, fashion, retail, professional services and real estate - the parfum of global capital flows!
-
-When Anthony Bourdain called Shanghai the most materialistic place on earth, he wasn't kidding. During my short stay, I had the opportunity to visit a private yacht club and peek into its decadent wine cellars. I strolled into a Louis Vuitton showcase at the Exhibition Centre just for kicks. I drank Hennessy XO Cognac (mixed with sweet tea!) at the VIP table of a booming nightclub with my father and his 40+ year old investor colleagues (don't ask). This city is a relentless, gilded cynosure.
-
-Some other, disjointed thoughts:
-
-- Unlike many other urban centres in the Yangtze River Delta region, where economic growth has supplanted aesthetics with hedgerows of copy-pasted Soviet style buildings, Shanghai is very pleasing to the eye. Is it as visually attractive as other global cities (e.g. New York, Paris, Hong Kong)? Probably not. But after spending so much time in banal, industrially stamped Chinese cities to the north, seeing the old European banks, consulates, clubs and trading houses of the Shanghai Bund was deeply refreshing. Likewise, the French Concession is a lovely area to walk around. Hate to admit this, but a colonial history can, at the very least, make a city nicer to look at.
-- Even so, the Chinese way of unleashing cycles of creative (and un-creative) destruction has left its mark. Consider the stunning, glittering Jing'an Temple on West Nanjing Road. On paper, sure, this Buddhist temple has existed since the 12th century. In reality, it was repeatedly destroyed and rebuilt over the centuries and was, at its nadir, converted into a plastics factory during the Cultural Revolution. The current temple, as grand as it is, is only 35 years old. Such is the case with many "historical" sites in Mainland China.
-- I found Shanghai fairly walkable, which I like in my cities. Also, it's hard to become even remotely lost with so much English everywhere.
-- The people are big city brusque, as you'd expect. But they're not pathologically rude, like the denizens of Beijing. Shanghaiers also don't seem to spit on the streets that much (an infamous habit of many PRC pedestrian, I'm afraid to say). The subways (which are, as you'd expect, seamless networks of efficiency) have all the usual public transport PSAs: where to stand, how to let passengers off first, how to be a courteous commuter. Yet no one follows them. They do in Taipei. They do in Tokyo. They do in Singapore. They do in Hong Kong. But China is still China and does things China's way.
-- If you want to do your counterfeit shopping, I suggest you hop on the train to a nearby city. In Shanghai, given it's a global hub of big brand retail, you might accidentally buy the real thing. Still, you find the occasional oddities. I came across a few stores on Old Shanghai Street selling 'authentic mammoth tusks'. Right.
-- The standards for Shanghai police officers seem surprisingly low — especially given how the city's the crowning jewel of the government. Some of them were real Paul Blart mall cop-ish guys, standing around doing very little.
-- Shanghai Museum was wonderful. Free too. Strolling around the building, I got a real sense of just how differently societies can appreciate art and culture. Consider, for example, the Chinese calligraphy wing of the museum. While largely devoid of western tourists, there were throngs of Chinese visitors crowding around particular scrolls and taking photos of ancient Chinese poems. Could you transpose such admiration onto the western world? An analogy would be if the English romantic poets were also famed for their breathtaking penmanship and people travelled from far and wide to a museum in London just to gaze upon their original manuscripts.
-- I matched with more white women on Tinder in Shanghai over a two-day period than the entirety of my time using it in Melb. Go figure.
-- It's a place where high and low-tech intermingle incessantly. Cash is clearly on the way out, since it seems you can pay at most places in Shanghai with only your smartphone via Wechat Pay or Alipay. I was often the only one paying in cash in some places. Yet everywhere you go, there are also simple street vendors, dealing in grubby notes.
-- China's Peppa Pig obsession is real. I don't understand it. That pink porky fuck is everywhere.
-- A quick note on food: The conversations about food in China would put most western foodies to shame. At the dinner table, I'd listen to people who were by no means social elites or intense connoisseurs talk endlessly about the best way to cook this breed of chicken, the best age to slaughter a piglet, the best region in China to source that vegetable, etc., etc. You could dedicate an entire lifetime to exploring the various cuisines of China and not even come close to covering it all.
-- Did it matter that my Standard Mandarin is spotty? Not really. With so much intra-national migration in China, I heard plenty of funky accents and dialects. Also heard a lot of code switching between regional tongues and the "Beijing Standard". I could have (with a bit of effort) passed for a Chinese national, albeit a slightly strange one from a faraway province. Maybe.
 
 ## 22 August 2018 — MoMA at the NGV
 
