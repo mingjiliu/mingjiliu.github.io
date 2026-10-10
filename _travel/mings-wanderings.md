@@ -1001,13 +1001,11 @@ And with Jaipur completed, I was finally done with Rajasthan! Afterwards, I took
 
 ![Jaisalmer (2020) — photo 1](/assets/travel/jaisalmer-01.jpg)
 
-### Greetings from Jaisalmer --- The Golden City
+### Greetings from Jaisalmer — The Golden City
 
-Phwoar. What a place! This is the small and remote city of Jaisalmer, a sandstone settlement in the middle of the Thar Desert and once a medieval trading hub on the Silk Road. You can understand why both modern and bygone travellers fell in love with this place. It is the fantastical desert city that springs to mind when they think of ancient, exotic Arabia or Central Asia.
+Phwoar. What a place! This is the small and remote city of Jaisalmer, a sandstone settlement in the middle of the Thar Desert and once a medieval trading hub on the Silk Road. You can understand why both modern and bygone travellers fell in love with this place. It is the fantastical desert city that springs to mind when they think of ancient, exotic Arabia or Central Asia. Let's discuss some points of interest in this seemingly magical part of the world, shall we?
 
-Let's discuss some points of interest in this seemingly magical part of the world, shall we?
-
-The astonishing Jaisalmer Fort...
+### The astonishing Jaisalmer Fort...
 
 This is the giant 800-year-old citadel that sits at the heart of the city. It has been dubbed one of the world's oldest "living forts" and has a resident population of around 4,000 people.
 
@@ -1017,45 +1015,89 @@ I even managed to stay at a guesthouse inside the fort for the price of an Aussi
 
 ![Jaisalmer (2020) — photo 3](/assets/travel/jaisalmer-03.jpg)
 
-A bit of male pampering...
+### A bit of male pampering...
 
 To get here, I took an exhausting overnight train ride from Jodhpur. To recover properly, there was only one logical course of action: bargain bin male pampering, Bhārat style.
 
+![Jaisalmer (2020) — photo 4](/assets/travel/jaisalmer-04.jpg)
+
 There's actually a bit of a cottage industry on YouTube of people filming themselves getting old school, hole-in-the-wall Indian barbershop treatments like this. So why not get a snippet of the action?
 
-![Jaisalmer (2020) — photo 4](/assets/travel/jaisalmer-04.jpg)
+![Jaisalmer (2020) — photo 5](/assets/travel/jaisalmer-05.jpg)
 
 At one point the barber put on what I can only describe as a video game 'power fist' and/or 'vibro-weapon' and started to seismically attack my scalp. The best and/or worst and/or strangest part was when he did a little earthquake rub right down my ear canal. Ah, the things I do for worldly experiences.
 
-The (in)famous Bhang Shop of Jaisalmer...
+### The (in)famous Bhang Shop of Jaisalmer...
 
 Ah, yes. The notorious government authorised Bhang Shop at the foot of Jaisalmer Fort that was visited by none other than Anthony Bourdain when he filmed part of his Rajasthan episode in Jaisalmer. I had to, uh, briefly walk past it to take a quick photo, right?
+
+![Jaisalmer (2020) — photo 6](/assets/travel/jaisalmer-06.jpg)
 
 The two brothers who run this joint (sorry) have completely perfected their lines for the amusement of tourists. In no way whatsoever is this an authentic local establishment. When I said I was from Australia, Surya and his brother 'Dr. Bhang' (yep) told me how much they admired Nimbin. When they learnt I might be doing a desert safari, they suggested a pack of their special cookies to turn my camel ride into a "magic carpet ride". And in a deep and serious voice, Surya informed me that "the desert is pain and pleasure. Bhang is a painkiller so the desert becomes only pleasure." Sounds legit to me, mate.
 
 The cultural and religious reasons behind cannabis consumption in India is fascinating. Academically fascinating. But let me emphasise the Glomar response: I can neither confirm nor deny anything.
 
-A camel safari in the Thar Desert...
+### A camel safari in the Thar Desert...
 
-During my time here, I did a camel safari in the Great Indian Desert topped off by a magnificent sunset view. If my glutes could've handled it,
+During my time here, I did a camel safari in the Great Indian Desert topped off by a magnificent sunset view. If my glutes could've handled it, I would've ridden my dromedary bad boy right across the Pakistani border. Alas, not my principle steed of choice.
 
-![Jaisalmer (2020) — photo 5](/assets/travel/jaisalmer-05.jpg)
-
-I would've ridden my dromedary bad boy right across the Pakistani border. Alas, not my principle steed of choice.
+![Jaisalmer (2020) — photo 7](/assets/travel/jaisalmer-07.jpg)
 
 And also, these photos are deceptive! The Thar Desert has some small dunes for sure, but it is nothing like the endless rolling sands of the Sahara. Much of the landscape is quite rocky, with plenty of vegetation and clusters of human infrastructure.
 
-![Jaisalmer (2020) — photo 6](/assets/travel/jaisalmer-06.jpg)
+![Jaisalmer (2020) — photo 8](/assets/travel/jaisalmer-08.jpg)
 
 I know that I look very happy in some of these photos (and I mostly was). But behind the smiles for the camera, I never suspended my critical thinking. Jaisalmer is filled with dodgy bargain bin camel tours and I did my research to make sure I went with a good company. Even so, I was constantly alert to anything feeling off.
 
+![Jaisalmer (2020) — photo 9](/assets/travel/jaisalmer-09.jpg)
+
 Were the camels healthy? Hard to say given the lack of familiarity most westerners have with these animals. Was it okay that the person leading my camel was about the age of ten? This potentially gets into thorny questions of local community norms and the opportunity costs for labour vs. schooling in developing economies. I am, very often, what the writer Malcolm Gladwell calls "the holy fool". High threat detection, easily suspicious. If it takes the average person five minutes to drop their guard in a new situation, I'd happily take fifteen.
+
+![Jaisalmer (2020) — photo 10](/assets/travel/jaisalmer-10.jpg)
 
 Not the best way to end a segment about a beautiful desert safari (and truly, I did enjoy myself) but I thought these points were worth sharing. I'm not a total hack fraud. Not yet.
 
-![Read More](/assets/travel/jaisalmer-07.jpg)
+![Jaisalmer (2020) — photo 11](/assets/travel/jaisalmer-11.jpg)
 
-*Read More*
+### Wealthy haveli façades...
+
+Below are photos of the absurdly detailed havelis (traditional Indian mansions) of rich merchant families from Jaisalmer's trade routing past. Sadly, as with many Indian heritage buildings, it's much more impressive on the outside than on the inside. A literal façade.
+
+![Jaisalmer (2020) — photo 12](/assets/travel/jaisalmer-12.jpg)
+
+### A Jain temple complex...
+
+This sandstone Jain temple complex within Jaisalmer Fort dates back to the 12-16th century. If you are an intricate-stone-carving junkie, you will have an overdose here. I caved in and hired myself a guide whose explanation of Jainism made me even more confused.
+
+![Jaisalmer (2020) — photo 13](/assets/travel/jaisalmer-13.jpg)
+
+So they have no deities, only prophets? Wait, but aren't they also an offshoot of Hinduism? Yet they don't believe in reincarnation? But karma is a concept? And they all practice extreme non-violence? Or is it only their holy men that go to those extremes? My questions yielded few coherent answers. Oh well. There is always Wikipedia, I guess.
+
+### Two other points of interest in and around Jaisalmer...
+
+The first is Gadisar Lake, a man-made water reservoir built in the 1400s where an American friend and I hired a creaky pedal boat to cruise around like the maharajas of yore. Look at us go!
+
+![Jaisalmer (2020) — photo 14](/assets/travel/jaisalmer-14.jpg)
+
+![Jaisalmer (2020) — photo 15](/assets/travel/jaisalmer-15.jpg)
+
+The second is Bada Bagh, a set of royal cenotaphs (known as "chhatri") in a desert garden north of the city. Peaceful and crumbling. One shouldn't visit too many of these places! I'd hate to remember India only as a land of tombs, necropolises, and marbled thanatocracies. Rich dead people have done very well here.
+
+![Jaisalmer (2020) — photo 16](/assets/travel/jaisalmer-16.jpg)
+
+### A scene from somewhere in the heart of the Thar Desert...
+
+My photograph of Rajasthani village women carrying firewood on their heads while Jaisalmer Wind Park, one of the world's largest onshore wind farms, spins away in the background. Rich and poor. High-tech and low-tech. Is this India in a nutshell? Or perhaps the world entire?
+
+![Jaisalmer (2020) — photo 17](/assets/travel/jaisalmer-17.jpg)
+
+Change is the only constant. Change that, I imagine, is happening too quickly for some and not happening fast enough for many.
+
+### And finally, some more photos of Jaisalmer Fort because why not...
+
+Because, seriously, why not? Just look at this place!
+
+![Jaisalmer (2020) — photo 18](/assets/travel/jaisalmer-18.jpg)
 
 ## Jodhpur (2020)
 
@@ -1499,49 +1541,79 @@ What a wonderful place, though. I certainly hope that as we overcome this awful 
 
 ### Udaipur: The City of Lakes
 
-1. My first stop in Rajasthan, Land of Kings Ah, Udaipur... The City of Lakes, Palaces, Temples, Forts, and Lakes! This city was certainly a stark contrast after an overnight train out of electrifying, madcap Mumbai. It was the historic capital of the kingdom of Mewar and has been acclaimed as one of the most visually romantic corners of India. Prosperous, bucolic, culturally rich, and garden-like. There's no place quite like it on the subcontinent.
+### 1. My first stop in Rajasthan, Land of Kings
+
+Ah, Udaipur... The City of Lakes, Palaces, Temples, Forts, and Lakes! This city was certainly a stark contrast after an overnight train out of electrifying, madcap Mumbai. It was the historic capital of the kingdom of Mewar and has been acclaimed as one of the most visually romantic corners of India. Prosperous, bucolic, culturally rich, and garden-like. There's no place quite like it on the subcontinent.
 
 ![Udaipur (2020) — photo 2](/assets/travel/udaipur-02.jpg)
 
-2. The City Palace of Udaipur Built on the banks of Lake Pichola, this beautiful compound was once the living quarters and administrative centre for the Maharanas of the (still surviving) House of Mewar, who ruled this corner of India for centuries.
+### 2. The City Palace of Udaipur
 
-The exuberant, almost theatrical palatial complex was built over a period of nearly four centuries and provides an excellent view of the surrounding city. Its showy granite and marble façade, its celebrated glasswork, its storied paintings, and its countless, delicately handcrafted nooks and crannies are terrific to behold. It is astonishing that so much of it has remained intact over the ages.
+Built on the banks of Lake Pichola, this beautiful compound was once the living quarters and administrative centre for the Maharanas of the (still surviving) House of Mewar, who ruled this corner of India for centuries. The exuberant, almost theatrical palatial complex was built over a period of nearly four centuries and provides an excellent view of the surrounding city. Its showy granite and marble façade, its celebrated glasswork, its storied paintings, and its countless, delicately handcrafted nooks and crannies are terrific to behold. It is astonishing that so much of it has remained intact over the ages.
 
 ![Udaipur (2020) — photo 3](/assets/travel/udaipur-03.jpg)
 
-I'd describe parts of the City Palace as almost painfully beautiful . At one point on my tour of the palace, I nearly teared up from the exquisiteness of the artwork and architecture. It sounds silly but it's true. Maybe it was just the mood I was in, I don't know. Point is, the palace is a must visit.
-
-3. The best meal of my India trip so far?
-
-Maybe. It was certainly the most fun.
-
-I had an all-you-can-eat vegetarian thali at the famous Natraj Restaurant --- visited by none other than Anthony Bourdain himself when he came to Rajasthan. One of many Bourdain-related food pilgrimages I've done throughout my globetrotting.
+I'd describe parts of the City Palace as almost *painfully beautiful*. At one point on my tour of the palace, I nearly teared up from the exquisiteness of the artwork and architecture. It sounds silly but it's true. Maybe it was just the mood I was in, I don't know. Point is, the palace is a must visit.
 
 ![Udaipur (2020) — photo 4](/assets/travel/udaipur-04.jpg)
+
+### 3. The best meal of my India trip so far?
+
+Maybe. It was certainly the most fun. I had an all-you-can-eat vegetarian thali at the famous Natraj Restaurant — visited by none other than Anthony Bourdain himself when he came to Rajasthan. One of many Bourdain-related food pilgrimages I've done throughout my globetrotting.
 
 You'd try and be modest with the refills and they'd just throw food at you. The (somewhat bored) waiters all wanted to talk to you while you ate. I shook hands with every single one of them and felt like a z-list celebrity.
 
 An aside: whenever I say I'm from Australia, the conversations I've had with Indian locals tend to revolve around only two topics: bushfires and cricket. The former is upsetting to talk about and the latter I have no clue about. Very occasionally they'd ask me if it's true that Sydney women are the most beautiful in the world. This has happened multiple times. Very strange.
 
-4. Photos from the other side of Udaipur Depicted here: Donkey jams on the road, narrow alleyways (where mopeds race down at breakneck speeds), sleepy rooftop scenes, wedding processions, and fascinating Rajasthani folk dances (the firepots are used in the Chari dance for auspicious occasions and the stack of pots are used in the Bhavai dance to show off the balancing skills of the women in the community).
-
 ![Udaipur (2020) — photo 5](/assets/travel/udaipur-05.jpg)
 
-One morning while in Udaipur, I hopped on the back of a scooter with my guesthouse owner (no helmet, obviously) and zipped down to the local market to buy some mutton. The butcher, squatting in blood-stained jeans, was wildly hacking at a goat leg on a stump with a rusty knife while a small boy was tossing squirming chickens --- three in each hand --- into a cramped pen.
+### 4. Photos from the other side of Udaipur
 
-I cast my mind back to when I was on the train out of Mumbai, and I recall watching the street kids celebrating Makar Sankranti (which marks the end of the winter solstice and the start of longer days) by flying kites. They flew them into overhead powerlines and they flew them while playing on the train tracks.
-
-And all over Udaipur, day labourers stand far above the ground on precarious bamboo scaffolding with no safety equipment, renovating old heritage buildings by hand for a pittance.
-
-I think India, like so much of the Global South, is a simultaneously thrilling and frightful place for travellers precisely because the motto is "safety second". Take it or leave it, lean towards it or turn away from it,
+Depicted here: Donkey jams on the road, narrow alleyways (where mopeds race down at breakneck speeds), sleepy rooftop scenes, wedding processions, and fascinating Rajasthani folk dances (the firepots are used in the Chari dance for auspicious occasions and the stack of pots are used in the Bhavai dance to show off the balancing skills of the women in the community).
 
 ![Udaipur (2020) — photo 6](/assets/travel/udaipur-06.jpg)
 
-it'll always be there --- countless stories of daily close calls, routine near misses, and humdrum narrow escapes.
+One morning while in Udaipur, I hopped on the back of a scooter with my guesthouse owner (no helmet, obviously) and zipped down to the local market to buy some mutton. The butcher, squatting in blood-stained jeans, was wildly hacking at a goat leg on a stump with a rusty knife while a small boy was tossing squirming chickens — three in each hand — into a cramped pen.
 
-![Read More](/assets/travel/udaipur-07.jpg)
+![Udaipur (2020) — photo 7](/assets/travel/udaipur-07.jpg)
 
-*Read More*
+I cast my mind back to when I was on the train out of Mumbai, and I recall watching the street kids celebrating Makar Sankranti (which marks the end of the winter solstice and the start of longer days) by flying kites. They flew them into overhead powerlines and they flew them while playing on the train tracks. And all over Udaipur, day labourers stand far above the ground on precarious bamboo scaffolding with no safety equipment, renovating old heritage buildings by hand for a pittance. I think India, like so much of the Global South, is a simultaneously thrilling and frightful place for travellers precisely because the motto is "safety second". Take it or leave it, lean towards it or turn away from it, it'll always be there — countless stories of daily close calls, routine near misses, and humdrum narrow escapes.
+
+### 5. Self-reflections on the water
+
+Cowabunga dudes! Check out my new sunnies! 200 rupees, no UV protection, probably still overpriced. I'm finally as cool as the '90s.
+
+![Udaipur (2020) — photo 8](/assets/travel/udaipur-08.jpg)
+
+While I was in Udaipur, an odd realisation dawned on me: I'm privileged enough to travel in high and low circles, to move up and down the pecking ladder of the countries I visit, to shift between both luxurious and needful spaces. That may sound extremely vague (and it is!) so I'll try and offer examples. On one of my days here, I went on a boat cruise around Lake Pichola and stopped at Jagmandir, a former island palace and current luxury hotel, and had an obscenely expensive coffee (still cheaper than a Melbourne latte, mind you). Yet earlier that morning, my breakfast consisted of a deep-fried sandwich and a glass of chai at a roadside stall for thirty rupees (a bit over 60 Australian cents). I stood there with my chai watching the world go by in the company of middle-aged men who would probably be lucky to earn in a single day what I casually slapped down on that island hotel coffee.
+
+Similarly, I've had indulgent dinners at rooftop restaurants (pictured: laal maans, a spicy mutton curry specialty of Rajasthan) on the same day I've had a street food lunch for literal pennies. I've had expensive Mumbai cocktails and I may or may not have come across a two rupee cannabis concoction called bhola.
+
+![Udaipur (2020) — photo 9](/assets/travel/udaipur-09.jpg)
+
+I've toured boutique hotels (note my photos of the hand-painted pink and blue dining rooms) and I've stayed in spartan accommodation with almost no hot water, where I've learnt how to have bucket showers, crudely hand wash my clothes, sweep the floor with grass brooms, and drink "Indian style" from shared metal cups (i.e. no touching the rim with your lips).
+
+I've travelled by comfortable first-class cabins in overnight trains and I've taken long walks on the side of dusty, polluted highways to avoid dealing with overcharging rickshaw drivers (the bastards).
+
+I wonder what this makes me. Moving up and down, high and low. Splashing out and being miserly within consecutive hours. Great comfort happily punctuated by great discomfort. I know some of you have travelled this way. How have you felt about it on balance? Liberated? Strange? A bit of both?
+
+### 6. Other visits and bits and pieces
+
+![Udaipur (2020) — photo 10](/assets/travel/udaipur-10.jpg)
+
+And here are my final set of Udaipur photos before I shift to writing about bigger and better things:
+
+- A view of the city in the late afternoon from the Monsoon Palace, a 19th-century royal hilltop residence. The view is great, the palace is mediocre, and the government taxi ride up the hill is terrifyingly good fun — a very packed vehicle racing up a winding road as fast as it can while loudly honking around blind corners. Scenic adrenaline.
+- The resplendent, hand-carved Jagdish Temple. The temple has been a continuous site of worship for approximately 370 years. Hardly any surface is left unadorned. Every niche is populated with ornate stone carvings.
+- And the most important tourist attraction for me... food! Pyaj Kachori, a wonderful fried pastry stuffed with a spicy onion mixture and a specialty of the region. Go away glorious history, go away stunning vistas. This is all I actually need. Nothing else matters.
+
+![Udaipur (2020) — photo 11](/assets/travel/udaipur-11.jpg)
+
+### 7. In conclusion
+
+What more can I say? Udaipur. City of Lakes. It's a nice place. Next stop: Even more of the glorious northern state of Rajasthan.
+
+![Udaipur (2020) — photo 12](/assets/travel/udaipur-12.jpg)
 
 ## Varanasi (2020)
 
@@ -1865,7 +1937,7 @@ Touristy street art of George Town Ditto with a "touristy street art of Penang" 
 
 The big problem with Penang as a gastronomy-melting-pot-street-food-mecca is that it's hard to decide what to order. Too many stalls. Paralysis of choice is real. One needs mental strength and a game plan to make the biggest of life's delicious decisions. I had the good fortune of visiting a couple of places that the late, great Anthony Bourdain ate at. Two of them were Indian restaurants where I very quickly embraced enjoying meals with my hands. The other Bourdain spot was a dirty, open-air eatery by the side of a busy road that made the fucking best laksa I had ever ordered. It was sharply sour, it was accommodatingly sweet, it was complexly savoury, and it blew away my taste buds. I tried fresh durian again and quite enjoyed it. Yes, I claimed in the past that it tastes like crap. Yes, it tastes as though someone mixed custard with bitter, rotten and/or medicinal flavours. Yes, all this is wrapped up in a spiky alien cocoon. Yes, it made my stomach churn a bit after ingestion. But I am genuinely starting to appreciate it as a highly, highly acquired taste.
 
-Epilogue Ah, yes. The awkwardness of eating alone in a nearly empty food court in Penang. You're here because Anthony Bourdain ate here. You're partly in Penang because you liked that episode where he came here. You plan on eating at many of the George Town restaurants Bourdain ate at. Because he was cool and you are not. Well, guess what you uncool idiot. He also probably ate mouldy leftover burgers while deep into a methadone program. Is that something you want?
+Epilogue. Ah, yes. The awkwardness of eating alone in a nearly empty food court in Penang. You're here because Anthony Bourdain ate here. You're partly in Penang because you liked that episode where he came here. You plan on eating at many of the George Town restaurants Bourdain ate at. Because he was cool and you are not. Well, guess what you uncool idiot. He also probably ate mouldy leftover burgers while deep into a methadone program. Is that something you want?
 
 The beer arrives like minor salvation. Finally, something to do: get drunk in the syrupy, malaise-mongering heat while the overhead fans nuzzle your back. You're not even nursing your beer, you're slamming it like a speakeasy regular with burnt-out eyes. You see a thin blonde with a strawberry smoothie half her size. Probably an influencer. You watch a stocky white man order a bucket of Tiger beers all for himself. Also probably an influencer. You're not even a normal person who follows the pied piper of social media. You're following old-school television recommendations like a Neanderthal.
 
@@ -1893,9 +1965,7 @@ When Anthony Bourdain called Shanghai the most materialistic place on earth, he 
 
 ![Shanghai (2019) — photo 3](/assets/travel/shanghai-03.jpg)
 
-Unlike many other urban centres in the Yangtze River Delta region, where economic growth has supplanted aesthetics with hedgerows of copy-pasted Soviet-style buildings, Shanghai is very pleasing to the eye. Is it as visually attractive as global cities like New York, Paris, and Hong Kong? Not really. But after spending so much time in banal, industrially stamped Chinese cities to the north, seeing the old European banks, consulates, clubs and trading houses of the Shanghai Bund was deeply refreshing.
-
-It was a shame that when I visited the Bund, I couldn't see Shanghai's iconic skyline through the mist.
+Unlike many other urban centres in the Yangtze River Delta region, where economic growth has supplanted aesthetics with hedgerows of copy-pasted Soviet-style buildings, Shanghai is very pleasing to the eye. Is it as visually attractive as global cities like New York, Paris, and Hong Kong? Not really. But after spending so much time in banal, industrially stamped Chinese cities to the north, seeing the old European banks, consulates, clubs and trading houses of the Shanghai Bund was deeply refreshing. It was a shame that when I visited the Bund, I couldn't see Shanghai's iconic skyline through the mist.
 
 ![A misty view of Pudong from The Bund](/assets/travel/shanghai-04.jpg)
 
@@ -1907,19 +1977,49 @@ Overall, I found Shanghai fairly walkable, which I like in my cities. Also, it's
 
 Likewise, the French Concession is a lovely area to walk around. Hate to admit this, but a colonial history can, at the very least, make a city nicer to look at.
 
-Even so, the Chinese way of unleashing cycles of creative (and un-creative) destruction has left its mark. Consider the stunning, glittering Jing'an Temple on West Nanjing Road. On paper, sure, this Buddhist temple has existed since the 12th century. In reality, it was repeatedly destroyed and rebuilt over the centuries and was, at its nadir, converted into a plastics factory during the Cultural Revolution. The current temple, as grand as it is, is only 35 years old. Such is the case with many "historical" sites in Mainland China.
-
 ![Shanghai (2019) — photo 6](/assets/travel/shanghai-06.jpg)
 
-The people are Big City Brusque, as you'd expect. But they're not pathologically rude, like the denizens of Beijing. Shanghaiers also don't seem to spit on the streets that much (an infamous habit of many PRC pedestrian, I'm afraid to say). The subways (which are, as you'd expect, seamless networks of efficiency) have all the usual public transport PSAs: where to stand, how to let passengers off first, how to be a courteous commuter. Yet no one follows them. They do in Taipei. They do in Tokyo. They do in Singapore. They do in Hong Kong. But China is still China and does things China's way.
+Even so, the Chinese way of unleashing cycles of creative (and un-creative) destruction has left its mark. Consider the stunning, glittering Jing'an Temple on West Nanjing Road. On paper, sure, this Buddhist temple has existed since the 12th century. In reality, it was repeatedly destroyed and rebuilt over the centuries and was, at its nadir, converted into a plastics factory during the Cultural Revolution. The current temple, as grand as it is, is only 35 years old. Such is the case with many "historical" sites in Mainland China.
 
 ![Shanghai (2019) — photo 7](/assets/travel/shanghai-07.jpg)
 
+The people are Big City Brusque, as you'd expect. But they're not pathologically rude, like the denizens of Beijing. Shanghaiers also don't seem to spit on the streets that much (an infamous habit of many PRC pedestrian, I'm afraid to say). The subways (which are, as you'd expect, seamless networks of efficiency) have all the usual public transport PSAs: where to stand, how to let passengers off first, how to be a courteous commuter. Yet no one follows them. They do in Taipei. They do in Tokyo. They do in Singapore. They do in Hong Kong. But China is still China and does things China's way.
+
+![Shanghai (2019) — photo 8](/assets/travel/shanghai-08.jpg)
+
 Shanghai Museum was wonderful. Free too. Strolling around the building, I got a sense of just how different societies can appreciate art and culture in unique ways. Consider, for example, the Chinese calligraphy wing of the museum. While largely devoid of western tourists, there were throngs of Chinese visitors crowding around particular scrolls and taking photos of ancient Chinese poems. Could you transpose such admiration onto the western world? An analogy would be if the English romantic poets were also famed for their breathtaking penmanship and people travelled from far and wide to a museum in London just to gaze upon their original manuscripts.
 
-![Read More](/assets/travel/shanghai-08.jpg)
+![Shanghai (2019) — photo 9](/assets/travel/shanghai-09.jpg)
 
-*Read More*
+A quick note on food: The conversations about food in China would put most western foodies to shame. At the dinner table, I'd listen to people who were by no means social elites or intense connoisseurs talk endlessly about the best way to cook this breed of chicken, the best age to slaughter a piglet, the best region in China to source that vegetable, etc., etc. You could dedicate an entire lifetime to exploring the various cuisines of China and not even come close to covering it all.
+
+![Shanghai (2019) — photo 10](/assets/travel/shanghai-10.jpg)
+
+The photograph below: a view of Yu Garden in the Old City of Shanghai. A quiet, classical-style Chinese garden tucked away from the fevered energy of the modern city.
+
+![Shanghai (2019) — photo 11](/assets/travel/shanghai-11.jpg)
+
+Originally built in the 16th century during the Ming Dynasty, the garden has been pummelled by the forces of history. The garden was damaged during the First Opium Wars and was even used as a rebel hideout during the bloody Taiping rebellion. Thankfully, it has since been restored closer to its former glory.
+
+![Shanghai (2019) — photo 12](/assets/travel/shanghai-12.jpg)
+
+Shanghai is a place where high and low-tech intermingle incessantly. Cash is clearly on the way out since it seems you can pay at most places in Shanghai with only your smartphone via Wechat Pay or Alipay. I was often the only one paying in cash in some places. Yet everywhere you go, there are also simple street vendors, dealing in grubby notes.
+
+![Shanghai (2019) — photo 13](/assets/travel/shanghai-13.jpg)
+
+If you want to do your counterfeit shopping, I suggest you hop on the train to a nearby city. In Shanghai, given it's a global hub of big brand retail, you might accidentally buy the real thing! Still, you find the occasional oddities. I came across a few stores on Old Shanghai Street selling 'authentic mammoth tusks'. Right.
+
+![Shanghai (2019) — photo 14](/assets/travel/shanghai-14.jpg)
+
+Change, change, change. That is the unofficial motto of this entire region. In the 1990s, when the then paramount leader of China, Deng Xiaoping, introduced a suite of economic reforms, it triggered an intense redevelopment of Shanghai, especially in the Pudong New Area. The city was reformed as a nexus for global trade and finance, and houses one the largest stock exchanges in the world as well as the first free-trade zone on Chinese soil.
+
+![Shanghai (2019) — photo 15](/assets/travel/shanghai-15.jpg)
+
+And did it matter that my Standard Mandarin is spotty? This was something I was a little anxious about at the start of my visit. But, surprisingly, it didn't seem to matter much. With so much intra-national migration in China, I heard plenty of funky accents and dialects. I also heard a lot of switching between regional tongues and the "Beijing Standard". I could have (with a bit of effort) passed for a Chinese national, albeit a slightly strange one from a faraway province. Maybe.
+
+![The Oriental Pearl Radio and Television Tower](/assets/travel/shanghai-16.jpg)
+
+*The Oriental Pearl Radio and Television Tower*
 
 ## Tainan (2019)
 
@@ -2575,63 +2675,85 @@ It's frustrating to be sick while on your travels. Believe me, it's happened to 
 
 *Posted 27 October 2020*
 
-### MoMA and the MET! Which one is better?
+## Art galleries of New York (2016)
 
-The answer is obviously the Museum of Modern Art (MoMA).
+*Posted 27 October 2020*
 
-Compared to the Metropolitan Museum of Art (the Met), MoMA is easier to navigate, has nicer staff (the ones working at the Met struck me as obnoxiously rude at times), and with a higher superb-artwork-to-floorspace ratio. The Met also suffers from what I call 'Louvre Syndrome': its hoard of treasurers are too sprawling and exhausting to peruse in any effective way. That said, both are exceptional art museums, with influential pieces from the world over.
+MoMA and the MET! Which one is better?
+
+The answer is *obviously* the Museum of Modern Art (MoMA). Compared to the Metropolitan Museum of Art (the Met), MoMA is easier to navigate, has nicer staff (the ones working at the Met struck me as obnoxiously rude at times), and with a higher superb-artwork-to-floorspace ratio. The Met also suffers from what I call 'Louvre Syndrome': its hoard of treasurers are too sprawling and exhausting to peruse in any effective way. That said, both are exceptional art museums, with influential pieces from the world over.
 
 ### The Museum of Modern Art
 
 ![Art galleries of New York (2016) — photo 1](/assets/travel/art-galleries-of-new-york-01.jpg)
 
-Located in Midtown Manhattan, on 53rd Street between Fifth and Sixth Avenues.
+Located in Midtown Manhattan, on 53rd Street between Fifth and Sixth Avenues. MoMA boasts some truly marvellous pieces, including:
 
-MoMA boasts some truly marvellous pieces, including:
-
-Christina's World by Andrew Wyeth, one of my favourite American paintings.
-
-One of van Gogh's many portraits of the Postman Joseph Roulin.
-
-, a magnificent oil-on-canvas painting by the self- The Dream taught genius Henri Rousseau.
-
-The Bather, a striking Paul Cézanne painting.
-
-Vincent van Gogh's globally acclaimed The Starry Night.
-
-Henri Matisse's large and powerful painting The Dance (I) .
-
-Some memorable and cryptic Giorgio de Chirico works.
+- *Christina's World* by Andrew Wyeth, one of my favourite American paintings.
+- One of van Gogh's many portraits of the Postman Joseph Roulin.
+- *The Dream*, a magnificent oil-on-canvas painting by the self-taught genius Henri Rousseau.
+- *The Bather*, a striking Paul Cézanne painting.
+- Vincent van Gogh's globally acclaimed *The Starry Night*.
+- Henri Matisse's large and powerful painting *The Dance (I)*.
+- Some memorable and cryptic Giorgio de Chirico works.
 
 ![Art galleries of New York (2016) — photo 2](/assets/travel/art-galleries-of-new-york-02.jpg)
 
-![Read More](/assets/travel/art-galleries-of-new-york-03.jpg)
+There is also Claude Monet's monumental *Reflections of Clouds on the Water-Lily Pond*, the much pop-culture-referenced Salvador Dalí painting *The Persistence of Memory*, Picasso's lively *Three Musicians*, and Jasper Johns' hot wax painting *Flag*.
 
-*Read More*
+![Art galleries of New York (2016) — photo 3](/assets/travel/art-galleries-of-new-york-03.jpg)
+
+### The Metropolitan Museum of Art
+
+![Art galleries of New York (2016) — photo 4](/assets/travel/art-galleries-of-new-york-04.jpg)
+
+Located at 1000 Fifth Avenue in Manhattan's Upper East Side. Despite my earlier criticisms of the Met, it houses my all-time favourite American artworks: *America Today*, a mural of ten canvas panels by Thomas Hart Benton. They provide a dizzying sense of American dynamism, industry, change, culture, and optimism in the 1920s. If you want a sense of what 'made' modern America so exceptional in the early decades of the twentieth century, then I insist that you should study this mural.
+
+![Art galleries of New York (2016) — photo 5](/assets/travel/art-galleries-of-new-york-05.jpg)
+
+Other notable and fabulous works in the Met include:
+
+- *Ugolino and His Sons*, a macabrely dramatic marble sculpture by Jean-Baptiste Carpeaux.
+- Pablo Picasso's *Portrait of Gertrude Stein*.
+- Emanuel Leutze's epic painting of *Washington Crossing the Delaware*.
+- *The Death of Socrates*, a powerful piece of neoclassicism by the French master Jacques-Louis David.
+- *Self-Portrait with a Straw Hat* by Vincent van Gogh, as well as one of his still lifes of sunflowers.
+
+![Art galleries of New York (2016) — photo 6](/assets/travel/art-galleries-of-new-york-06.jpg)
+
+If you have to choose between a visit to either MoMA or the Met, my advice is simply this: stay a bit longer in New York City and see both! I promise you won't regret it.
+
+![Art galleries of New York (2016) — photo 7](/assets/travel/art-galleries-of-new-york-07.jpg)
 
 ## Art Institute of Chicago (2016)
 
 *Posted 25 October 2020*
 
-![Art Institute of Chicago (2016) — photo 1](/assets/travel/art-institute-of-chicago-01.jpg)
+![Founded in 1879, it is one of the oldest and grandest art museums in the US.](/assets/travel/art-institute-of-chicago-01.jpg)
 
-Founded in 1879, it is one of the oldest and grandest art museums in the US.
+*Founded in 1879, it is one of the oldest and grandest art museums in the US.*
 
 ### Thought of the day: O Edward Hopper, why are you so amazing?
 
-The Art Institute of Chicago was one of my must-see stops on my journey from the West Coast to East Coast of America, via the 'Windy City' of Chicago (probably named after its political climate and inter-city rivalries as opposed to its actual weather).
+The **Art Institute of Chicago** was one of my must-see stops on my journey from the West Coast to East Coast of America, via the 'Windy City' of Chicago (probably named after its political climate and inter-city rivalries as opposed to its actual weather). What a home to both American and international masterpieces!
 
-What a home to both American and international masterpieces!
-
-Paris Street; Rainy Day by Gustave Caillebotte. A Sunday Afternoon on the Island of La Grande Jatte by Georges Seurat. A Vincent van Gogh self-portrait and one of his The Song paintings. Jules Breton's Bedroom in Arles Jacques-Louis David's Napoleon . Ivan Albright's powerfully of the Lark. That Which I Should Have Done I Did Not Do (The Door) . And haunting much, much more.
+*Paris Street; Rainy Day* by Gustave Caillebotte. *A Sunday Afternoon on the Island of La Grande Jatte* by Georges Seurat. A Vincent van Gogh self-portrait and one of his *Bedroom in Arles* paintings. Jules Breton's *The Song of the Lark*. Jacques-Louis David's *Napoleon*. Ivan Albright's powerfully haunting *That Which I Should Have Done I Did Not Do (The Door)*. And much, much more.
 
 ![Art Institute of Chicago (2016) — photo 2](/assets/travel/art-institute-of-chicago-02.jpg)
 
-As mentioned above, there are some well-known paintings by the American realist painter Edward Hopper which perfectly capture the beautiful solitude and sad loneliness of modern life. I love his paintings and none is more resonant of this theme (or heavily parodied) as his famous 1942 painting Nighthawks .
+As mentioned above, there are some well-known paintings by the American realist painter Edward Hopper which perfectly capture the beautiful solitude and sad loneliness of modern life. I love his paintings and none is more resonant of this theme (or heavily parodied) as his famous 1942 painting *Nighthawks*.
 
-![Read More](/assets/travel/art-institute-of-chicago-03.jpg)
+![Art Institute of Chicago (2016) — photo 3](/assets/travel/art-institute-of-chicago-03.jpg)
 
-*Read More*
+![Art Institute of Chicago (2016) — photo 4](/assets/travel/art-institute-of-chicago-04.jpg)
+
+Aside from that, there are also some wonderful pieces by American modernist Georgia O'Keeffe. There are Jackson Pollock paintings. And there is Pablo Picasso's masterful *The Old Guitarist*.
+
+![Art Institute of Chicago (2016) — photo 5](/assets/travel/art-institute-of-chicago-05.jpg)
+
+There is African art. There is Asian art. And who can forget the iconic painting *American Gothic* by Grant Wood? Or René Magritte's surrealist work *Time Transfixed*? Or how about Marc Chagall's *American Windows*, a stained glass installation? I could go on and on, of course. Truly, it is a house of masterpieces!
+
+![Art Institute of Chicago (2016) — photo 6](/assets/travel/art-institute-of-chicago-06.jpg)
 
 ## The California Zephyr (2016)
 
@@ -2845,21 +2967,51 @@ Pictures on the road to Aoraki/Mount Cook, the highest mountain in New Zealand..
 
 *Posted 9 September 2020*
 
-### Cycling across the Ayutthaya Kingdom
-
-85 km north of Bangkok is a little archaeological gem known as the Ayutthaya Historical Park, once the capital of a fabulous Siamese kingdom and now a UNESCO World Heritage Site. Like most tourists, a friend and I visited the site as a day-trip destination from chaotic Bangkok. The train ride there from Bangkok's Hualamphong Train Station was surprisingly clean, undramatic and very, very affordable.
-
 ![Ayutthaya Historical Park (2015) — photo 1](/assets/travel/ayutthaya-historical-park-01.jpg)
 
-While these days Ayutthaya is a dusty little city, sweltering in the sticky Thai sun, it was at one point one of the finest cities on the planet. It is estimated that by the year 1700, its population had reached 1 million, making it one of, if not the, largest city of its time. European travellers spoke of it as a resplendent place with fine palaces, trading vessels, and canals reminiscent of Venice.
+### Cycling across the Ayutthaya Kingdom
 
-This all ended in 1767 when the Burmese invaded the kingdom and the great city, after over four centuries of existence, was almost entirely razed to the ground.
+85 km north of Bangkok is a little archaeological gem known as the **Ayutthaya Historical Park**, once the capital of a fabulous Siamese kingdom and now a UNESCO World Heritage Site. Like most tourists, a friend and I visited the site as a day-trip destination from chaotic Bangkok. The train ride there from Bangkok's Hualamphong Train Station was surprisingly clean, undramatic and very, very affordable.
 
-![Read More](/assets/travel/ayutthaya-historical-park-02.jpg)
+![Ayutthaya Historical Park (2015) — photo 2](/assets/travel/ayutthaya-historical-park-02.jpg)
 
-*Read More*
+While these days Ayutthaya is a dusty little city, sweltering in the sticky Thai sun, it was at one point one of the finest cities on the planet. It is estimated that by the year 1700, its population had reached 1 million, making it one of, if not the, largest city of its time. European travellers spoke of it as a resplendent place with fine palaces, trading vessels, and canals reminiscent of Venice. This all ended in 1767 when the Burmese invaded the kingdom and the great city, after over four centuries of existence, was almost entirely razed to the ground.
 
 ![Ayutthaya Historical Park (2015) — photo 3](/assets/travel/ayutthaya-historical-park-03.jpg)
+
+But enough about the sad grind of history. How best to explore this place? By bicycle, of course! Firstly, you need to take a short trip by ferry across the river to the old capital. The historic park is, in a sort of idyllic way, located on an island surrounded by three rivers. After that, it doesn't take much effort to find a cheap bicycle rental to zip from temple to temple. Just be careful with the rough and tumble Thai traffic! My friend and I certainly found it a bit of a hair-raising experience at times.
+
+![The famous head of Buddha at Wat Mahathat](/assets/travel/ayutthaya-historical-park-04.jpg)
+
+*The famous head of Buddha at Wat Mahathat*
+
+One of the most noteworthy sites in the historic park is **Wat Mahathat**. Called 'The Temple of the Great Relic', it was at one point in the forgotten past the most important monasteries of the Ayutthaya Historic City and a major venue for royal ceremonies and celebrations. These days, the former temple grounds are most famous among foreign visitors for a statue of Buddha that has been photogenically enveloped in tree roots. See above, obviously.
+
+![Ayutthaya Historical Park (2015) — photo 5](/assets/travel/ayutthaya-historical-park-05.jpg)
+
+Oh, marvellous and crumbling ruins! How I love them! Be it in Asia or Europe or anywhere else on the globe, there's something about the shattered remains of bygone civilisations that will forever intrigue me. The potential for every stone to tell a story. The tilting and decaying towers, the bricks older than memory, a row of headless Buddhas. Faith, endurance, destruction.
+
+![Ayutthaya Historical Park (2015) — photo 6](/assets/travel/ayutthaya-historical-park-06.jpg)
+
+**Wat Phra Si Sanphet** is another fascinating archaeological spot on the city island. Dating back to around the mid-15th century, the temple was once located within the royal palace grounds. Because of this, it had no resident monks and was used exclusively by the Ayutthaya royal family for their ceremonies and for storing royal relics.
+
+The most striking thing about Wat Phra Si Sanphet is its three large and pale bell-shaped 'chedis' or stupas. These three chedis were once believed to have enshrined the ashes of three kings as well as relics of the Buddha. Who knows? Maybe they are still sealed away somewhere deep inside them.
+
+![Ayutthaya Historical Park (2015) — photo 7](/assets/travel/ayutthaya-historical-park-07.jpg)
+
+And, like in many other touristy parts of Thailand, in Ayutthaya, you'll come across the chance to feed, pet, and ride captive elephants. I'm sure I don't need to say this, but don't forget to *not support* the local Thai elephant industry. It ain't a pleasant business.
+
+![Ayutthaya Historical Park (2015) — photo 8](/assets/travel/ayutthaya-historical-park-08.jpg)
+
+One of our final stops on the island was at **Wihan Phra Mongkhon Bophit.** Unlike its more fragmentary surrounding locales, this is a beautiful and bustling modern temple. Just look at that stunning gold-and-red roof structure.
+
+![Ayutthaya Historical Park (2015) — photo 9](/assets/travel/ayutthaya-historical-park-09.jpg)
+
+A wihan, also called a vihara, is a dedicated building in which an image of the Buddha is enshrined. Its big claim to fame? It houses one of the largest bronze Buddhas in Thailand. According to a nearby sign, the statue is almost 17 metres tall. Trust me, it's more impressive than my photography skills let on.
+
+![Ayutthaya Historical Park (2015) — photo 10](/assets/travel/ayutthaya-historical-park-10.jpg)
+
+And that concludes all I have to say about Ayutthaya. It was a short trip (we sadly weren't able to knock out all the suggested highlights in the historic area) but it was a memorable one. While we could only glimpse a fraction of its former glory, what we did see stirred my imagination. The surviving, eroded remnants of many yesterdays ago are crying out. What are they saying? What are they trying to convey? Each of us has to listen and interpret on our own.
 
 ## Reflections on tourism in Angkor (2015)
 
@@ -3077,7 +3229,7 @@ How I would love to waltz down Dresden's wide streets again. I would trace my fi
 
 ![Dresden (2014) — photo 10](/assets/travel/dresden-10.jpg)
 
-## Photo essay: Budapest (2014)
+### Photo essay: Budapest (2014)
 
 *Posted 1 December 2020*
 
@@ -3085,37 +3237,81 @@ How I would love to waltz down Dresden's wide streets again. I would trace my fi
 
 *One of the famous stone lions of the Chain Bridge.*
 
-Budapest. Capital of Hungary. Lady of the Danube. In the miserly sun of a winter's day, it is cold, beautiful, and stony. A city of baroque and neoclassical houses, churches, monuments. A thrumming heart of hills and bridges in the land of Magyars.
+Budapest. Capital of Hungary. Lady of the Danube.
 
-A quick stroll along the riverfront reveals the Hungarian Parliament Building. A demonic doom fortress, more like. The neo-gothic architecture is undoubtedly incredible -- it is just that in a certain light it looks like a monstrous redback spider stalking the banks of the Danube...
+In the miserly sun of a winter's day, it is cold, beautiful, and stony. A city of baroque and neoclassical houses, churches, monuments. A thrumming heart of hills and bridges in the land of Magyars.
 
 ![Photo essay: Budapest (2014) — photo 2](/assets/travel/photo-essay-budapest-02.jpg)
 
-Strolling across the bridge, from the flat eastern half of inner Budapest to its hillier western portion, you reach the Fisherman's Bastion with its Neo-Romanesque, fairy tale towers located in the Buda Castle area. Here, I will always remember my conversation with an old Hungarian man who was surprised by the colour of my skin when I was a New Zealander, going as far as to rub my cheek briefly in curiosity.
+A quick stroll along the riverfront reveals the Hungarian Parliament Building. A demonic doom fortress, more like. The neo-gothic architecture is undoubtedly incredible – it is just that in a certain light it looks like a monstrous redback spider stalking the banks of the Danube...
 
 ![Photo essay: Budapest (2014) — photo 3](/assets/travel/photo-essay-budapest-03.jpg)
 
-Located next door is Matthias Church, also known as the Church of the Assumption of the Buda Castle, a Roman Catholic church whose long-lost foundations date back to the 11th century. Whatever had originally stood there was destroyed during the Mongol invasions, its predecessor was severely damaged by the Ottoman invasions of Hungary, as well as bombarded by Allied forces near the end of World War II. But the peaceful decades that followed has been kind to this location, allowing it to heal back to glory.
-
-Speaking of the region's history, the name 'Budapest' came about from the 1873 unification of three separate towns in the area called Buda, Óbuda, and Pest.
+Strolling across the bridge, from the flat eastern half of inner Budapest to its hillier western portion, you reach the Fisherman's Bastion with its Neo-Romanesque, fairy tale towers located in the Buda Castle area. Here, I will always remember my conversation with an old Hungarian man who was surprised by the colour of my skin when I was a New Zealander, going as far as to rub my cheek briefly in curiosity.
 
 ![Photo essay: Budapest (2014) — photo 4](/assets/travel/photo-essay-budapest-04.jpg)
 
-Today, Budapest is a youthful, culturally zestful city but this was a hard-won status. It suffered under not only Nazi Germany, but also under Soviet military occupation during the Cold War era, all the way to 1991. Political change has been largely kind to Budapest.
-
-Another highlight: Buda Castle, a historical castle and palace complex that once belonged to the Hungarian kings of yore. It is pleasant to visit, but if the architecture seems a little dry then you should know that you're instincts are correct. The palace was gutted in the 1950s since the communist government of Hungary considered it a symbol of the former regime. What visitors now see is a largely a 'modernist' creation, reconstructed in the vision of a new post-war order.
+Located next door is Matthias Church, also known as the Church of the Assumption of the Buda Castle, a Roman Catholic church whose long-lost foundations date back to the 11th century. Whatever had originally stood there was destroyed during the Mongol invasions, its predecessor was severely damaged by the Ottoman invasions of Hungary, as well as bombarded by Allied forces near the end of World War II. But the peaceful decades that followed has been kind to this location, allowing it to heal back to glory.
 
 ![Photo essay: Budapest (2014) — photo 5](/assets/travel/photo-essay-budapest-05.jpg)
 
-And behold: St. Stephen's Basilica, a neoclassical Roman Catholic basilica named in honour of the first King of Hungary and undoubtedly the most important church structure in Hungary.
+Speaking of the region's history, the name 'Budapest' came about from the 1873 unification of three separate towns in the area called Buda, Óbuda, and Pest.
 
 ![Photo essay: Budapest (2014) — photo 6](/assets/travel/photo-essay-budapest-06.jpg)
 
+Today, Budapest is a youthful, culturally zestful city but this was a hard-won status. It suffered under not only Nazi Germany, but also under Soviet military occupation during the Cold War era, all the way to 1991. Political change has been largely kind to Budapest.
+
+![Photo essay: Budapest (2014) — photo 7](/assets/travel/photo-essay-budapest-07.jpg)
+
+Another highlight: Buda Castle, a historical castle and palace complex that once belonged to the Hungarian kings of yore. It is pleasant to visit, but if the architecture seems a little dry then you should know that your instincts are correct. The palace was gutted in the 1950s since the communist government of Hungary considered it a symbol of the former regime. What visitors now see is largely a 'modernist' creation, reconstructed in the vision of a new post-war order.
+
+![Photo essay: Budapest (2014) — photo 8](/assets/travel/photo-essay-budapest-08.jpg)
+
+And behold: St. Stephen's Basilica, a neoclassical Roman Catholic basilica named in honour of the first King of Hungary and undoubtedly the most important church structure in Hungary.
+
+![Photo essay: Budapest (2014) — photo 9](/assets/travel/photo-essay-budapest-09.jpg)
+
 When I visited it, the sunlight struck its interior in such a delicate way, I felt as though I was walking around in a meditative, dreamlike state. I gazed at its finely painted cupola, at its sanctuary and altar, at its statues and stained glass windows. I floated. I was washed in wordless wool-gathering.
 
-![Read More](/assets/travel/photo-essay-budapest-07.jpg)
+![Photo essay: Budapest (2014) — photo 10](/assets/travel/photo-essay-budapest-10.jpg)
 
-*Read More*
+Pictured below: the Dohány Street Synagogue, the largest synagogue in Europe and the second-largest on the planet. Also pictured: the striking Anker Palace, an eclectic-style building constructed for a Viennese insurance company in 1908.
+
+![Photo essay: Budapest (2014) — photo 11](/assets/travel/photo-essay-budapest-11.jpg)
+
+The Hospital in the Rock. Constructed in the caverns under Buda Castle, it served once as a vital medical station during the Siege of Budapest in WW2 and is now a museum that recreates those desperate days.
+
+The Budapest Cave Church. A modest if unusual church cut into side of Gellért Hill which overlooks the Danube. Once said to be the abode of a hermetic monk.
+
+The Liberty Statue, also on Gellért Hill. It is a monument to the Hungarians who sacrificed their lives for the independence, freedom, and prosperity of the nation. And may those days become renewed in Hungary soon...
+
+![Photo essay: Budapest (2014) — photo 12](/assets/travel/photo-essay-budapest-12.jpg)
+
+After nightfall, Budapest is bathed in golden electricity. It becomes, regardless of whether it is in crisp darkness or torpid fog, a city encased in amber, suspended like a gemstone.
+
+![Photo essay: Budapest (2014) — photo 13](/assets/travel/photo-essay-budapest-13.jpg)
+
+See here the bullet hole markers on the side of the Ministry of Agriculture Building. These mark the scars of Hungary's failed 1956 Revolution against Soviet domination. Then see the Soviet War Memorial in Liberty Square. Bizarrely, it is situated in the same square as a statue of US president Ronald Reagan. All hail Ronald of House Reagan, Czar of All America, Conqueror of Grenada, Redeemer of Nicaragua, and Destroyer of Communism!
+
+![Photo essay: Budapest (2014) — photo 14](/assets/travel/photo-essay-budapest-14.jpg)
+
+But enough about the politics and the past (for now). When I was in Budapest, I was able to link up with some friends who were also touring Europe and together we visited one of the city's hip and famous ruin bars – alcoholic lubrication establishments located in old, dilapidated and occasionally abandoned buildings.
+
+![Photo essay: Budapest (2014) — photo 15](/assets/travel/photo-essay-budapest-15.jpg)
+
+And Budapest, of course, is also nicknamed the Spa City. As such, no touristy visit to the city would be complete without a dip in the Széchenyi Medicinal Bath, the largest medicinal bath in Europe. Drawing on thermal springs, these public baths feature anywhere from pleasant 18°C pools to scalding 38°C hot pots.
+
+![Photo essay: Budapest (2014) — photo 16](/assets/travel/photo-essay-budapest-16.jpg)
+
+Nearby is the Heroes' Square, one of the major squares in the city. It is notable for its statue complex, depicting important national leaders as well as the legendary leaders of the seven tribes of the Hungarians that supposedly led their people into Central Europe near the end of the 9th century.
+
+![Photo essay: Budapest (2014) — photo 17](/assets/travel/photo-essay-budapest-17.jpg)
+
+And that concludes my remarks on Budapest, the so-called 'Paris of the East' and one of the best European cities to visit. I thought it was better than Prague, in fact (a city with a similar layout consisting of a flat eastern section and a palatial and hilly western quarter, divided by a river). Budapest is certainly a must-visit for any first-timers to this part of the continent.
+
+![Photo essay: Budapest (2014) — photo 18](/assets/travel/photo-essay-budapest-18.jpg)
+
+*"And although she may have studied with an expert dialectician and grammarian, I can tell that she was born... HUNGARIAN!"*
 
 ## Photo essay: Roma invicta (2013, 2014)
 
@@ -3499,23 +3695,111 @@ Instead, I satisfied myself by taking photos of the masterful paintings which, l
 
 ### A portal to the Ancien Régime
 
-What draws people to the Palace of Versailles like bugs to a golden light? Is it admiration for French royal history and 17th-century French art? Is it to satisfy a daydream of living in fantastical and exalted opulence? Or is there a darker, sardonic element to it? A macabre recognition that all these fineries could not save the king and queen from the blade during the French Revolution? I must admit, I felt a weird mix of all three when I entered the former residence of the House of Bourbon.
+What draws people to the **Palace of Versailles** like bugs to a golden light? Is it admiration for French royal history and 17th-century French art? Is it to satisfy a daydream of living in fantastical and exalted opulence? Or is there a darker, sardonic element to it? A macabre recognition that all these fineries could not save the king and queen from the blade during the French Revolution? I must admit, I felt a weird mix of all three when I entered the former residence of the House of Bourbon.
 
-I visited the on a crisp winter's day. Getting there Château de Versailles from Paris was almost too easy. The city of Versailles is located less than twenty kilometres south-west from Paris by RER and the palace is only a short walk from the train station.
-
-Given its close proximity to the capital and global fame, the Palace of Versailles is obviously wildly popular all year around. As such, the First
+I visited the *Château de Versailles* on a crisp winter's day. Getting there from Paris was almost too easy. The city of Versailles is located less than twenty kilometres south-west from Paris by RER and the palace is only a short walk from the train station. Given its close proximity to the capital and global fame, the Palace of Versailles is obviously wildly popular all year around. As such, the First Rule of Popular Day Trips applies in full force: Drag yourself out of bed and get there as early to beat the crowds.
 
 ![A day trip to Versailles (2013) — photo 2](/assets/travel/a-day-trip-to-versailles-02.jpg)
 
-Rule of Popular Day Trips applies in full force: Drag yourself out of bed and get there as early to beat the crowds.
-
 A quick history rundown: The Palace of Versailles can be condensed into the story of three monarchs with the name Louis. Sort of.
 
-Originally, the royal palace was merely a hunting lodge for King Louis XIII in the early 17th-century. His son, King Louis XIV (also famously known as the Sun King) took a great liking to the site and began to significantly expand it, eventually making it his Court in 1683. It then remained this way up until the doomed reign of King Louis XVI---the last monarch to live in Versailles and the last King of France prior to the French Revolution of 1789-99.
+Originally, the royal palace was merely a hunting lodge for King Louis XIII in the early 17th-century. His son, King Louis XIV (also famously known as the Sun King) took a great liking to the site and began to significantly expand it, eventually making it his Court in 1683. It then remained this way up until the doomed reign of King Louis XVI—the last monarch to live in Versailles and the last King of France prior to the French Revolution of 1789-99.
 
-![Read More](/assets/travel/a-day-trip-to-versailles-03.jpg)
+![A day trip to Versailles (2013) — photo 3](/assets/travel/a-day-trip-to-versailles-03.jpg)
 
-*Read More*
+### Inside the royal residence
+
+The palace, simply put, is astonishing. There are 2,300 rooms spread over 63,000 square metres, and almost every single room that is accessible to the visitors is a testament to the luxuries of the time. This is perhaps best exemplified in the gilded elegance of the King's Apartment and Marie Antoinette's Private Chambers.
+
+It's worth noting that the palace continued to be developed, even after the wane of the Bourbon dynasty. For instance, there's the Coronation Room with its immense painting depicting the consecration of Napoleon Bonaparte and the coronation of his wife, Empress Josephine. There's also the 1792 Room, another post-French Revolution room, filled with paintings highlighting key battles and figures from the French Revolutionary Wars.
+
+![A day trip to Versailles (2013) — photo 4](/assets/travel/a-day-trip-to-versailles-04.jpg)
+
+But the highlight of Versailles is, without a glint of doubt, the dazzling Hall of Mirrors. The gallery showcases French economic, political and cultural prowess from that time period, and is named after its large mirror-panelled arches (mirrors were a highly expensive rarity in the 1600s).
+
+The Hall of Mirrors also played a role in 20th-century history as well. The Treaty of Versailles was signed here in June of 1919, concluding the First World War. It also arguably, with its brutal treatment of Germany, helped lay the foundations for the rise of Nazism and the lead up to the Second World War.
+
+![The Hall of Mirrors](/assets/travel/a-day-trip-to-versailles-05.jpg)
+
+*The Hall of Mirrors*
+
+Connected to the Hall of Mirrors are the War Room and the Peace Room. The War Room commemorates the military victories of France with its marble panels, trophies and gilded weapons. In contrast, the decor in the Peace Room praises the benefits of peace brought upon the continent of Europe by France.
+
+![A day trip to Versailles (2013) — photo 6](/assets/travel/a-day-trip-to-versailles-06.jpg)
+
+The State Apartments are another impressive part of the palace. They have lofty names such as the "Venus Salon", the "Mercury Salon", and the "Mars Salon" and were used to hold official acts of the state.
+
+For what my words are worth, I believe the most arresting of these rooms is the Hercules Salon. The French artist François Lemoyne painted its entire ceiling, which depicts a gathering of Greek gods and goddesses. The ceiling took Lemoyne four years to complete and, according to rumours, the project was so exhausting it drove him mad and he committed suicide in 1737 by stabbing himself repeatedly with a sword. Yikes.
+
+The Royal Chapel is yet another splendour of Versailles, with its airy Gothic-inspired architecture. It was in this chapel, in 1770, that Marie Antoinette, at age fourteen, married Louis XVI.
+
+![The Royal Chapel](/assets/travel/a-day-trip-to-versailles-07.jpg)
+
+*The Royal Chapel*
+
+### The Palace Gardens
+
+Once you're done with the inside of the palace, there are still the immense palace gardens to explore. Work on the gardens began around the same time as the development of the palace itself and took approximately four decades to complete. They're hard to cover all at once, particularly in wintertime with the icy air nuzzling down your neck...
+
+![A day trip to Versailles (2013) — photo 8](/assets/travel/a-day-trip-to-versailles-08.jpg)
+
+![A day trip to Versailles (2013) — photo 9](/assets/travel/a-day-trip-to-versailles-09.jpg)
+
+There are buildings that are definitely worth exploring as well — and best of all, they have fewer crowds to navigate through. There's the Grand Trianon with its pink marble colonnade, state apartments, and private chambers. The Petit Trianon is the Grand Trianon's smaller counterpart, but no less charming with its elegant rooms.
+
+![A day trip to Versailles (2013) — photo 10](/assets/travel/a-day-trip-to-versailles-10.jpg)
+
+![A day trip to Versailles (2013) — photo 11](/assets/travel/a-day-trip-to-versailles-11.jpg)
+
+Lastly, tucked away in a corner of the giant royal estate is the Hameau de la Reine or Queen's Hamlet. This was Marie Antoinette's private leisure retreat. It resembles an idyllic fantasy version of a French peasant farm and enabled her to live out a rustic peasant lifestyle, milking cows and what not.
+
+As charming the hamlet is, it's important to remember what it represented to the angry and impoverished French peasantry: Further proof that the royal family was decadent, contemptuous, and out-of-touch with the common people.
+
+![A day trip to Versailles (2013) — photo 12](/assets/travel/a-day-trip-to-versailles-12.jpg)
+
+### The king is dead. Long live the king.
+
+It all fell apart in the end for the monarchy. In October of 1789, a crowd of thousands of Parisians, enraged with chronic food shortages, managed to besiege the palace. They ultimately forced the royal family out of Versailles and back to Paris with them. I'm sure you know what occurred next. The French Revolution consumed the nation. The guillotine reigned supreme. And King Louis XVI and Marie Antoinette lost their heads.
+
+Once I weigh the palace's beautiful sights against the force of history, I become ambivalent about what to make of Versailles' overflowing sumptuousness. What should we feel when we gawk down its aureate halls? The extravagance that draws countless visitors to the palace each year is the same extravagance that enraged a nation and condemned its occupants to death.
+
+In mulling over these thoughts, I'm reminded of a poem by the American poet Marianne Moore:
+
+> *No Swan so Fine*
+>
+> *"No water so still as the*
+> *dead fountains of Versailles." No swan,*
+> *with swart blind looks askance*
+> *and ambidextrous legs, so fine*
+> *as the chintz china one with fawn-*
+> *brown eyes and tooth gold*
+> *collar on to show whose bird it was.*
+>
+> *Lodged in the Louis Fifteenth*
+> *candelabrum-tree of cockscomb-*
+> *tinted buttons, dahlias,*
+> *sea-urchins and everlastings,*
+> *it perches on the branching foam*
+> *of polished sculptured*
+> *flowers—at ease and tall. The king is dead.*
+
+*The king is dead. The foundations are dead.*
+
+Everything in the Palace of Versailles is beautiful and exquisitely ornate, yes, but it is also ossified. Suspended and lifeless. Locked in a fanciful cage of impotence.
+
+If this idea bothers you, then I recommend that on your visit to Versailles, you also make a brief trip to the Royal Tennis Court, only a few blocks away from the palace, to see a different side of this time period.
+
+It was here, in the middle of 1789, that the non-privileged members of the National Assembly committed an act of defiance against the monarch. Fearing the king was forcing them to dissolve, they gathered inside a tennis court and took an oath to remain unified until France had a written constitution. This Tennis Court Oath was one of the first great sparks of opposition that ultimately culminated in the French Revolution itself.
+
+![A statue of Jean Sylvain Bailly in the Royal Tennis Court, an early leader of the French Revolution](/assets/travel/a-day-trip-to-versailles-13.jpg)
+
+*A statue of Jean Sylvain Bailly in the Royal Tennis Court, an early leader of the French Revolution*
+
+It is true that the French Revolution was an upheaval of unprecedented proportions. The revolution led to wild radicalism and the infamous Reign of Terror. It opened the gates to all manner of political chaos and instability in France. Simply put, history can be a fickle and merciless journey.
+
+But the revolution also seeded noble ideas: Ideas of liberty and democracy, ideas of secularism and civil rights, ideas of emancipation and equality. Versailles' fall from power ultimately meant that something truly epic, truly transformative could burst forth and change the rest of the world forever.
+
+At the very least, it now means that simple, ignoble commoners like you and I can stroll around the palace unhindered. Everyone can now peer at all its wonders that were once only meant for a single man, the king.
 
 ## Berlin, 2013
 
