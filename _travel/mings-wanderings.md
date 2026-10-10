@@ -3,7 +3,7 @@ title: "Ming's Wanderings"
 date: 2023-09-30
 ---
 
-*The complete archive of my old travel blog, [Ming's Wanderings](https://mingjiwanderings.weebly.com/), written between 2020 and 2023. The posts are ordered by when the travel happened, most recent first; the original posting date is noted under each.*
+*Text from my old travel blog, [Ming's Wanderings](https://mingjiwanderings.weebly.com/){:target="_blank" rel="noopener"}, written between 2020 and 2023. Posts are ordered chronologically, most recent first. Original posting date is noted under each.*
 
 ## Glasgow (August 2023)
 
