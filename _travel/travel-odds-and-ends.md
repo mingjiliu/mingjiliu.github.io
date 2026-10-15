@@ -41,8 +41,6 @@ Napoli! Clearly, Elena Ferrante despised this place and I can't imagine Neapolit
 
 ## 25 August 2024 — Naples
 
-![Naples](/assets/travel/odds-49-naples-sri-lankan-buffet.jpg)
-
 Time for a heretical opinion. The best meal I've had in Naples was at a 5 euro Sri Lankan lunch buffet. (Napoli has a very large Sri Lankan community — similar weather, same driving standards.) Ate with my hands and everything. I can't do pasta and pizza anymore! Farewell Europe.
 
 ## 29 January 2024 — Andorra
@@ -58,8 +56,6 @@ Skiing in Andorra this weekend... just so I can say I've been to this odd little
 Sacrilegious fun at Barcelona's Museum of Forbidden Art — a collection of pieces censored, attacked, or withdrawn from exhibitions around the world.
 
 ## 18 November 2023 — Barcelona
-
-![Barcelona](/assets/travel/odds-46-studying-in-barcelona.jpg)
 
 What I thought studying economics in Europe would be like: Drinking cava, maybe wearing a beret.
 
@@ -81,7 +77,7 @@ Is the Sagrada Família one of the most beautiful buildings in the world? Will i
 
 ![Madrid](/assets/travel/odds-1-madrid.jpg)
 
-Paintings from the "Golden Triangle of Art" in Madrid. Aren't El Greco and Francisco Goya just wonderful?
+Ran around the "Golden Triangle of Art" in Madrid. Aren't El Greco and Francisco Goya just wonderful?
 
 Also, there's nothing quite like standing in a gallery room dedicated entirely to Goya's infamous, mesmerising "Black Paintings".
 
@@ -154,8 +150,6 @@ Memories of London: Eerily empty street views, circa two weeks ago. Can't imagin
 
 ## 24 March 2020 — Coming home
 
-![Coming home](/assets/travel/odds-7-coming-home.jpg)
-
 Since a few of you have been asking, here's a brief and belated update from me: I safely landed in Australia a few days ago and I'm currently in mandatory self-isolation.
 
 How rapidly things have changed for the worse. It was perhaps less than three weeks ago that I sitting on a beach in Egypt, debating where to go next, hoping that I could still eke some travel out of a planet that was shutting its doors. And I was devastated when I finally decided to pull the plug on my trip --- the last couple of months on the road have been some of the happiest of my life.
@@ -170,61 +164,21 @@ And it will. That's the truth which needs to cut through the endless cycles of u
 
 ## 21 June 2019 — Bendigo
 
-![Bendigo](/assets/travel/odds-9-bendigo.jpg)
-
 Took a trip to Bendigo recently. Saw lots of bats. I think I prefer the gold rush era architecture here to Ballarat? A visit to the Golden Dragon Museum on Chinese immigrant history in the area reminds you why you should never, ever trust white people.
 
 ## 7 April 2019 — Art Gallery of New South Wales
 
 ![Art Gallery of New South Wales](/assets/travel/odds-10-art-gallery-of-new-south-wales.jpg)
 
-Further snaps of arty art from the Art Gallery of NSW. Time for some edgy, sweeping statements: Lucian Freud is the best portraitists ever. Military paintings are fine as a sometimes indulgence. Contemporary Aboriginal art is the most interesting stuff this country produces. Fight me.
+Further snaps of arty art from the Art Gallery of NSW. Time for sweeping statements: Lucian Freud is the best portraitists ever. Military paintings are fine as a sometimes indulgence. Contemporary Aboriginal art is the most interesting stuff this country produces. Fight me.
 
 ## 4 April 2019 — Heaven and earth in Chinese art
 
 ![Heaven and earth in Chinese art](/assets/travel/odds-11-heaven-and-earth-in-chinese-art.jpg)
 
-More photos from the "Heaven and earth in Chinese art" exhibition at the Art Gallery of NSW. A small, but wonderful exhibition on loan from the National Palace Museum of Taipei.
+Photos from the "Heaven and earth in Chinese art" exhibition at the Art Gallery of NSW. A small, but wonderful exhibition on loan from the National Palace Museum of Taipei.
 
 Check it out if you are in Sydney and have the chance - it's very rare that Chinese artworks of such high quality make it down on tour to little old Australia.
-
-## 30 March 2019 — The ANZAC War Memorial, Sydney
-
-![The ANZAC War Memorial, Sydney](/assets/travel/odds-12-the-anzac-war-memorial-sydney.jpg)
-
-Swung by the ANZAC War Memorial in Hyde Park, Sydney near sundown. I liked the memorial's dignified Art Deco style... the lights solemnly reflecting off the water... the clacking of skateboarders around the memorial grounds... wait, what? Damn kids!
-
-## 19 March 2019 — Escher X nendo, continued
-
-![Escher X nendo, continued](/assets/travel/odds-13-escher-x-nendo-continued.jpg)
-
-More from the NGV special exhibit: "Escher X nendo | Between Two Worlds". nendo is a "chic" Japanese design studio while MC Escher is, well, the one and only MC Escher.
-
-I actually didn't think the two were a natural fit and the nendo stuff, with the repetitive house motif, felt a bit forced and annoying towards the end. But anyway, that's just my spicy art critique.
-
-## 18 March 2019 — Escher X nendo at the NGV
-
-![Escher X nendo at the NGV](/assets/travel/odds-14-escher-x-nendo-at-the-ngv.jpg)
-
-Some snaps from the NGV's "Escher X nendo | Between Two Worlds" special exhibit, featuring everyone's favourite mind bending Dutch graphic artist. Made me appreciate his visionary skills all over again. Please insert your own *MC Escher, that's my favourite MC* jokes.
-
-## 10 March 2019 — A Chinese temple in Footscray
-
-![A Chinese temple in Footscray](/assets/travel/odds-15-a-chinese-temple-in-footscray.jpg)
-
-I've always wondered - while riding the train out west to Footscray, Melbourne - why there was a random Chinese temple by the Maribyrnong River. Turns out it's a temple to Mazu, a sea goddess popular throughout Southeast Asia and various coastal Chinese communities. She's supposed to roam the open seas, protecting sailors from the perils of the ocean. A very handy deity to have around.
-
-## 9 March 2019 — The Waikato River
-
-![The Waikato River](/assets/travel/odds-16-the-waikato-river.jpg)
-
-The Waikato River (which means "Flowing Water" in Maori) in North Island, New Zealand. It is the longest river in the country, snaking indolently from Lake Taupo, through Hamilton, and finally into the Tasman Sea. The Waikato region is a food bowl for NZ and this was the case well before European settlement - with the river being historically used by local Maori tribes to transport produce far and wide.
-
-## 2 March 2019 — The State Library of Victoria
-
-![The State Library of Victoria](/assets/travel/odds-17-the-state-library-of-victoria.jpg)
-
-On a blisteringly sunny day, the State Library of Victoria is a classy place to sit and cool down. A true Melbourne icon. Back when it was first opened in 1856 during the Gold Rush, the rule was that all "parties using the library should come with clean hands" and you could be booted out otherwise (according to a newspaper article at the time). You don't want grubby fingers mucking all those fancy books, you see.
 
 ## 15 January 2019 — Hualien City
 
