@@ -222,15 +222,7 @@ Stunning artwork from the 2018 Telstra National Aboriginal & Torres Strait Islan
 
 ## 24 July 2018 — Nadi, Fiji
 
-![Nadi, Fiji](/assets/odds-27-nadi-fiji.jpg)
-
 Best meal I had in Fiji was, funnily enough, on my final day in the rather prosaic town of Nadi. Grilled fish with coconut cream sauce, cassava, and rourou balls (like spinach balls, but made from taro leaves). They don't really do portion control either.
-
-## 15 February 2018 — The National Museum of Korea
-
-![The National Museum of Korea](/assets/odds-34-the-national-museum-of-korea.jpg)
-
-Tucked away in the National Museum of Korea is a little corner showcasing Korean art of dogs throughout history. This one is a 19th century scroll from the late Joseon Period titled "Fierce Dog". Who's a fierce boy? This dog is! Oh yes, he is!
 
 ## 14 February 2018 — Ten Thousand Buddhas Monastery
 
