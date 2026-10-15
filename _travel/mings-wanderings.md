@@ -11,7 +11,7 @@ date: 2023-09-30
 
 What the heck am I doing in Glasgow?
 
-![Glasgow (August 2023) — photo 1](/assets/travel/glasgow-01.jpg)
+![Glasgow (August 2023) — photo 1](/assets/travelbig/glasgow-01.jpg)
 
 ## Pokhara (April, 2023)
 
@@ -21,7 +21,7 @@ Just some pictures I took while I was resting up for a few days in the lakeside 
 
 "I didn't expect it to be so touristy... and strange," admitted a person I was travelling with at the time. "It reminds me of Wanaka", she said, having lived there in New Zealand for a while. I had to calmly agree.
 
-![Pokhara (April, 2023) — photo 1](/assets/travel/pokhara-01.jpg)
+![Pokhara (April, 2023) — photo 1](/assets/travelbig/pokhara-01.jpg)
 
 ## Yucatán Peninsula (November 2022)
 
@@ -49,7 +49,7 @@ You end your days in the Yucatán Peninsula on the island of Cozumel. You drink 
 
 But you don't realise that you are utterly mistaken. You don't realise that when you return to Australia your life is going to change forever. That you're going to break something both within and without. That things are never going to be the same again.
 
-![Yucatán Peninsula (November 2022) — photo 1](/assets/travel/yucatan-peninsula-01.jpg)
+![Yucatán Peninsula (November 2022) — photo 1](/assets/travelbig/yucatan-peninsula-01.jpg)
 
 ## Guanajuato (October 2022)
 
@@ -75,7 +75,7 @@ There was one thing I didn't like about Guanajuato, mind you. Bloody church bell
 
 But O! Guanajuato, I do jest, how can I dislike you? It's the photographer's, the roamer's, el explorador's dream...
 
-![Guanajuato (October 2022) — photo 1](/assets/travel/guanajuato-01.jpg)
+![Guanajuato (October 2022) — photo 1](/assets/travelbig/guanajuato-01.jpg)
 
 ## Hobart, Tasmania
 
@@ -93,13 +93,13 @@ Mount Wellington. A day hike, an aural hike of scramble and scritch and swish an
 
 to end in sublime laziness, or decadence, with cheese atop the dolerite pipes, nipaluna -- with Hobart at my feet -- -- crisp and wide and longing like the spade-end of the world.
 
-![Hobart, Tasmania — photo 1](/assets/travel/hobart-tasmania-01.jpg)
+![Hobart, Tasmania — photo 1](/assets/travelbig/hobart-tasmania-01.jpg)
 
 ## MONA -- The Museum of Old and New Art
 
 *Posted 1 August 2022*
 
-!['Snake' by Sidney Nolan](/assets/travel/mona-the-museum-of-old-and-new-art-01.jpg)
+!['Snake' by Sidney Nolan](/assets/travelbig/mona-the-museum-of-old-and-new-art-01.jpg)
 
 *'Snake' by Sidney Nolan*
 
@@ -137,7 +137,7 @@ You should like art. You should like weird art. MONA has weird art. You should l
 
 *Posted 9 December 2022*
 
-![Photos from my October and November 2022 trip to Mexico...](/assets/travel/museo-nacional-de-antropologia-01.jpg)
+![Photos from my October and November 2022 trip to Mexico...](/assets/travelbig/museo-nacional-de-antropologia-01.jpg)
 
 *Photos from my October and November 2022 trip to Mexico...*
 
@@ -189,7 +189,7 @@ Here it is... on the dusty trail to a clearly signposted hell... Like the alcoho
 
 "Quiere usted la salvación de Méjico?" suddenly asked a radio from somewhere behind the bar. "Quiere usted que Cristo sea nuestro Rey?" "No."
 
-![Puebla and Cholula (2022) — photo 1](/assets/travel/puebla-and-cholula-01.jpg)
+![Puebla and Cholula (2022) — photo 1](/assets/travelbig/puebla-and-cholula-01.jpg)
 
 ## San Miguel de Allende (2022)
 
@@ -201,7 +201,7 @@ Obligatory food note. While in the city, I enjoyed a very hearty chile relleno -
 
 Anyway, that's literally all I have on San Miguel de Allende! Nice to visit but glad I only stayed for a day.
 
-![El Mirador, giving a panoramic view of San Miguel de Allende.](/assets/travel/san-miguel-de-allende-01.jpg)
+![El Mirador, giving a panoramic view of San Miguel de Allende.](/assets/travelbig/san-miguel-de-allende-01.jpg)
 
 *El Mirador, giving a panoramic view of San Miguel de Allende.*
 
@@ -211,51 +211,51 @@ Anyway, that's literally all I have on San Miguel de Allende! Nice to visit but 
 
 And to kick off this blog, here are a few travel-related quotes from some of my favourite writers...
 
-![The journey begins. — photo 1](/assets/travel/the-journey-begins-01.jpg)
+![The journey begins. — photo 1](/assets/travelbig/the-journey-begins-01.jpg)
 
 *******
 
 Why was I travelling? To look, to walk around, to ask, to listen, to sniff, to think, to write. --- Ryszard Kapuscinsk
 
-![Kyoto, Japan](/assets/travel/the-journey-begins-02.jpg)
+![Kyoto, Japan](/assets/travelbig/the-journey-begins-02.jpg)
 
 *Kyoto, Japan*
 
 joining the throng of sparrows a little wren --- Kobayashi Issa
 
-![Aswan, Egypt](/assets/travel/the-journey-begins-03.jpg)
+![Aswan, Egypt](/assets/travelbig/the-journey-begins-03.jpg)
 
 *Aswan, Egypt*
 
-![The journey begins. — photo 4](/assets/travel/the-journey-begins-04.jpg)
+![The journey begins. — photo 4](/assets/travelbig/the-journey-begins-04.jpg)
 
 My father held tight to my hand as if he were afraid that I would slip away. In fact I had the wish to leave him, run, move, cross the street, be struck by the brilliant scales of the sea. At that tremendous moment, full of light and sound, I pretended I was alone in the newness of the city, new myself with all life ahead, exposed to the mutable fury of things but surely triumphant... --- Elena Ferrante
 
-![Mumbai, India](/assets/travel/the-journey-begins-05.jpg)
+![Mumbai, India](/assets/travelbig/the-journey-begins-05.jpg)
 
 *Mumbai, India*
 
 There open up, deep inside a city, reflected streets, streets which are doubles, make believe streets. One's imagination, bewitched and misled, create illusory maps of the apparently familiar districts, maps in which streets have their proper places and usual names but are provided with new and fictitious configurations by the inexhaustible inventiveness of the night. --- Bruno Schultz
 
-![Darwin, Australia](/assets/travel/the-journey-begins-06.jpg)
+![Darwin, Australia](/assets/travelbig/the-journey-begins-06.jpg)
 
 *Darwin, Australia*
 
 When they make the circle wide, it's time to swim out on your own and fill the element with signatures on your own frequency, echo soundings, searches, probes, allurements, elver-gleams in the dark of the whole sea. --- Seamus Heaney
 
-![Tainan City, Taiwan](/assets/travel/the-journey-begins-07.jpg)
+![Tainan City, Taiwan](/assets/travelbig/the-journey-begins-07.jpg)
 
 *Tainan City, Taiwan*
 
 I went to China, I went to Prague; I died, and was born in the spring; I found you, and loved you, again.
 
-![The journey begins. — photo 8](/assets/travel/the-journey-begins-08.jpg)
+![The journey begins. — photo 8](/assets/travelbig/the-journey-begins-08.jpg)
 
 Later the darkness fell and the solid moon like a white pond rose. But I wasn't in any hurry.
 
 Likely I visited all the shimmering, heart-stabbing questions without answers before I climbed down. --- Mary Oliver
 
-![Forward>>](/assets/travel/the-journey-begins-09.jpg)
+![Forward>>](/assets/travelbig/the-journey-begins-09.jpg)
 
 *Forward>>*
 
@@ -263,7 +263,7 @@ Likely I visited all the shimmering, heart-stabbing questions without answers be
 
 *Posted 8 November 2020*
 
-![Agra (2020) — photo 1](/assets/travel/agra-01.jpg)
+![Agra (2020) — photo 1](/assets/travelbig/agra-01.jpg)
 
 ### The Taj Mahal and so much more
 
@@ -277,15 +277,15 @@ Practically every travel guide recommends that you don't stay in Agra for too lo
 
 I never thought I'd say this... but thank you Uzbekistan. If you had not created the warrior chieftain who ravaged his way across the Indian subcontinent in the 1500s and founded the Mughal Dynasty, where else would we get cool things like Agra Fort?
 
-![Agra (2020) — photo 2](/assets/travel/agra-02.jpg)
+![Agra (2020) — photo 2](/assets/travelbig/agra-02.jpg)
 
 It is a mighty walled compound built from red sandstone over earlier forts by none other than Akbar the Great. "It's a trap!" his enemies may or may not have said when Akbar's forces ambushed them. Anyway, the fort was a pleasure to explore, both at a macro and micro level. Huge stonking walls. Intricate Indo-Persian floral designs.
 
-![Agra (2020) — photo 3](/assets/travel/agra-03.jpg)
+![Agra (2020) — photo 3](/assets/travelbig/agra-03.jpg)
 
 Significant parts of it are unfortunately inaccessible or in ruins. But you can't blame just the British for its desolation (although they did their fair share). Other powers like the Marathas also had a good crack. And the Mughals themselves did some destructive renovation. Akbar's grandson, Shah Jahan (of Taj Mahal fame), replaced many of his grandfather's opulent buildings with his own marble creations. Other than his late wife, the emperor's greatest love was marble. He probably would've paved the whole world with it if given the chance.
 
-![Agra (2020) — photo 4](/assets/travel/agra-04.jpg)
+![Agra (2020) — photo 4](/assets/travelbig/agra-04.jpg)
 
 Looking out across the bend of the Yamuna River from atop Agra Fort, you realise just how insanely huge the Taj Mahal is. It appears otherworldly in a way photos can't quite capture. A spectral wonder looming over smoggy gardens and pastoral land. And I'm not kidding about the last part --- you can see small herds of cows grazing away on the riverbank directly opposite the Taj. It's certainly a contrast.
 
@@ -295,15 +295,15 @@ P.S. All the punks who graffitied this city's historical monuments deserve to be
 
 It is genuinely spectacular. Of course I gasped! Of course I sighed! It is a world wonder that Indians have every right to be proud of. On the advice of a friend, I went at midday after the fog had lifted and found the crowds surprisingly manageable.
 
-![Agra (2020) — photo 5](/assets/travel/agra-05.jpg)
+![Agra (2020) — photo 5](/assets/travelbig/agra-05.jpg)
 
 The Taj is an architectural titan that dwarfs everything before it. Dear I say it, perhaps it's too frighteningly huge to be a tasteful display of the Padishah's eternal love for his deceased wife? "No one can compete with the magnificence of my feelings!" the Taj Mahal proclaims. I think it stumbles into the same problem as Michelangelo's David --- it turns vulnerable human experiences that should humble and unite us into Goliath-on-a-pedestal.
 
-![Agra (2020) — photo 6](/assets/travel/agra-06.jpg)
+![Agra (2020) — photo 6](/assets/travelbig/agra-06.jpg)
 
 And now quickly moving away from rank amateur art criticism to amateur tourist criticism... While in the inner mausoleum, I couldn't help but notice that some visitors were placing money in front of the tombs of Shah Jahan and Mumtaz Mahal. A bit weird due to the whole 'no idolatry' in Islam thing, as well as the fact that what tourists get to see is only their false tombs.
 
-![Agra (2020) — photo 7](/assets/travel/agra-07.jpg)
+![Agra (2020) — photo 7](/assets/travelbig/agra-07.jpg)
 
 Lastly, I'd like to share my favourite Taj-related story. As is to be expected, people project whatever they want onto the Taj Mahal. In 1994, Chanel landed in hot water with the Muslim community after one of their fashion designers created a low-cut dress with Arabic written on it. Turns out what he thought were lines from a love poem inspired by the Taj Mahal were, in fact, Koranic verses. Whoops. Apologies were made, the press dubbed the incident the "Satanic Breasts", and the dresses were subsequently burnt.
 
@@ -313,7 +313,7 @@ And if Agra Fort is the appetiser and the Taj Mahal is the main course, might I 
 
 It's a gorgeous and relatively small structure from the 1600s, housing the tomb of an important Persian official to the Mughal Empire. Walled with white marble and encrusted with semi-precious stones, it's often considered a prototype for the Taj. To quote a better writer than me: "The Mughals began like titans and finished like jewellers."
 
-![Agra (2020) — photo 8](/assets/travel/agra-08.jpg)
+![Agra (2020) — photo 8](/assets/travelbig/agra-08.jpg)
 
 Now, you may be wondering why the Mughals built so many nice tombs. Luckily, I have an answer for you: It's all to do with economics!
 
@@ -325,7 +325,7 @@ So there you go. Tax economics. Hope you're satisfied.
 
 PETHA: A kind of semi-translucent soft candy made from sugar, sugar, and even more sugar. Agra's signature dessert. I'm sorry to report that I
 
-![Agra (2020) — photo 9](/assets/travel/agra-09.jpg)
+![Agra (2020) — photo 9](/assets/travelbig/agra-09.jpg)
 
 didn't enjoy it. It's the only Indian sweet I've had so far where this has been the case. Like eating the offspring of a moist sugar cube and a lump of gelatine.
 
@@ -335,7 +335,7 @@ SHEROES HANGOUT: Visited Sheroes Hangout, a famous cafe in Agra staffed by femal
 
 DOG ATTACK: That's right. I got chased by a fucking dog when I walked down the wrong alleyway towards a historical monument. I'm told this is a quintessential Indian experience. Can't recommend it though. I swore like a lunatic and bolted into the middle of a busy road. If the dog had bitten me, that would have almost certainly ended my trip. Rabies injections over multiple days don't sound like my idea of fun. And this was on the same day I went to the Taj Mahal! This goddamn country, man. Extreme highs followed by extreme lows, hour by hour.
 
-![The back end of Jama Masjid](/assets/travel/agra-10.jpg)
+![The back end of Jama Masjid](/assets/travelbig/agra-10.jpg)
 
 *The back end of Jama Masjid*
 
@@ -343,7 +343,7 @@ DOG ATTACK: That's right. I got chased by a fucking dog when I walked down the w
 
 *Posted 2 May 2021*
 
-![The Harmandir Sahib, the 'abode of God'](/assets/travel/amritsar-punjab-01.jpg)
+![The Harmandir Sahib, the 'abode of God'](/assets/travelbig/amritsar-punjab-01.jpg)
 
 *The Harmandir Sahib, the 'abode of God'*
 
@@ -353,13 +353,13 @@ The Golden Temple, the holiest place in all of Sikhism...
 
 The main drawcard of Amritsar is undoubtedly the Golden Temple, the most spiritually significant temple (or gurdwara) in the Sikh religion. It is significant because it once housed the Adi Granth, the central religious scripture of Sikhism, when it was completed in the 17th century. The temple dazzling marble and gold foil structure surrounded by a man-made pool (called a sarovar), and completely open to all visitors day and night, irrespective of their background.
 
-![Amritsar, Punjab (2020) — photo 2](/assets/travel/amritsar-punjab-02.jpg)
+![Amritsar, Punjab (2020) — photo 2](/assets/travelbig/amritsar-punjab-02.jpg)
 
 To visit, all you need to do is wear a head covering and remove your socks and shoes. Mind you, the latter can be difficult on a North Indian winter morning. Naked feet, freezing marble, and a mandatory foot wash upon entering do not create the most pleasant of combinations! But shivering through it all, I remained a delighted pilgrim.
 
 Despite having been continuously rebuilt over the centuries due to religious persecution and violence, the Golden Temple endures as one of the most welcoming places in all of India. I certainly felt it.
 
-![Amritsar, Punjab (2020) — photo 3](/assets/travel/amritsar-punjab-03.jpg)
+![Amritsar, Punjab (2020) — photo 3](/assets/travelbig/amritsar-punjab-03.jpg)
 
 And a meal at the largest soup kitchen in the world...
 
@@ -375,7 +375,7 @@ A weird border ceremony...
 
 Amritsar is also close to the India-Pakistan border where it is possible to witness something truly bizarre: the Wagah-Attari border ceremony. If
 
-![Amritsar, Punjab (2020) — photo 4](/assets/travel/amritsar-punjab-04.jpg)
+![Amritsar, Punjab (2020) — photo 4](/assets/travelbig/amritsar-punjab-04.jpg)
 
 there was one good thing that came out of the 1947 Partition of India (hint: there wasn't) then it's this.
 
@@ -383,7 +383,7 @@ What should be a straightforward daily flag-lowering ceremony conducted by the b
 
 Wacky. Colourful. Militaristic. Campy. While the Pakistan side had a more mellowed out audience, the Indian side had a raucous and crowded stadium, blasted Bollywood music, and a hype master who helped everyone cry "Hindustan Zindabad!" ("Long live India!") in unison.
 
-![Amritsar, Punjab (2020) — photo 5](/assets/travel/amritsar-punjab-05.jpg)
+![Amritsar, Punjab (2020) — photo 5](/assets/travelbig/amritsar-punjab-05.jpg)
 
 The fact of the matter is that you will not learn anything about the often tense and deadly relationship between these two countries from watching this ceremony. I'm not sure you will learn anything at all. Just sit back and accept that humanity is capable of some very puzzlingly things.
 
@@ -393,13 +393,13 @@ The most shocking thing about it is that the city centre around the Golden Templ
 
 The other photos are of the very lovely Durgiana Temple, a Hindu temple dedicated to the warrior form of the goddess Parvati, which was deliberately built in the style of the Sikh Golden Temple. Some nice inter-faith architectural homagery going on there.
 
-![Amritsar, Punjab (2020) — photo 6](/assets/travel/amritsar-punjab-06.jpg)
+![Amritsar, Punjab (2020) — photo 6](/assets/travelbig/amritsar-punjab-06.jpg)
 
 Now for some less pleasant remarks...
 
 Amritsar is also a town bedevilled by tragedy. It was (and very much remains) at the frontlines of the disastrous 1947 partition of India. It's also the site of the 1919 Jallianwala Bagh massacre, where troops under the command of a British officer fired on unarmed protestors, killing hundreds. But while both these incidents get considerable attention in Amritsar (with memorials and museums and whatnot), there is one event that has received little publicly visible acknowledgement here and, due to its political sensitivity, potentially never will. I saw some poorly translated and deliberately obfuscating references to it on some signs in the Golden Temple and that was about it.
 
-![Amritsar, Punjab (2020) — photo 7](/assets/travel/amritsar-punjab-07.jpg)
+![Amritsar, Punjab (2020) — photo 7](/assets/travelbig/amritsar-punjab-07.jpg)
 
 I am referring, of course, to Operation Blue Star. This was a highly controversial 1984 military operation launched by Prime Minister Indira Gandhi to root out Sikh militants holed up in the Golden Temple. The temple was heavily damaged, scores of civilians were killed, and it led to Indira Gandhi's assassination at the hands of her own Sikh bodyguards. Anti-Sikh riots ensued throughout the country afterwards. All in all, it was a hellish moment in recent history that took place at one of the most beautiful and extraordinary holy spaces in India.
 
@@ -409,13 +409,13 @@ Next post: something much happier.
 
 *Posted 22 October 2020*
 
-![Ankara (2020) — photo 1](/assets/travel/ankara-01.jpg)
+![Ankara (2020) — photo 1](/assets/travelbig/ankara-01.jpg)
 
 Anıtkabir. The mausoleum of Mustafa Kemal Atatürk, the founder of the modern Turkish Republic, at the capital city of Ankara. To say that he is revered by some is an understatement. He is (as his honorary surname spells out) the "Father of Turks", the revolutionary moderniser, and the nation's defender during the Gallipoli campaign. And having lived under the secular state cult of the Anzac narrative in both New Zealand and Australia, I begrudgingly felt I had to visit his final resting place.
 
 I didn't plan on being in Ankara, of course. But the growing pandemic panic made it a convenient place to bail out of the country (and just in time, too --- I managed to catch a flight to London the day before Turkey suspended all air routes with the UK).
 
-![Ankara (2020) — photo 2](/assets/travel/ankara-02.jpg)
+![Ankara (2020) — photo 2](/assets/travelbig/ankara-02.jpg)
 
 So what did I think of Ankara? Hmm. I'd call my brief time there troubled, icy, and educational. Troubled because I spent much of it holed up in my hostel, chain drinking instant coffee and bumming smokes, letting the hourly news updates fuel my anxiety. Icy because I was acutely aware that the panic that had seized continental Europe had finally washed over Turkey (I even had trouble checking into my room due to virus fears). And educational because, in between the conspiratorial mutterings about COVID-19 and doubts around the Turkish government's official infection numbers, I was privy to lengthy discussions among the hostel guests about the legacy of Kemalism, the current political and economic health of Turkey, and the impact and infamy of the Erdogan regime.
 
@@ -425,29 +425,29 @@ Being able to listen to all this seemed like a... strange privilege? It's not of
 
 *Posted 1 January 2021*
 
-![Aswan (2020) — photo 1](/assets/travel/aswan-01.jpg)
+![Aswan (2020) — photo 1](/assets/travelbig/aswan-01.jpg)
 
 ### Life on the Nile...
 
 When I was in Egypt at the start of 2020, I was exclusively travelling by train up and down the course of the Nile. The view out the window is, at times, utterly striking. From one side, you can see rich agricultural lands, palm-lined islands, lazy feluccas on the water, and dense urban development. From the other, all you see is uninhabitable desolation. Egypt is a country beset on all sides by wastelands, desperately hugging a single, riverine lifeline. Banks of prosperity sharply demarcated by arid nothingness, with no gradients between the two. This is a country that stuns you with the notion of geography as destiny.
 
-![Aswan (2020) — photo 2](/assets/travel/aswan-02.jpg)
+![Aswan (2020) — photo 2](/assets/travelbig/aswan-02.jpg)
 
 The train took me to Aswan --- a small, laid-back city in the deep south of Egypt. Some of my best days in Egypt was spent here. I joined a group of couch surfers and their hosts in Aswan to go swimming in the Nile, followed up by a gorgeous sunset view from atop a desert escarpment.
 
 A dip in the Nile? I ain't afraid of no crocodiles! The water was freezing, however. Downing a can of Stella, the de facto national beer of Egypt, helped with my recovery. And it's a surprisingly passable beer for a Muslim majority country. Beer was, after all, a lower-class staple in ancient, wheat-intensive Egypt. Let us give thanks to grain agriculture for (a) enabling the rise of oppressive, megaproject funding, centralised tax systems in early societies, and (b) creating booze for the plebian masses.
 
-![Aswan (2020) — photo 3](/assets/travel/aswan-03.jpg)
+![Aswan (2020) — photo 3](/assets/travelbig/aswan-03.jpg)
 
 Welcome to Philae! Ancient ruins, many over 3,300 years old, on a picturesque island in the middle of a reservoir. Accessible only by boat, the island includes a temple to Isis, the goddess of fertility, and was also worked on by Ptolemaic and Roman builders, as well as later Christian ones (who stamped very noticeable Coptic crosses into the pagan stonework). Further, the whole complex was lifted up and relocated to its current location in the 1960s to save it from flooding as a result of a new dam project. Interesting... right?
 
-![Aswan (2020) — photo 4](/assets/travel/aswan-04.jpg)
+![Aswan (2020) — photo 4](/assets/travelbig/aswan-04.jpg)
 
 Okay, time for a story! If much of Egypt's past glory can be credited to the Nile, then a huge chunk of its 20th-century history can be credited to the construction of the Aswan High Dam.
 
 Since the dawn of Egyptian civilisation, the yearly flooding of the Nile bought bounteous harvests but also harkened famine and doom when it failed. The solution? A big-ass dam to control the water flow. This was the dream of the anti-imperialist, pan-Arabist maverick President Gamal Abdel Nasser in the 1950s. But the problem was that it was expensive. Really expensive. So Nasser tried to play both the Americans and the Soviets for money and then nationalised the all-important Suez Canal to generate the necessary funds. In response, Israel, France, and the UK invaded Egypt. Boom. The Suez Crisis ensued. The invasion quickly backfired and these countries were forced to withdraw (effectively ringing the death knell for British imperial ambitions in the new world order).
 
-![Aswan (2020) — photo 5](/assets/travel/aswan-05.jpg)
+![Aswan (2020) — photo 5](/assets/travelbig/aswan-05.jpg)
 
 As for the dam's post-construction impact? An agricultural bonanza. National wheat yields tripled in the following decades. Egypt became insulated from devastating droughts. And, at one point, it provided the country with half its electricity. But the dam also messed with the local ecosystem, displaced tens of thousands of local Nubians, and, of course, threatened numerous precious archaeological sites.
 
@@ -455,7 +455,7 @@ A messy war. Huge numbers of displaced people. Relocated temples. Accelerated ec
 
 Pictured below: the art of jabana at a Nubian guesthouse on a cool evening in Aswan. Coffee beans roasted on hot coals, ground down with spices using a mortar and pestle, then boiled in a long-necked clay pot. Palm fibres are used to filter the brew and it's served very hot, very black, very sweet. Just the way I like it.
 
-![Aswan (2020) — photo 6](/assets/travel/aswan-06.jpg)
+![Aswan (2020) — photo 6](/assets/travelbig/aswan-06.jpg)
 
 The Nubians. What am I remotely qualified to say about them? They are a group indigenous to Sudan and southern Egypt. Once there were even Nubian pharaohs but now they're a people without their own nation --- many of whom were forcibly displaced from their lands by the Aswan High Dam. It's no wonder Rastafari aesthetics are so common in southern Egypt. Due to their uncertain place in the world, many Nubians have embraced the Rasta ethos of peace, harmony, and minority rights.
 
@@ -465,31 +465,31 @@ Glorious praise to Ramses the Great, chosen of Ra, challenger of Hittites and pu
 
 The main attraction of travelling down to Aswan is to make it to Abu Simbel in the far southern reaches of Egypt --- any further south and you'd be in Sudan! Getting to it was tough. I had to wake up before 4 am, take a three-hour-plus minibus ride there from Aswan, and then race to the ticket booth so I could see the place before it was completely
 
-![Aswan (2020) — photo 7](/assets/travel/aswan-07.jpg)
+![Aswan (2020) — photo 7](/assets/travelbig/aswan-07.jpg)
 
 swamped by other tourists. But in hindsight (and after a recovery nap or two) I believe it was worth the effort.
 
 When you think of towering pharaonic carvings and rock temples in the desert, when you think of Ozymandias with his "frown, and wrinkled lip, and sneer of cold command", you are thinking of the Great Temple of Ramses II at Abu Simbel. Four colossal statues of the king of kings flank the entrance to this 13th-century BC edifice. You see reliefs of captured foreign slaves on both sides of the entryway. There are potent, violent scenes of military conquest on the temple's interior walls. Surely no other surviving structure of the ancient world can still project such indomitable, ferocious power.
 
-![Aswan (2020) — photo 8](/assets/travel/aswan-08.jpg)
+![Aswan (2020) — photo 8](/assets/travelbig/aswan-08.jpg)
 
 Next to the Great Temple is a smaller temple dedicated to the sky goddess Hathor and Ramses's royal wife Nefertari. And both these buildings lie on the banks of Lake Nasser, one of the largest man-made lakes in the world, which was created by the Aswan High Dam. This leads us to an impressive fact about Abu Simbel: like the Philae Temple Complex, the entire site had to be disassembled and rebuilt on higher ground in the 1960s to save it from rising waters as a result of the dam's construction. This project required an international team of engineers and scientist and remains perhaps the most impressive archaeological rescue mission of all time.
 
 Bloody hell, there should be a traveller's game in Egypt where you drink a shot every time you hear about the Aswan High Dam... "And on the pedestal, these words appear: My name is Ozymandias, King of Kings; Look on my Works, ye Mighty, and despair! Nothing beside remains. Round the decay Of that colossal Wreck, boundless and bare The lone and level sands stretch far away."
 
-![Aswan (2020) — photo 9](/assets/travel/aswan-09.jpg)
+![Aswan (2020) — photo 9](/assets/travelbig/aswan-09.jpg)
 
 ## Cairo (2020)
 
 *Posted 1 May 2022*
 
-![Welcome to Cairo, Egypt's eclectic capital!](/assets/travel/cairo-01.jpg)
+![Welcome to Cairo, Egypt's eclectic capital!](/assets/travelbig/cairo-01.jpg)
 
 *Welcome to Cairo, Egypt's eclectic capital!*
 
 In early 2020, after roaming around the sub-continent for almost two months, I made an exodus out of India and a flight into Egypt. This was my first time in Africa and the Middle East - and hopefully not my last! Anyway, here were some of the things I checked out...
 
-![Tahrir Square](/assets/travel/cairo-02.jpg)
+![Tahrir Square](/assets/travelbig/cairo-02.jpg)
 
 *Tahrir Square*
 
@@ -497,7 +497,7 @@ Hurrah. My first morning in Cairo and I was standing in Tahrir Square, heart of 
 
 Egypt's current political quagmire is something I don't know enough about. But like the good political science major that I am, just give me some cheap local coffee, a shisha pipe, and a stack of old Economist magazines and I'll claim to have figured it out in no time!
 
-![Khan el-Khalili](/assets/travel/cairo-03.jpg)
+![Khan el-Khalili](/assets/travelbig/cairo-03.jpg)
 
 *Khan el-Khalili*
 
@@ -505,7 +505,7 @@ A photo of the most Instagrammable spot in Khan el-Khalili, a famous open-air ba
 
 I also whittled away the hours with fellow world travellers at El Fishawy, quite possibly the most famous coffeehouse in all of Egypt. Crammed into a narrow thoroughfare in the bazaar, this place is quite the frenzied experience. Street vendors hassle you every minute. Clumsy shoppers threaten to knock over your hookah. The cafe staff seem to be juggling too many tasks at once. And yet, despite the pandemonium, there's music and laughter and a theatrical, smoke-drunk energy to it all that makes this place unforgettable.
 
-![Coptic Cairo](/assets/travel/cairo-04.jpg)
+![Coptic Cairo](/assets/travelbig/cairo-04.jpg)
 
 *Coptic Cairo*
 
@@ -515,7 +515,7 @@ To be honest, I don't know much about Coptic Christianity or any form of Christi
 
 Photos include the famous Hanging Church, the Saints Sergius and Bacchus Church, and the beautiful Church of St. George (which is actually a Greek Orthodox church).
 
-![The Citadel of Cairo](/assets/travel/cairo-05.jpg)
+![The Citadel of Cairo](/assets/travelbig/cairo-05.jpg)
 
 *The Citadel of Cairo*
 
@@ -523,7 +523,7 @@ This is a medieval fortification built by none other than the legendary Crusader
 
 This magnificent mosque, commissioned in the mid-1800s by Muhammad Ali Pasha, the founder of modern Egypt, happily rivals many grand European churches. I mean, just look at that incredible ceiling! Undoubtedly a masjid for the ages.
 
-![The Mosque of Ibn Tulun](/assets/travel/cairo-06.jpg)
+![The Mosque of Ibn Tulun](/assets/travelbig/cairo-06.jpg)
 
 *The Mosque of Ibn Tulun*
 
@@ -531,7 +531,7 @@ Commissioned by the founder of the Tulunid dynasty, this is a handsomely austere
 
 You can also climb its minaret and view Cairo's cityscape in its dense, concrete glory. A meadow of satellite dishes punctured by the occasional stiletto-sharp muezzin tower.
 
-![And even more of Islamic Cairo](/assets/travel/cairo-07.jpg)
+![And even more of Islamic Cairo](/assets/travelbig/cairo-07.jpg)
 
 *And even more of Islamic Cairo*
 
@@ -539,7 +539,7 @@ Fragmented, sideways snaps of the Mosque-Madrassa of Sultan Hassan and the Al-Ri
 
 It's almost impossible to suggest their volumes and textures through photographs: the gloominess of the lofty ceilings, the rich gravity of the wall patterns, the siesta-like drowsiness of an expansive courtyard... Photos are doomed to failure in places like this.
 
-![Egyptian food](/assets/travel/cairo-08.jpg)
+![Egyptian food](/assets/travelbig/cairo-08.jpg)
 
 *Egyptian food*
 
@@ -547,7 +547,7 @@ Traditional Egyptian food? Yalla! Let's talk about it:
 
 Mulukhiyah and stuffed pigeon. Mulukhiyyah is a salty, slimy, and deliciously fragrant soup made from a vegetable called jute mallow. I can highly recommend it. As for the stuffed pigeon, yikes... It came with two different kinds of rice and the pigeon itself was stuffed with, well, even more rice. That's too much goddamn rice, even for me! Ful or ful medames. An Egyptian staple comprising stewed fava beans, some salad, and a whole lot of bread. This is Nile River peasant fuel at its finest and, except for the egg topping I specifically requested, entirely vegan. I've been a bit surprised to discover Egyptian cuisine is not as meat-heavy as I originally assumed. Koshari. The national dish. Macaroni mixed with rice, lentils, tomato paste, chickpeas, and fried onions. And that's it. Again, it's effectively carbohydrate-intensive, vegan peasant fuel.
 
-![And to conclude, assorted views of Cairo and its urban surrounds](/assets/travel/cairo-09.jpg)
+![And to conclude, assorted views of Cairo and its urban surrounds](/assets/travelbig/cairo-09.jpg)
 
 *And to conclude, assorted views of Cairo and its urban surrounds*
 
@@ -557,7 +557,7 @@ From its languid riverfront to its maddening markets, from its lawless traffic t
 
 So farewell Cairo. Au revoir and bshoof-ak ba'deen! Time for me to finally head off to quieter, saner domains.
 
-![On the overnight train to Aswan in the south of Egypt...](/assets/travel/cairo-10.jpg)
+![On the overnight train to Aswan in the south of Egypt...](/assets/travelbig/cairo-10.jpg)
 
 *On the overnight train to Aswan in the south of Egypt...*
 
@@ -565,7 +565,7 @@ So farewell Cairo. Au revoir and bshoof-ak ba'deen! Time for me to finally head 
 
 *Posted 29 October 2020*
 
-![Hot air balloons of Cappadocia.](/assets/travel/cappadocia-01.jpg)
+![Hot air balloons of Cappadocia.](/assets/travelbig/cappadocia-01.jpg)
 
 *Hot air balloons of Cappadocia.*
 
@@ -575,21 +575,21 @@ Stark and uncanny Cappadocia. An alien realm of fairy chimneys, moon-like earth,
 
 It is a land of exceptional geological wonder. Tent rocks. Fairy chimneys. Hoodoos. Call them what you will, the rock formations of Cappadocia are remarkable to behold. Since ancient times, people have carved churches, storehouses, caves, and anything else you can imagine into these rocks.
 
-![Cappadocia (2020) — photo 2](/assets/travel/cappadocia-02.jpg)
+![Cappadocia (2020) — photo 2](/assets/travelbig/cappadocia-02.jpg)
 
 Cappadocia was a religious haven in the early days of Christianity when the young, upstart faith was being persecuted by the Roman Empire. Practitioners fled into this area and established monastic communities. Here, in this seemingly barren place, these people were able to survive.
 
-![Cappadocia (2020) — photo 3](/assets/travel/cappadocia-03.jpg)
+![Cappadocia (2020) — photo 3](/assets/travelbig/cappadocia-03.jpg)
 
 When I wasn't touring the region, I passed my time at a cosy European-style pension, or what I thought could reasonably pass as one. I drank cheap red wine. I smoked cheap cigarettes. There was a dusky French helper. There was a pesky cat. I talked late into the night with the other guests and we were served a hearty breakfast in the morning with terrible coffee. It was everything I could've wanted from the experience.
 
-![Cappadocia (2020) — photo 4](/assets/travel/cappadocia-04.jpg)
+![Cappadocia (2020) — photo 4](/assets/travelbig/cappadocia-04.jpg)
 
 A mad thought came to me while I was staying at my pension, as the 2020 pandemic craziness slowly (or rather, rapidly) descended on the world. I recalled the premise of Boccaccio's 'The Decameron': a group of men and women are sheltering in a villa on the outskirts of Florence to escape the Black Death and, to pass the time, they regale each other with tragic, clever, funny, and bawdry tales. Painfully apropos, if you ask me.
 
 Maybe I should have done that. Stayed in that pension, waiting out pestilence by telling stories. Maybe. But it's too late to know now. In another life, perhaps.
 
-![Cappadocia (2020) — photo 5](/assets/travel/cappadocia-05.jpg)
+![Cappadocia (2020) — photo 5](/assets/travelbig/cappadocia-05.jpg)
 
 Depicted: yours truly, totally knowing how to play bağlama, a traditional Turkish stringed instrument.
 
@@ -597,7 +597,7 @@ Depicted: yours truly, totally knowing how to play bağlama, a traditional Turki
 
 *Posted 10 October 2020*
 
-![Dahab, Egypt (2020) — photo 1](/assets/travel/dahab-egypt-01.jpg)
+![Dahab, Egypt (2020) — photo 1](/assets/travelbig/dahab-egypt-01.jpg)
 
 Dahab! A famous backpackers haunt on the southeast coastline of the Sinai Peninsula!
 
@@ -605,17 +605,17 @@ After a long, bumpy, and exhausting night bus out of Cairo (which included an un
 
 My goal here in Dahab was simple. It was to scuba dive in the Red Sea, eat falafels, potter around and read books and, most importantly, mellow out for a couple of days. I think I succeeded.
 
-![Dahab, Egypt (2020) — photo 2](/assets/travel/dahab-egypt-02.jpg)
+![Dahab, Egypt (2020) — photo 2](/assets/travelbig/dahab-egypt-02.jpg)
 
 And what is Dahab, exactly? Well, there's a lot to comment on. There are the Russian holidaymakers and British pensioners. The quirky Egyptian restaurant owners and Bedouin locals. The usual-suspect-backpackers and marijuana smokers. There are dive shops and quad bike hires and desert adventure operators. It is a place to indulge and do everything at once and do nothing at all.
 
 Pictured below: me with one of my new underwater buddies. Farewell landlubbers!
 
-![Dahab, Egypt (2020) — photo 3](/assets/travel/dahab-egypt-03.jpg)
+![Dahab, Egypt (2020) — photo 3](/assets/travelbig/dahab-egypt-03.jpg)
 
 The coral reefs around this part of the Red Sea are superb. During my stay, I obtained my PADI Advanced Open Water certificate, giving me the ability to dive to 30 metres. With my newfound ability, I had the opportunity to explore the Blue Hole near Dahab, a submarine sinkhole with an internationally notorious reputation -- it allegedly has the highest diver fatality rate of any dive site in the world. Thankfully, my dives there were beautiful and undramatic.
 
-![Dahab, Egypt (2020) — photo 4](/assets/travel/dahab-egypt-04.jpg)
+![Dahab, Egypt (2020) — photo 4](/assets/travelbig/dahab-egypt-04.jpg)
 
 But this marvellous Egyptian story could not last forever.
 
@@ -627,7 +627,7 @@ The good news is, I was able to fly out of Egypt and into Istanbul -- a little m
 
 (P.S. As it later turned out, this ferry debacle was due to classic Middle Eastern miscommunication within the company --- it has since allowed
 
-![Dahab, Egypt (2020) — photo 5](/assets/travel/dahab-egypt-05.jpg)
+![Dahab, Egypt (2020) — photo 5](/assets/travelbig/dahab-egypt-05.jpg)
 
 some nationalities to enter Jordan. Alas, the issue was resolved well after I had departed.)
 
@@ -635,7 +635,7 @@ some nationalities to enter Jordan. Alas, the issue was resolved well after I ha
 
 *Posted 24 February 2021*
 
-![Yep. It was probably aliens.](/assets/travel/giza-and-alexandria-01.jpg)
+![Yep. It was probably aliens.](/assets/travelbig/giza-and-alexandria-01.jpg)
 
 *Yep. It was probably aliens.*
 
@@ -643,11 +643,11 @@ some nationalities to enter Jordan. Alas, the issue was resolved well after I ha
 
 Monumental. Cryptic. Iconic. Otherworldly. Mind-boggling. What else can a mere mortal possibly say about them? As the last surviving wonder of the ancient world, I had to make an effort to go see them. Done and dusted. I can finally move on with the rest of my life.
 
-![Giza and Alexandria (2020) — photo 2](/assets/travel/giza-and-alexandria-02.jpg)
+![Giza and Alexandria (2020) — photo 2](/assets/travelbig/giza-and-alexandria-02.jpg)
 
 Fun fact #1: the mammoths were still alive when the Great Pyramid of Giza was built around 2580-2560 BC. Fun fact #2: the Pyramids of Giza were more ancient to the ancient Romans than the ancient Romans are to us. Fun fact #3: these piles of stone attract some, how shall I put it, very interesting perspectives. I've had all kinds of chats at my hostels about 'world chakras', 'energy healing', and 'Atlanteans'. If you don't bump into these modern pilgrims while exploring Egypt, you're missing out.
 
-![Giza and Alexandria (2020) — photo 3](/assets/travel/giza-and-alexandria-03.jpg)
+![Giza and Alexandria (2020) — photo 3](/assets/travelbig/giza-and-alexandria-03.jpg)
 
 Regrettably, my visit didn't begin as intended. In my effort to (a) get there before the calvary of tourist buses, and (b) save money, I took a local minibus, promptly got lost, and was scammed into taking an overpriced horse buggy ride to the ticket office. I didn't lose a painful amount of money, all things considered, but I was so angry with myself I was almost ready to punch out the next Egyptian tout that approached me! That's the reality of travel for me --- sometimes I'm a savvy globetrotter, sometimes I'm too anxious to make good decisions in the heat of the moment. My stock rises and my stock falls. I constantly need to remind myself how to move on and take the rough with the smooth...
 
@@ -655,49 +655,49 @@ Postscript: Despite being one of the most popular destinations on this planet, t
 
 ### Alexandria --- the largest city on the Mediterranean
 
-![Giza and Alexandria (2020) — photo 4](/assets/travel/giza-and-alexandria-04.jpg)
+![Giza and Alexandria (2020) — photo 4](/assets/travelbig/giza-and-alexandria-04.jpg)
 
 Brief remarks on a day trip out of Cairo to Alexandria, a chill (if somewhat grungy) coastal metropolis...
 
 The people seem very friendly and have a penchant for taking selfies with the lone foreigner walking around. Checked out the waterfront promenade and gorged on the cheapest Mediterranean seafood I will likely ever find in my life. Also browsed the Bibliotheca Alexandrina, an ultra-modern Starfleet Academy-esque library built near the site of the
 
-![Giza and Alexandria (2020) — photo 5](/assets/travel/giza-and-alexandria-05.jpg)
+![Giza and Alexandria (2020) — photo 5](/assets/travelbig/giza-and-alexandria-05.jpg)
 
 ancient Library of Alexandria --- may it rest in peace. Julius Caesar, you arsonist pig!
 
 Some notes from the aspiring growth economists within myself: Consider the melancholic and rundown European-style building facades. Consider the battered and boxy black-and-yellow taxicabs that still roam Alexandria's roads. Take away the smartphones and what you have are street scenes that look like they're from the '80s or '70s. What does this tell us about urban technological progress, particularly in lower-middle-income economies like Egypt or elsewhere?
 
-![Giza and Alexandria (2020) — photo 6](/assets/travel/giza-and-alexandria-06.jpg)
+![Giza and Alexandria (2020) — photo 6](/assets/travelbig/giza-and-alexandria-06.jpg)
 
 ## Goa (2020)
 
 *Posted 29 August 2020*
 
-![Goa (2020) — photo 1](/assets/travel/goa-01.jpg)
+![Goa (2020) — photo 1](/assets/travelbig/goa-01.jpg)
 
 ### Doing absolutely nothing on a beach in Goa
 
 Goa! Multiple Indians have told me they think it's heaven and multiple foreign travellers have told me they think it's overrated. Experiencing a bit of Goa and musing on these disparities is a fascinating exercise. However, I wasn't in Goa for intellectual entertainment. I was there to sit at the beach, read a book, and recover from my food poisoning in Hampi. Please note: chicken vindaloo and Kingfisher do not accelerate healing. Sure, I could've done some (dangerously) cheap water sports or joined a party. But idleness was my dominant mission.
 
-![Goa (2020) — photo 2](/assets/travel/goa-02.jpg)
+![Goa (2020) — photo 2](/assets/travelbig/goa-02.jpg)
 
 It's hard to get around Goa unless you are brave enough to ride a scooter, well-budgeted enough to afford Goa's taxi cartel, or (like me) mad enough to take the rust bucket local buses everywhere. For that reason, I picked a fairly central location. Not one of the northern drug-and-party beaches, nor one of the southern yoga-and-wellness beaches, but an upmarket-ish interstice beach where everyone was Russian or a British pensioner (there were some Indian families too, which was reassuring). It was also surprisingly uncrowned for early January. I did not mind any of this. It was nice to finally touch the Arabian Sea.
 
 On the question of authenticity: Is not discovering where so-called 'real India' is suspended just part of discovering 'real India'? Plenty of Indians love Goa and many parts of it clearly cater to them. The very visible
 
-![Goa (2020) — photo 3](/assets/travel/goa-03.jpg)
+![Goa (2020) — photo 3](/assets/travelbig/goa-03.jpg)
 
 Christianity-of-the-tropics (plentiful meat and alcohol, small wooden churches, little crosses and saints on overgrown verandas, pigs in backyards, etc.) and the Portuguese-style houses screams Goa's unique legacy. Plus, the 'lumpiness' (for lack of a better word) of how India runs is still visible. Rough roads and chaotic traffic. Stray dogs on the beach. The masseuse at my sun bed having to stop and hide while a policeman strolled past. You never forget which country you're in!
 
 I'm not an idle person. I'm not a beach person. But I mildly enjoyed Goa. When the sun sets and the moon creeps into view on the beach at dusk, it's the evening star, Venus, a perfect white dot, piercing the waning glow of day that captures your attention as you nurse your beer.
 
-![Goa (2020) — photo 4](/assets/travel/goa-04.jpg)
+![Goa (2020) — photo 4](/assets/travelbig/goa-04.jpg)
 
 But after three days of lounging around on the beach in Goa doing very, very little, I decided enough was enough and forced myself to visit Old Goa, the former capital of Portuguese India.
 
 Catholic India. Colonial Portugal. The Basilica of Bom Jesus, Se Cathedral, among others. The highlight for me was seeing the colossal ruins of the Church of St. Augustine. It's not just the Hindus that have a monopoly on magnificent Indian ruins! Laterite makes for a striking building material. Forget the flowing marble church sculptures of continental Europe - much of the art within these structures was done by Goan craftsmen with Goan materials. The local influences push through and are worth pausing to admire.
 
-![Goa (2020) — photo 5](/assets/travel/goa-05.jpg)
+![Goa (2020) — photo 5](/assets/travelbig/goa-05.jpg)
 
 ## Hampi (2020)
 
@@ -705,29 +705,29 @@ Catholic India. Colonial Portugal. The Basilica of Bom Jesus, Se Cathedral, amon
 
 FROM MY DIARY ENTRIES: This ruined expanse in the south Indian state of Karnataka was once the wealthy and powerful imperial capital of Vijayanagara, the "City of Victory". At its peak in the 1500s, this Hindu city was said to be the second largest in the medieval world after Beijing. But the city was sacked by Muslim armies in 1565 and has remained abandoned ever since. Look on my Works, ye Mighty, and despair! Nothing beside remains...
 
-![Hampi (2020) — photo 1](/assets/travel/hampi-01.jpg)
+![Hampi (2020) — photo 1](/assets/travelbig/hampi-01.jpg)
 
 DAY 1: I arrived via a bumpy overnight train from Mysore. This place has a bit of a reputation in India backpacking circles - namely cool ruins, hippies, bouldering, and very stoned people trying to climb large stones.
 
 On my first afternoon here, I checked out the Tungabhadra River, the Monolith Bull, the Achyutaraya Temple, and hung out with the local lads.
 
-![Hampi (2020) — photo 2](/assets/travel/hampi-02.jpg)
+![Hampi (2020) — photo 2](/assets/travelbig/hampi-02.jpg)
 
 I ended the day with one of the most spectacular sunset landscapes I've ever witnessed. It is a vast and mesmerising land of immense granite rocks, scattered as though the gods were playing marbles in ages past. A great evening and goodnight from atop Matanga Hill.
 
-![Hampi (2020) — photo 3](/assets/travel/hampi-03.jpg)
+![Hampi (2020) — photo 3](/assets/travelbig/hampi-03.jpg)
 
 DAY 2: I spent a full day cycling and hiking to sightseeing destinations around Hampi. It's certainly hard to know which pictures to select! See below for photos of Hemakuta Hill, Laksmi Narasimha Temple, Badavilinga Temple, Underground Shiva Temple, Hazara Rama Temple, the Royal Enclosure, Malyawanta Hill, the Saasivekaalu Ganesha, among others.
 
 During my explorations, I bumped into a lot of domestic tourists who wanted my selfie and to know where I was from, especially given my appearance. Unfortunately, a complex story (Chinese heritage, New Zealand citizenship, Australian residency, etc.) doesn't cut it! I eventually caved and just lied and said I was from China whenever people asked.
 
-![Hampi (2020) — photo 4](/assets/travel/hampi-04.jpg)
+![Hampi (2020) — photo 4](/assets/travelbig/hampi-04.jpg)
 
 I finished day two by checking out the Virupaksha Temple near the local village, dedicated to a form of Shiva. It is believed to be one of the oldest functioning temple sites in India, being an active place of worship since the 7th century. Plus, the temple had some real head-banging trumpet and drum music going on as well when I visited.
 
 The temple elephant in the photo, by the way, is 'Lakshmi'. Apparently, if you hand her a ten-rupee note she'll give you a blessing with her trunk. Cutesy fun? It's worth noting the welfare for these animals isn't the best...
 
-![Hampi (2020) — photo 5](/assets/travel/hampi-05.jpg)
+![Hampi (2020) — photo 5](/assets/travelbig/hampi-05.jpg)
 
 It's also worth noting that the main Hampi backpacking strip is very Hindu, which mens there's no meat or alcohol to be found anywhere. Or you could just ask for the 'pollo', which is code for chicken and get your meat fix anyway. Ha!
 
@@ -735,11 +735,11 @@ DAY 3: Disaster! I was struck with travellers diarrhoea after (probably) eating 
 
 Thankfully, I met an Indian-Australian traveller at the guesthouse who had hired a rickshaw for the day. So I was able to hitch a lift with him. Plus, he helped me sneak into the paid sites on an Indian ticket (40 rupees as opposed to 600 for foreigners)! I probably shouldn't say that too publicly. Though, I have had many Indians tell me they're opposed to the extreme third-degree price discrimination of tourist sites.
 
-![Hampi (2020) — photo 6](/assets/travel/hampi-06.jpg)
+![Hampi (2020) — photo 6](/assets/travelbig/hampi-06.jpg)
 
 Pictured: the stunningly beautiful Vijaya Vitthala Temple, more selfies with the lads, the Lotus Mahal and Elephant Stables.
 
-![Hampi (2020) — photo 7](/assets/travel/hampi-07.jpg)
+![Hampi (2020) — photo 7](/assets/travelbig/hampi-07.jpg)
 
 Videoed: an evening religious ceremony on the banks of the Tungabhadra which ended in fireworks.
 
@@ -749,13 +749,13 @@ My newfound Indian-Australian friend and I hiked the 575 (or so) steps up Anjane
 
 I'll drop in this over-worn quote now so I don't have to repeat it in future writings: "In religion, every Indian is a millionaire."
 
-![Hampi (2020) — photo 8](/assets/travel/hampi-08.jpg)
+![Hampi (2020) — photo 8](/assets/travelbig/hampi-08.jpg)
 
 The Indian countryside is also fascinating to cycle through. Bullocks ploughing the muddy fields. Piles of chillies drying out in the sun. Women (and it seems to be only women) singing and planting rice in the paddy fields. Kids coming up to you and asking for money for "school pens".
 
 That's the way things are here. There is beauty, there is boredom, there is backbreaking labour, there is poverty, there is a continuity to life and faith on the land that has remained unbroken for countless centuries.
 
-![Hampi (2020) — photo 9](/assets/travel/hampi-09.jpg)
+![Hampi (2020) — photo 9](/assets/travelbig/hampi-09.jpg)
 
 ## Impressions of Delhi (2020)
 
@@ -763,25 +763,25 @@ That's the way things are here. There is beauty, there is boredom, there is back
 
 "Remember, Mister Premier, that Delhi is the capital of not one but two countries - two Indias. The Light and the Darkness both flow in to Delhi." - Aravind Adiga, The White Tiger
 
-![Old Delhi in the morning](/assets/travel/impressions-of-delhi-01.jpg)
+![Old Delhi in the morning](/assets/travelbig/impressions-of-delhi-01.jpg)
 
 *Old Delhi in the morning*
 
 Delhi is the whole subcontinent flowing into one place... It's the only place in India where I've had people directly speaking Hindi to me. Makes sense. I've seen a lot of people with East Asian features from northeastern states (e.g. Assam and Manipur) and neighbouring countries like Nepal living and working here.
 
-![Paharganj at day](/assets/travel/impressions-of-delhi-02.jpg)
+![Paharganj at day](/assets/travelbig/impressions-of-delhi-02.jpg)
 
 *Paharganj at day*
 
 Delhi is a lot to breathe in... Aside from Beijing, this city has some of the worst air pollution I've ever encountered. It's bloody awful. After a day of walking around the city, I was lightheaded and my snot was black
 
-![Jama Masjid](/assets/travel/impressions-of-delhi-03.jpg)
+![Jama Masjid](/assets/travelbig/impressions-of-delhi-03.jpg)
 
 *Jama Masjid*
 
 Delhi is grungy density at its finest... Old Delhi (where a colossal Mughal-era mosque, Jama Masjid, is located) is rundown and crowded to the point of perverse aesthetic perfection. Close by is Paharganj, a nightmare ghetto of cheap hotels and semi-broken neon signs. I stayed there and I loved it and hated it in equal measure.
 
-![Impressions of Delhi (2020) — photo 4](/assets/travel/impressions-of-delhi-04.jpg)
+![Impressions of Delhi (2020) — photo 4](/assets/travelbig/impressions-of-delhi-04.jpg)
 
 Delhi is the ghost in the memorial...
 
@@ -791,45 +791,45 @@ India Gate: a triumphal-arch-cum-tourist-trap honouring British Indian Army sold
 
 The National War Memorial: constructed in 2014 under the Modi administration, it's the most chest-thumping one I've been to in any country. Large bronze panels depict various battles where Indian soldiers inflicted heavy casualties or died fighting to the last man against Pakistani and Chinese forces. Opinions on what constitutes good taste at these places may vary.
 
-![Qutb Minar](/assets/travel/impressions-of-delhi-05.jpg)
+![Qutb Minar](/assets/travelbig/impressions-of-delhi-05.jpg)
 
 *Qutb Minar*
 
 Delhi is a city both obsessed and apathetic about security... Everywhere you go in the heart of the city, policemen and soldiers toting Cold War-era surplus firearms. Every time you take the (beautifully modern and efficient) metro system, your bags are screened and you are frisked by officers. Of course, no one seems to give a shit --- they just go through the motions. A great example is the metal detectors in all the hotel entrances. People come, people go, the detectors sometimes beep and sometimes don't, and no one bats an eye.
 
-![Impressions of Delhi (2020) — photo 6](/assets/travel/impressions-of-delhi-06.jpg)
+![Impressions of Delhi (2020) — photo 6](/assets/travelbig/impressions-of-delhi-06.jpg)
 
 Delhi is a rude city... I've had to snap at people and raise my voice just to get things done here. I think I became a bit too aggressive towards the end of my stay. Some of it is simply big-city brusqueness, but I reckon a better explanation is that everyone is just pissed they have to live in Delhi of all places. Mumbai is nicer, Chennai is hilariously messy, but Delhi is in a league of its own.
 
 Delhi has some absolute marvels tucked within the grit... The Qutb Minar complex (the subject of these photos) is a sensational place, filled with tombs and ruins of the Delhi Sultanate. Just check out that soaring, 73-metre tall sandstone minaret! Equally fascinating (for me, at least) are the elaborate Indo-Islamic designs and the bold, contrasting use of white marble and red sandstone in the complex. For
 
-![Impressions of Delhi (2020) — photo 7](/assets/travel/impressions-of-delhi-07.jpg)
+![Impressions of Delhi (2020) — photo 7](/assets/travelbig/impressions-of-delhi-07.jpg)
 
 some reason, seeing this building mixture made me crave both dairy milk and white chocolate at the same time.
 
-![Humayun's Tomb](/assets/travel/impressions-of-delhi-08.jpg)
+![Humayun's Tomb](/assets/travelbig/impressions-of-delhi-08.jpg)
 
 *Humayun's Tomb*
 
 Delhi is a testament to North India's Islamic legacy... City of djinns, indeed. Although current issues in India surrounding Muslim identity and Hindu nationalism can be politely called a 'fraught clusterfuck' (I'll never forget the awkward exchange I had with an Uber driver in Jaipur where he praised the Chinese government's Xinjiang internment camps), Islam's artistic impact on the country is enthralling. Look no further than Humayun's Tomb Complex in these photos --- home to the grandiose resting place of the second Mughal Empire, as well as other paradisiacal garden-tombs.
 
-![Impressions of Delhi (2020) — photo 9](/assets/travel/impressions-of-delhi-09.jpg)
+![Impressions of Delhi (2020) — photo 9](/assets/travelbig/impressions-of-delhi-09.jpg)
 
 Delhi is the reason 'Delhi belly' is a thing... Alas, my luck ran out at the very end of my Indian odyssey and I was struck with severe traveller's diarrhoea a second time. Whether I contracted it in the nation's capital or elsewhere (the 'Punjabi punisher', perhaps?), I will never truly know. But I spent my last few precious days in Hindustan staggering around places like Humayun's Tomb in an Imodium-induced fugue state. And I don't even want to begin talking about the hellish 4 am flight I took out of Indira Gandhi International Airport, with my guts churning like the tea in a chai wallah's pot.
 
-![Flag of India at Central Park, Connaught Place](/assets/travel/impressions-of-delhi-10.jpg)
+![Flag of India at Central Park, Connaught Place](/assets/travelbig/impressions-of-delhi-10.jpg)
 
 *Flag of India at Central Park, Connaught Place*
 
 Delhi is the best place to become a 'made man' in the land of madcap travel... After I flew out of Delhi and into Cairo, I could only listen with mild amusement to people bemoaning the traffic, the hassling, the noise, and the dirtiness. My god. If only they knew the things I have experienced on the mean streets of Delhi. I'm not sure if anything can faze me anymore.
 
-![Paharganj at night](/assets/travel/impressions-of-delhi-11.jpg)
+![Paharganj at night](/assets/travelbig/impressions-of-delhi-11.jpg)
 
 *Paharganj at night*
 
 Delhi is business and loitering, adeptness and incompetence... It is Connaught Place, where I haggled for fake Ray-Bans outside a high-end sunglass store, was harassed by two skin-crawlingly obnoxious Indian lads, had to suffer the inefficient local post office, found superb exchange rates with back alley dealers, and watched dusklight creep over the ridiculously big Indian flag in Central Park.
 
-![Gandhi Smriti](/assets/travel/impressions-of-delhi-12.jpg)
+![Gandhi Smriti](/assets/travelbig/impressions-of-delhi-12.jpg)
 
 *Gandhi Smriti*
 
@@ -837,17 +837,17 @@ Delhi is the dream of a softer tomorrow... It is visiting Gandhi Smriti, seeing 
 
 Delhi is a cosmopolitan city but not an international one... The difference I felt between Mumbai and Delhi is the difference I felt between Shanghai and Beijing. Mumbai feels authentically global, with
 
-![Impressions of Delhi (2020) — photo 13](/assets/travel/impressions-of-delhi-13.jpg)
+![Impressions of Delhi (2020) — photo 13](/assets/travelbig/impressions-of-delhi-13.jpg)
 
 the dynamism to match, while Delhi is a bursting-at-the-seams capital that feels like it's still sloughing off an entire nation's complications.
 
-![Hauz Khas Village Park](/assets/travel/impressions-of-delhi-14.jpg)
+![Hauz Khas Village Park](/assets/travelbig/impressions-of-delhi-14.jpg)
 
 *Hauz Khas Village Park*
 
 Delhi is a reminder that every foreign locale, no matter how "westernised", has quirks... On election day for the Delhi Legislative Assembly, I tried to have lunch at a restaurant in the snooty and arty Hauz Khas Village (think off-brand Greenwich Village) and was told by the haughty waitstaff that --- because of the election --- it was a designated 'dry day' in the capital and alcohol could not be served. But when I asked to see their list of mocktails, they informed me that was not possible since it was printed on a menu that also listed alcoholic drinks. Like, what the hell?
 
-![Impressions of Delhi (2020) — photo 15](/assets/travel/impressions-of-delhi-15.jpg)
+![Impressions of Delhi (2020) — photo 15](/assets/travelbig/impressions-of-delhi-15.jpg)
 
 Delhi is about finding your own patch of grass... It is Lodhi Gardens, a pleasant and free city park, dotted with well-preserved tombs and monuments of the Delhi Sultanate, and populated by happy picnickers and backyard cricketers. One could almost be fooled into thinking they were back home.
 
@@ -861,7 +861,7 @@ Delhi is done! India is done! I'm out! Adios! It is finally over!
 
 They say I am between the East and the West. An identity crisis! Whose? Mine or theirs? Enough of this nonsense. Take the labels off and look at me. Just look. --- "The Voice of Istanbul", Gündüz Vassaf
 
-![The Dolmabahçe Palace](/assets/travel/istanbul-01.jpg)
+![The Dolmabahçe Palace](/assets/travelbig/istanbul-01.jpg)
 
 *The Dolmabahçe Palace*
 
@@ -869,7 +869,7 @@ This was the governmental nucleus of the Ottoman Empire for much of the 19th and
 
 It's a mashup of Baroque, Rococo, and Neoclassical elements. Or so I am told. All I know is that I muttered "these rich motherfuckers..." to myself a couple of times during my tour of the palace. Grand chambers and monarchical opulence for sure. But throwing millions of liras at foreign decor didn't cure the empire of being derided as the 'sick man of Europe'. And the rest, as they say, was history.
 
-![The Topkapı Palace](/assets/travel/istanbul-02.jpg)
+![The Topkapı Palace](/assets/travelbig/istanbul-02.jpg)
 
 *The Topkapı Palace*
 
@@ -877,7 +877,7 @@ The dazzlingly lovely headquarters of the Ottoman sultans for many centuries, bu
 
 I believe that if you want to understand where Europeans got their Orientalist notions of exotic Eastern decadence from, it's worth seeing places like this first-hand and considering how a western observer of the era would've reacted to it all. Viziers and eunuchs, gold and silk, harems and concubines, backstabbers and cat's-paws, sex and slavery, and rampant greed and cruelty in the guise of a complex imperial social order. This place is simply dripping with the facts and fictions of these oily, meaty imaginings.
 
-![The Hagia Sofia](/assets/travel/istanbul-03.jpg)
+![The Hagia Sofia](/assets/travelbig/istanbul-03.jpg)
 
 *The Hagia Sofia*
 
@@ -889,19 +889,19 @@ So is the Hagia Sophia a cathedral? Is it a mosque? Or is it a historical museum
 
 Hooray for compromise... or so I thought. But then in July 2020, only a few months after I visited it, Turkish President Recep Tayyip Erdoğan redesignated the site as a mosque, triggering much domestic and international controversy.
 
-![And some other nearby attractions...](/assets/travel/istanbul-04.jpg)
+![And some other nearby attractions...](/assets/travelbig/istanbul-04.jpg)
 
 *And some other nearby attractions...*
 
 Close to the Hagia Sophia, I was also able to visit the twilight underworld of the Cisterna Basilica, the solemnly splendid Tomb of the Sultans, and the palatial Süleymaniye Mosque in the mizzle.
 
-![The domed ceilings of Istanbul](/assets/travel/istanbul-05.jpg)
+![The domed ceilings of Istanbul](/assets/travelbig/istanbul-05.jpg)
 
 *The domed ceilings of Istanbul*
 
 On these various visits, I spend a lot of time craning my head up at the Ottoman domed ceiling. I'm sure the future neck pain I'll have was a worthy price to pay for being able to peer directly upwards at such decorative beauty.
 
-![And finally, the fantastic food of Turkey...](/assets/travel/istanbul-06.jpg)
+![And finally, the fantastic food of Turkey...](/assets/travelbig/istanbul-06.jpg)
 
 *And finally, the fantastic food of Turkey...*
 
@@ -925,7 +925,7 @@ You won't need a guidebook. Like all cities, I have my own sense of time. I am a
 
 *Posted 31 January 2021*
 
-![Elephant congestion, Rajasthan edition.](/assets/travel/jaipur-01.jpg)
+![Elephant congestion, Rajasthan edition.](/assets/travelbig/jaipur-01.jpg)
 
 *Elephant congestion, Rajasthan edition.*
 
@@ -935,13 +935,13 @@ Some snaps of Jaipur, the capital of Rajasthan. This was my final stop in this g
 
 Expectations have not fully met reality and past experience. It's a busy, sprawling, impersonal city and once you knock off the main attractions (which seem plentiful, but can be easily visited in a short span of time) it can feel as though you're at a loss of what to do next...
 
-![Jaipur (2020) — photo 2](/assets/travel/jaipur-02.jpg)
+![Jaipur (2020) — photo 2](/assets/travelbig/jaipur-02.jpg)
 
 My advice for Jaipur: best take it slow. Sit at cafes. Reflect on the ups and downs of the trip so far. Plan ahead. Watch the world go by. Compose wistful and semi-informative blog posts.
 
 I was also completely outraged by something else. Jaipur is famously called the "Pink City of India". Now, I don't know about you but nothing here looks remotely pink. More an orangey-red. This is surely the true Indian scam! I demand my bloody paisas back.
 
-![Jaipur (2020) — photo 3](/assets/travel/jaipur-03.jpg)
+![Jaipur (2020) — photo 3](/assets/travelbig/jaipur-03.jpg)
 
 ### The Amber Fort: glorious and elephant congested
 
@@ -949,21 +949,21 @@ The Amber Fort! Once the fortress residence of the Jaipur royal family. Rajput a
 
 Admittedly, it is not my favourite Indian fort (that title goes to Mehrangarh Fort in Jodhpur) but it's utterly majestic in the morning light. Just remember not to take the touristy elephant rides to the top. It is not a terribly ethical thing to do.
 
-![Jaipur (2020) — photo 4](/assets/travel/jaipur-04.jpg)
+![Jaipur (2020) — photo 4](/assets/travelbig/jaipur-04.jpg)
 
 Like with many grand Indian buildings, the Amber Fort mainly inspiring from the outside. Apart from one or two impressive rooms, the interiors are bare-boned with semi-recent restoration work is evident throughout. The same can be said for the City Palace and Hawa Mahal, two other major attractions in the city. This is not an India specific problem, mind you. China too suffers the same issue with many of its large heritage structures.
 
-![Jaipur (2020) — photo 5](/assets/travel/jaipur-05.jpg)
+![Jaipur (2020) — photo 5](/assets/travelbig/jaipur-05.jpg)
 
 But whereas the scant interiors of China can be explained by events like the Cultural Revolution, which gutted the entire country of its historical wealth, the reason here seems more opaque. Hypothesis: It's a result of the anarchic, predatory impact of the British East India Company and direct Crown rule, compounded by a lack of modern state capacity to prioritise and preserve the country's almost countless cultural sites.
 
-![Jaipur (2020) — photo 6](/assets/travel/jaipur-06.jpg)
+![Jaipur (2020) — photo 6](/assets/travelbig/jaipur-06.jpg)
 
 ### Quick notes on Hawa Mahal and Jantar Mantar...
 
 Hawa Mahal: "The Palace of Winds", famed for its intricate (and potentially trypophobia inducing) hive-like window design. Not much to see on the inside. Best viewed from a pricey, hipster rooftop cafe in the area.
 
-![Jaipur (2020) — photo 7](/assets/travel/jaipur-07.jpg)
+![Jaipur (2020) — photo 7](/assets/travelbig/jaipur-07.jpg)
 
 Jantar Mantar: Is it a highfalutin contemporary sculpture garden? Or a set of enormous and sophisticated 18th century astronomical instruments commissioned by Maharaja Jai Singh II of Jaipur? You decide!
 
@@ -973,25 +973,25 @@ Photos of various forts and temples on the hills surrounding Jaipur. My overall 
 
 My discontented rickshaw driver rushed me around Nahargarh and Jaigarh Fort and was mainly interested in taking me to a crappy commission-paying shop (an expected side effect of a cheap hire). I'm
 
-![Jaipur (2020) — photo 8](/assets/travel/jaipur-08.jpg)
+![Jaipur (2020) — photo 8](/assets/travelbig/jaipur-08.jpg)
 
 also fairly sure that the trivial entrance fee the holy men charged for visiting the Galta Ji temple complex was a half-hearted scam. Whatever. These things happen.
 
 A personal note to a future self: I need to stop stumbling into temple blessings out of boredom. I mean, I don't believe in any of it and I don't like having stuff put on my forehead or wrapped around my wrists (I remove them the moment I leave). Karma, reincarnation, curses, blessings, deities, prayers, sacrifices, all of it --- I respect them up to a solid threshold, and I often find them intellectually absorbing to observe, but I should endeavour to keep them away from me with a much longer stick.
 
-![Jaipur (2020) — photo 9](/assets/travel/jaipur-09.jpg)
+![Jaipur (2020) — photo 9](/assets/travelbig/jaipur-09.jpg)
 
 ### The Palace and the Museum
 
 The City Palace of Jaipur. It's alright. Had some cool archways and doors, I guess. The lavish throne room had pigeons flying around and shitting in it. The weapons gallery (i.e. "the murder wing") showcased all the ingenious ways Indians tried to attach firearms to other weapons. Gun-swords. Gun-maces. Gun-crossbows. Gun-daggers. Sneaky-cane-swords-that-were-also-cane-guns.
 
-![Jaipur (2020) — photo 10](/assets/travel/jaipur-10.jpg)
+![Jaipur (2020) — photo 10](/assets/travelbig/jaipur-10.jpg)
 
 The best corner of the palace was undoubtedly the painting and photography gallery. For one, it was dark and cool and cleverly curated; for another, there were few visitors and no guided tour groups. I can't abide by paid museum guides. Museums are the ultimate space for me to exercise my introversion. Keep my own pace. Get away from the world. Study whatever displays catch my idiosyncratic attention.
 
 Speaking of museums, the Albert Hall Museum was a pleasant surprise. I expected it to be lacklustre and only went because I was in that part of town. I think my favourite artefacts of India are its miniature paintings (where all the Deccan, Mughal, Rajput, etc. paintings look like they were all done by the same ten guys) and its remarkable religious sculptures.
 
-![Jaipur (2020) — photo 11](/assets/travel/jaipur-11.jpg)
+![Jaipur (2020) — photo 11](/assets/travelbig/jaipur-11.jpg)
 
 And with Jaipur completed, I was finally done with Rajasthan! Afterwards, I took the train to this super obscure, off-the-beaten-path place called Agra. Dunno if you've ever heard of it but it has some well-regarded stuff.
 
@@ -999,7 +999,7 @@ And with Jaipur completed, I was finally done with Rajasthan! Afterwards, I took
 
 *Posted 4 April 2021*
 
-![Jaisalmer (2020) — photo 1](/assets/travel/jaisalmer-01.jpg)
+![Jaisalmer (2020) — photo 1](/assets/travelbig/jaisalmer-01.jpg)
 
 ### Greetings from Jaisalmer — The Golden City
 
@@ -1009,21 +1009,21 @@ Phwoar. What a place! This is the small and remote city of Jaisalmer, a sandston
 
 This is the giant 800-year-old citadel that sits at the heart of the city. It has been dubbed one of the world's oldest "living forts" and has a resident population of around 4,000 people.
 
-![Jaisalmer (2020) — photo 2](/assets/travel/jaisalmer-02.jpg)
+![Jaisalmer (2020) — photo 2](/assets/travelbig/jaisalmer-02.jpg)
 
 I even managed to stay at a guesthouse inside the fort for the price of an Aussie coffee a night. It was worth it for the terrible plumbing and non-existent insulation. My room was effectively a medieval stone cell and I loved it.
 
-![Jaisalmer (2020) — photo 3](/assets/travel/jaisalmer-03.jpg)
+![Jaisalmer (2020) — photo 3](/assets/travelbig/jaisalmer-03.jpg)
 
 ### A bit of male pampering...
 
 To get here, I took an exhausting overnight train ride from Jodhpur. To recover properly, there was only one logical course of action: bargain bin male pampering, Bhārat style.
 
-![Jaisalmer (2020) — photo 4](/assets/travel/jaisalmer-04.jpg)
+![Jaisalmer (2020) — photo 4](/assets/travelbig/jaisalmer-04.jpg)
 
 There's actually a bit of a cottage industry on YouTube of people filming themselves getting old school, hole-in-the-wall Indian barbershop treatments like this. So why not get a snippet of the action?
 
-![Jaisalmer (2020) — photo 5](/assets/travel/jaisalmer-05.jpg)
+![Jaisalmer (2020) — photo 5](/assets/travelbig/jaisalmer-05.jpg)
 
 At one point the barber put on what I can only describe as a video game 'power fist' and/or 'vibro-weapon' and started to seismically attack my scalp. The best and/or worst and/or strangest part was when he did a little earthquake rub right down my ear canal. Ah, the things I do for worldly experiences.
 
@@ -1031,7 +1031,7 @@ At one point the barber put on what I can only describe as a video game 'power f
 
 Ah, yes. The notorious government authorised Bhang Shop at the foot of Jaisalmer Fort that was visited by none other than Anthony Bourdain when he filmed part of his Rajasthan episode in Jaisalmer. I had to, uh, briefly walk past it to take a quick photo, right?
 
-![Jaisalmer (2020) — photo 6](/assets/travel/jaisalmer-06.jpg)
+![Jaisalmer (2020) — photo 6](/assets/travelbig/jaisalmer-06.jpg)
 
 The two brothers who run this joint (sorry) have completely perfected their lines for the amusement of tourists. In no way whatsoever is this an authentic local establishment. When I said I was from Australia, Surya and his brother 'Dr. Bhang' (yep) told me how much they admired Nimbin. When they learnt I might be doing a desert safari, they suggested a pack of their special cookies to turn my camel ride into a "magic carpet ride". And in a deep and serious voice, Surya informed me that "the desert is pain and pleasure. Bhang is a painkiller so the desert becomes only pleasure." Sounds legit to me, mate.
 
@@ -1041,35 +1041,35 @@ The cultural and religious reasons behind cannabis consumption in India is fasci
 
 During my time here, I did a camel safari in the Great Indian Desert topped off by a magnificent sunset view. If my glutes could've handled it, I would've ridden my dromedary bad boy right across the Pakistani border. Alas, not my principle steed of choice.
 
-![Jaisalmer (2020) — photo 7](/assets/travel/jaisalmer-07.jpg)
+![Jaisalmer (2020) — photo 7](/assets/travelbig/jaisalmer-07.jpg)
 
 And also, these photos are deceptive! The Thar Desert has some small dunes for sure, but it is nothing like the endless rolling sands of the Sahara. Much of the landscape is quite rocky, with plenty of vegetation and clusters of human infrastructure.
 
-![Jaisalmer (2020) — photo 8](/assets/travel/jaisalmer-08.jpg)
+![Jaisalmer (2020) — photo 8](/assets/travelbig/jaisalmer-08.jpg)
 
 I know that I look very happy in some of these photos (and I mostly was). But behind the smiles for the camera, I never suspended my critical thinking. Jaisalmer is filled with dodgy bargain bin camel tours and I did my research to make sure I went with a good company. Even so, I was constantly alert to anything feeling off.
 
-![Jaisalmer (2020) — photo 9](/assets/travel/jaisalmer-09.jpg)
+![Jaisalmer (2020) — photo 9](/assets/travelbig/jaisalmer-09.jpg)
 
 Were the camels healthy? Hard to say given the lack of familiarity most westerners have with these animals. Was it okay that the person leading my camel was about the age of ten? This potentially gets into thorny questions of local community norms and the opportunity costs for labour vs. schooling in developing economies. I am, very often, what the writer Malcolm Gladwell calls "the holy fool". High threat detection, easily suspicious. If it takes the average person five minutes to drop their guard in a new situation, I'd happily take fifteen.
 
-![Jaisalmer (2020) — photo 10](/assets/travel/jaisalmer-10.jpg)
+![Jaisalmer (2020) — photo 10](/assets/travelbig/jaisalmer-10.jpg)
 
 Not the best way to end a segment about a beautiful desert safari (and truly, I did enjoy myself) but I thought these points were worth sharing. I'm not a total hack fraud. Not yet.
 
-![Jaisalmer (2020) — photo 11](/assets/travel/jaisalmer-11.jpg)
+![Jaisalmer (2020) — photo 11](/assets/travelbig/jaisalmer-11.jpg)
 
 ### Wealthy haveli façades...
 
 Below are photos of the absurdly detailed havelis (traditional Indian mansions) of rich merchant families from Jaisalmer's trade routing past. Sadly, as with many Indian heritage buildings, it's much more impressive on the outside than on the inside. A literal façade.
 
-![Jaisalmer (2020) — photo 12](/assets/travel/jaisalmer-12.jpg)
+![Jaisalmer (2020) — photo 12](/assets/travelbig/jaisalmer-12.jpg)
 
 ### A Jain temple complex...
 
 This sandstone Jain temple complex within Jaisalmer Fort dates back to the 12-16th century. If you are an intricate-stone-carving junkie, you will have an overdose here. I caved in and hired myself a guide whose explanation of Jainism made me even more confused.
 
-![Jaisalmer (2020) — photo 13](/assets/travel/jaisalmer-13.jpg)
+![Jaisalmer (2020) — photo 13](/assets/travelbig/jaisalmer-13.jpg)
 
 So they have no deities, only prophets? Wait, but aren't they also an offshoot of Hinduism? Yet they don't believe in reincarnation? But karma is a concept? And they all practice extreme non-violence? Or is it only their holy men that go to those extremes? My questions yielded few coherent answers. Oh well. There is always Wikipedia, I guess.
 
@@ -1077,19 +1077,19 @@ So they have no deities, only prophets? Wait, but aren't they also an offshoot o
 
 The first is Gadisar Lake, a man-made water reservoir built in the 1400s where an American friend and I hired a creaky pedal boat to cruise around like the maharajas of yore. Look at us go!
 
-![Jaisalmer (2020) — photo 14](/assets/travel/jaisalmer-14.jpg)
+![Jaisalmer (2020) — photo 14](/assets/travelbig/jaisalmer-14.jpg)
 
-![Jaisalmer (2020) — photo 15](/assets/travel/jaisalmer-15.jpg)
+![Jaisalmer (2020) — photo 15](/assets/travelbig/jaisalmer-15.jpg)
 
 The second is Bada Bagh, a set of royal cenotaphs (known as "chhatri") in a desert garden north of the city. Peaceful and crumbling. One shouldn't visit too many of these places! I'd hate to remember India only as a land of tombs, necropolises, and marbled thanatocracies. Rich dead people have done very well here.
 
-![Jaisalmer (2020) — photo 16](/assets/travel/jaisalmer-16.jpg)
+![Jaisalmer (2020) — photo 16](/assets/travelbig/jaisalmer-16.jpg)
 
 ### A scene from somewhere in the heart of the Thar Desert...
 
 My photograph of Rajasthani village women carrying firewood on their heads while Jaisalmer Wind Park, one of the world's largest onshore wind farms, spins away in the background. Rich and poor. High-tech and low-tech. Is this India in a nutshell? Or perhaps the world entire?
 
-![Jaisalmer (2020) — photo 17](/assets/travel/jaisalmer-17.jpg)
+![Jaisalmer (2020) — photo 17](/assets/travelbig/jaisalmer-17.jpg)
 
 Change is the only constant. Change that, I imagine, is happening too quickly for some and not happening fast enough for many.
 
@@ -1097,7 +1097,7 @@ Change is the only constant. Change that, I imagine, is happening too quickly fo
 
 Because, seriously, why not? Just look at this place!
 
-![Jaisalmer (2020) — photo 18](/assets/travel/jaisalmer-18.jpg)
+![Jaisalmer (2020) — photo 18](/assets/travelbig/jaisalmer-18.jpg)
 
 ## Jodhpur (2020)
 
@@ -1107,33 +1107,33 @@ This is Jodhpur, Rajasthan. The Blue City. The Sun City. Gateway to the Thar Des
 
 Mehrangarh Fort --- "The Sun Fort"
 
-![Jodhpur (2020) — photo 1](/assets/travel/jodhpur-01.jpg)
+![Jodhpur (2020) — photo 1](/assets/travelbig/jodhpur-01.jpg)
 
 I'm a bit gobsmacked a human-made structure like this exists. Visiting Mehrangarh Fort was definitely one of the highlights of my trip to India so far.
 
 It is a colossal, impregnable 500-year-old fortress of the Maharajas of Mewar. A brutal and imposing exterior with opulent royal chambers within. Pigeons and small green parrots flit in and around this desert titan. And it completely overpowers the skyline of Jodhpur's old, blue city.
 
-![Jodhpur (2020) — photo 2](/assets/travel/jodhpur-02.jpg)
+![Jodhpur (2020) — photo 2](/assets/travelbig/jodhpur-02.jpg)
 
 Rudyard Kipling, after visiting the fort, famously described it as "the work of angels, fairies and giants". He's absolutely right.
 
 Royal treasures from the Mehrangarh Fort museum collection The Sun Fort also probably has the best audio tour I've done in India. The tour was fascinating throughout, with a modest but carefully curated royal museum collection. The best "exhibit" was the sleepy old man with a hookah kit who let us sniff a tin of opium powder (still a favourite of rural Rajasthan despite its illegality). "Good for digestion, good for sleep, good for sex," he told us.
 
-![Jodhpur (2020) — photo 3](/assets/travel/jodhpur-03.jpg)
+![Jodhpur (2020) — photo 3](/assets/travelbig/jodhpur-03.jpg)
 
 Blue, soothing Jodhpur Some chill, blue views of Jodhpur, Rajasthan. Forget about Chefchaouen in Morocco! Here's an alternative travel destination for your azure-cerulean-sky-blue-Instagram fix.
 
-![Jodhpur (2020) — photo 4](/assets/travel/jodhpur-04.jpg)
+![Jodhpur (2020) — photo 4](/assets/travelbig/jodhpur-04.jpg)
 
 Jodhpur has a lot going for it (the food in the main market area is cheap and great) but it's also one of the grungiest places I've been to so far in India. The trash problem seems worse. The stray dogs seem meaner. The scooters are a little more aggressive. Many streets are redolent of fecal matter and burnt rubbish, and open defecation (a perennial public health challenge in India) is more visible here than elsewhere. I'm not bothered very much by this kind of stuff anymore, but keep it in mind if you're planning a visit!
 
-![Jodhpur (2020) — photo 5](/assets/travel/jodhpur-05.jpg)
+![Jodhpur (2020) — photo 5](/assets/travelbig/jodhpur-05.jpg)
 
 Additional Jodhpur highlights (1) The epic Toorji Ka Jhalra (Toorji's Step Well) where the tourists come to take photos and the locals come to smoke ganja. Indian stepwells are the best.
 
 (2) Jaswant Thada, the marble cenotaph and cremation grounds of the Jodhpur royal family. Dubbed the "Taj Mahal of Rajasthan" and you can see why.
 
-![Jodhpur (2020) — photo 6](/assets/travel/jodhpur-06.jpg)
+![Jodhpur (2020) — photo 6](/assets/travelbig/jodhpur-06.jpg)
 
 (3) The bustling Sardar Market, which has excellent fruit juice, desserts, samosas, and a very, very good omelette shop.
 
@@ -1141,7 +1141,7 @@ Additional Jodhpur highlights (1) The epic Toorji Ka Jhalra (Toorji's Step Well)
 
 An addendum...
 
-![Jodhpur (2020) — photo 7](/assets/travel/jodhpur-07.jpg)
+![Jodhpur (2020) — photo 7](/assets/travelbig/jodhpur-07.jpg)
 
 Black cowboy hats seem to be all the rage for Indian male tourists in their own country. There are 'English Wine Shops' and 'German Bakeries'. Packets of instant noodles populate the shelves in little hole-in-wall convenience stores. Every shop seems to have the same bland Arial font for their storefront retail signs. As I walk past bored shopkeepers, they call out to me and try to guess my nationality. "Konichiwa!'" they say, "Ni hao!" Some even think I'm Nepali or from the North-eastern states of India based on my tanned backpacker's complexion.
 
@@ -1157,25 +1157,25 @@ Luxor, a city on the Nile River, stands at the site of the ancient pharaonic cap
 
 Karnak Temple...
 
-![Luxor (2020) — photo 1](/assets/travel/luxor-01.jpg)
+![Luxor (2020) — photo 1](/assets/travelbig/luxor-01.jpg)
 
 If the must-see of Luxor's West Bank is the Valley of the Kings, then the must-see of the East Bank is without a doubt the Karnak Temple Complex. Now, I readily admit that I have a penchant for exaggeration in my descriptions. I pop on my travel-tinted lenses and suddenly everything's a little 'beautiful this' and 'amazing that', but I think that even without such worldly biases this place is awe-inspiring.
 
-![Luxor (2020) — photo 2](/assets/travel/luxor-02.jpg)
+![Luxor (2020) — photo 2](/assets/travelbig/luxor-02.jpg)
 
 An immense religious site that first began life 4,000 years ago, Karnak is primarily dedicated to Amun-Re, the supreme patron deity of ancient Thebes (along with areas dedicated to his wife Mut, the divine mother goddess, and Mont, the falcon-headed god of war). To enter its Great Hypostyle Hall is to enter a forest of colossal stone columns. It is to truly become a human-ant surrounded by the workings of towering and ageless pagan gods.
 
-![Luxor (2020) — photo 3](/assets/travel/luxor-03.jpg)
+![Luxor (2020) — photo 3](/assets/travelbig/luxor-03.jpg)
 
 Immense. Colossal. Towering. How much further can I strain the thesaurus in search of fancy ways to say 'very stupidly big'? I'm not certain, but they all apply to Karnak.
 
 To appreciate just how powerful this place is, one should reach Karnak as soon as it opens (i.e. before any tour groups arrive) in order to become fully consumed by its enormous pillars in the chilly, honey-yellow morning light.
 
-![Luxor (2020) — photo 4](/assets/travel/luxor-04.jpg)
+![Luxor (2020) — photo 4](/assets/travelbig/luxor-04.jpg)
 
 How much backbreaking labour went into this place! Consider the slavishly carved hieroglyphs, the heroically erected obelisks, the monstrous pylon gateways, the broad sacred lake, and the careful rows of sphinxes and headless god-kings. Can you feel the endless toil of craftsmen? The snap of ropes and the crush of wheels? The dust and sweat and the want of shade and water? Labour of labours for the king of kings.
 
-![Luxor (2020) — photo 5](/assets/travel/luxor-05.jpg)
+![Luxor (2020) — photo 5](/assets/travelbig/luxor-05.jpg)
 
 Located away from all the tourists milling inside the Great Hypostyle Hall is the smaller, but no less impressive, Temple of Khonsu. Here you can admire ancient colours that have endured layers upon layers of neglect. Here you can listen to the small birds that nest and flitter within a canopy of aching stone. Here you are finally alone.
 
@@ -1185,17 +1185,17 @@ Photos of Luxor Temple, day and night...
 
 This ancient complex sits on the Nile's east bank, surrounded by busy shops, cafes, and restaurants. It's been kicking around since 1400 BC and may or may not have served as the coronation site of new pharaohs. The temple was partially converted into a Christian church by the Romans, was occupied by Arab villagers in medieval times, and now has an active mosque in the middle of it. In other words, oodles of history.
 
-![Luxor (2020) — photo 6](/assets/travel/luxor-06.jpg)
+![Luxor (2020) — photo 6](/assets/travelbig/luxor-06.jpg)
 
 Many people opt to walk around it, peering in from the outside. But if you have the time and budget, I recommend purchasing a ticket to go inside --- especially after dark, when the imposing columns and timeworn statues are lit up for dramatic effect.
 
-![Luxor (2020) — photo 7](/assets/travel/luxor-07.jpg)
+![Luxor (2020) — photo 7](/assets/travelbig/luxor-07.jpg)
 
 Cycling towards the Valley of the Kings on the West Bank of Luxor...
 
 Now it is time to venture across the Nile to Luxor's West Bank. A stark desert landscape. Barren limestone hills. The dry morning heat and a solitary bird of prey in the sky above. Like venturing across another planet.
 
-![Luxor (2020) — photo 8](/assets/travel/luxor-08.jpg)
+![Luxor (2020) — photo 8](/assets/travelbig/luxor-08.jpg)
 
 Exploring the West Bank with a janky, rented bicycle certainly isn't the easiest way to do it! But for some reason, cycling around ancient ruins has just become a thing I do now. I did it at Angkor Wat, at Ayutthaya in Thailand, and I did it recently in Hampi.
 
@@ -1207,7 +1207,7 @@ Filed under photos-I-technically-shouldn't-have. Turns out a small, ahem, tip to
 
 These are the 18th dynasty burial chambers of Sennofer, a royal gardener, and Rekhmire, a vizier of ancient Thebes, in a barely visited part of the West Bank known as the Tomb of the Nobles. Their decorations are sensational. Bright grape arbour ceilings. Scenes of craftsmen hard at work. Harvests, banquets, offerings. The colours pop like they were painted not that long ago.
 
-![Luxor (2020) — photo 9](/assets/travel/luxor-09.jpg)
+![Luxor (2020) — photo 9](/assets/travelbig/luxor-09.jpg)
 
 Unlike the sepulchres of the mighty pharaohs, which are mainly painted with religious themes, these tombs provide wonderful insights into everyday ancient Egyptian life. 10/10, would bribe again.
 
@@ -1215,13 +1215,13 @@ The Temple of Hatshepsut...
 
 The Mortuary Temple of Hatshepsut on the West Bank was built for a powerful New Kingdom pharaoh. What a panorama with those timeless cliffs and that vivid desert sky!
 
-![Luxor (2020) — photo 10](/assets/travel/luxor-10.jpg)
+![Luxor (2020) — photo 10](/assets/travelbig/luxor-10.jpg)
 
 It should be noted that the monument has undergone heavy restoration and reconstruction and there's not a terrible amount to explore within. Still, you can't beat that frontal view. It completely seizes the imagination the first time you see it.
 
 Hatshepsut, you may be interested to know, was a woman. She was (to the best of our knowledge) the second-ever female pharaoh and is considered one of Ancient Egypt's most successful rulers. On more than one occasion during my temple visit, I overheard female travellers talking excitedly about the fact that Hatshepsut was a woman and about her enduring legacy. History is evocative. It says as much about our present hopes and wants as it does about our distant past.
 
-![Luxor (2020) — photo 11](/assets/travel/luxor-11.jpg)
+![Luxor (2020) — photo 11](/assets/travelbig/luxor-11.jpg)
 
 Ah, at last --- the world-renowned Valley of the Kings...
 
@@ -1231,7 +1231,7 @@ Photographed in this section is KV2, the tourist-swamped resting place of Ramess
 
 This was my katabasis, my descent into the underworld. There are over sixty chthonic tombs (only around a third of which belong to actual kings) from the 16th to 11th century BC spread throughout this area. Many of them are opulently coloured and meticulously decorated. A number of them plunge ridiculously deep into the bowels of the earth.
 
-![Luxor (2020) — photo 12](/assets/travel/luxor-12.jpg)
+![Luxor (2020) — photo 12](/assets/travelbig/luxor-12.jpg)
 
 Hieroglyphs as far as the eye can see. Hexes and spells. The Book of the Dead. Mythological scenes and deities galore. And don't forget tomb robbers, King Tut, and the curse of the pharaohs. Death has inspired an unparalleled art form within these chambers.
 
@@ -1239,11 +1239,11 @@ A brave and highly qualified archaeologist stands baffled before his discoveries
 
 Welcome to KV9, the Tomb of Rameses V and Rameses VI. It is marvellous. The tomb is spacious, sensationally preserved, and sublimely colourful --- the sepulchral highlight of my trip to the Valley of the Kings.
 
-![Luxor (2020) — photo 13](/assets/travel/luxor-13.jpg)
+![Luxor (2020) — photo 13](/assets/travelbig/luxor-13.jpg)
 
 And it's also weird. Really fucking weird. Some of the paintings on the walls are genuinely quite freaky looking, like something out of an unhinged fever dream. Elongated beings. Decapitated bodies. Serpentine and/or vermiform beasts. Man-animal hybrids. Wacky limbs and sinister grins. Maybe it was just the odd mood I was in, but this tomb seriously felt like a plunge down the rabbit (hieroglyph sign no. E34) hole.
 
-![Luxor (2020) — photo 14](/assets/travel/luxor-14.jpg)
+![Luxor (2020) — photo 14](/assets/travelbig/luxor-14.jpg)
 
 And finally, a nighttime visit to Luxor Museum...
 
@@ -1251,7 +1251,7 @@ And finally, a nighttime visit to Luxor Museum...
 
 --- Ryszard Kapuscinski
 
-![Luxor (2020) — photo 15](/assets/travel/luxor-15.jpg)
+![Luxor (2020) — photo 15](/assets/travelbig/luxor-15.jpg)
 
 ## Malacca, Malaysia (2020)
 
@@ -1261,17 +1261,17 @@ And finally, a nighttime visit to Luxor Museum...
 
 Malacca. It is a city of over half a million people on the south-western coast of the Malay Peninsula. It is a major tourist attraction and its historic centre has been listed as a UNESCO World Heritage Site since 2008. It is a confluence of Malays, Tamils, Chinese, Peranakans, and other peoples. It is the story of the Portuguese seizing it from the Sultanate, the Dutch seizing it from Portuguese, the English taking control, and then union with the Malay States in the aftermath of the
 
-![Malacca, Malaysia (2020) — photo 1](/assets/travel/malacca-malaysia-01.jpg)
+![Malacca, Malaysia (2020) — photo 1](/assets/travelbig/malacca-malaysia-01.jpg)
 
 World War II. So much blood spilt for a place that is now a leisurely day trip from Kuala Lumpur...
 
 Despite the high levels of cushy and, quite frankly, tacky tourism in the city, oddities abound. The Tan Kim Seng Bridge that crosses the Malacca River, the nexus of the historical city, is a deafening cacophony of birds in the evening and an action painting of droppings...
 
-![Malacca, Malaysia (2020) — photo 2](/assets/travel/malacca-malaysia-02.jpg)
+![Malacca, Malaysia (2020) — photo 2](/assets/travelbig/malacca-malaysia-02.jpg)
 
 History can be found in unusual nooks. For instance, the mausoleum of Hang Jebat, a 15th-century local legendary warrior, can be found indignantly squeezed between an auto repair shop and a cookie store on a rarely explored side road. Meanwhile, the revolving panoramic tower a warbling, the Taming Sari Tower, makes of Malacca, extraterrestrial sound that resonates across much of the city...
 
-![Malacca, Malaysia (2020) — photo 3](/assets/travel/malacca-malaysia-03.jpg)
+![Malacca, Malaysia (2020) — photo 3](/assets/travelbig/malacca-malaysia-03.jpg)
 
 As for the famous Christ Church Malacca, it is prosaic in a style that only the Anglicans can pull off. Nice to sit in. Strangely, I was the only one inside despite the throngs of tourists milling outside the church in the heat.
 
@@ -1281,7 +1281,7 @@ Pictured below: the beautiful 16th-century hilltop ruins of Saint Paul's Church,
 
 The Melaka Straits Mosque, built on stilts to make it appear at times as though it is floating about the waves, makes for a great visit, but it's in a bad location. I wouldn't recommend walking there like I did (just take a taxi instead) --- not because it felt unsafe, but because it felt lonely and
 
-![Malacca, Malaysia (2020) — photo 4](/assets/travel/malacca-malaysia-04.jpg)
+![Malacca, Malaysia (2020) — photo 4](/assets/travelbig/malacca-malaysia-04.jpg)
 
 dull. Vacant lots, tenantless buildings, and silent construction sites. There is also an unoccupied and half-completed faux-European shopping boulevard nearby, which is a hollow and dispiritingly kitschy thing to see.
 
@@ -1297,7 +1297,7 @@ Cendol. An iced dessert with green rice flour jelly, mixed with coconut milk and
 
 Finally, Malacca is synonymous with bombastic, fever-inducing bicycle rickshaws. Glum men pedalling middle-aged Chinese tourists around on flashing contraptions covered with plushy cartoon decorations, blasting
 
-![Malacca, Malaysia (2020) — photo 5](/assets/travel/malacca-malaysia-05.jpg)
+![Malacca, Malaysia (2020) — photo 5](/assets/travelbig/malacca-malaysia-05.jpg)
 
 "Gangnam Style", "Let It Go", or that cloying call-me-señorita song at painfully high volumes. They are a terror to behold.
 
@@ -1339,7 +1339,7 @@ Speaking of food, Mumbai street food is a wonder. Friendly roadside vendors sell
 
 Pictured below:
 
-![Sev puri, a crispy deep-fried bread loaded with diced potatoes, onions, and chutneys.](/assets/travel/mumbai-01.jpg)
+![Sev puri, a crispy deep-fried bread loaded with diced potatoes, onions, and chutneys.](/assets/travelbig/mumbai-01.jpg)
 
 *Sev puri, a crispy deep-fried bread loaded with diced potatoes, onions, and chutneys.*
 
@@ -1369,7 +1369,7 @@ Another filter coffee, please. I need another hit before catching my overnight t
 
 *Posted 6 September 2020*
 
-![The Egyptian Museum](/assets/travel/museums-of-cairo-01.jpg)
+![The Egyptian Museum](/assets/travelbig/museums-of-cairo-01.jpg)
 
 *The Egyptian Museum*
 
@@ -1377,41 +1377,41 @@ Behold! Objects from the Egyptian Museum, the Museum of Islamic Art, and the Cop
 
 The Egyptian Museum Holy smokes, this place is a mess. Often described as one of the most distinguished collections of antiquities in the world, this museum is the encapsulation of "quantity over quality". It is a sprawling warehouse of dusty, poorly labelled artefacts from across the absurd span of Ancient Egyptian history. Many of its treasures are genuinely wonderful to
 
-![Museums of Cairo (2020) — photo 2](/assets/travel/museums-of-cairo-02.jpg)
+![Museums of Cairo (2020) — photo 2](/assets/travelbig/museums-of-cairo-02.jpg)
 
 behold (Tutankhamun's room is a highlight, despite the guards constantly screaming at boomers to stop taking photos, and I thought the royal mummies were worth the extra ticket), but as soon as you venture beyond the main wings you'll find yourself lost amidst rundown display cabinets filled with scrolls, coffins, amulets, tablets, sarcophagi, jewellery, and the like.
 
 Good stamina is a must because if you aren't battling through the noisy tour groups, or navigating messy construction areas, you are trying to wrap your head around whether this or that relic is from the New Kingdom or the Third Intermediate or the Middle Kingdom --- or whether you actually care at all!
 
-![Museums of Cairo (2020) — photo 3](/assets/travel/museums-of-cairo-03.jpg)
+![Museums of Cairo (2020) — photo 3](/assets/travelbig/museums-of-cairo-03.jpg)
 
 So what did I personally learn from this neglected stockroom? I learnt they were obsessed with symmetry, with flatness, with the serenity of the face. Power was everything and submission to it was everything else. Death constantly preyed on their minds, as did bounteous harvests and feasts of plenty. Before anyone else, they had mastered the art of shaping stone as though it was an afterthought. Their writing system was both sacred and a toil. Endurance was their one true god. Their entire civilisation was devoted to creating objects that would last a thousand dynasties. Even when they were ancient, they knew their ancestors were more ancient still.
 
-![Museums of Cairo (2020) — photo 4](/assets/travel/museums-of-cairo-04.jpg)
+![Museums of Cairo (2020) — photo 4](/assets/travelbig/museums-of-cairo-04.jpg)
 
 Please note: the woeful state of the Egyptian Museum will hopefully not continue. A brand new archaeological museum is scheduled to open in Giza later this year and will, for all intents and purposes, replace the current site. So it's likely that I was one of the final 'seasons' of tourists to have faced the disastrous, old-school Cairo museum experience. Lucky me.
 
-![Museums of Cairo (2020) — photo 5](/assets/travel/museums-of-cairo-05.jpg)
+![Museums of Cairo (2020) — photo 5](/assets/travelbig/museums-of-cairo-05.jpg)
 
 The Museum of Islamic Art According to the Wikipedia page, which was undoubtedly edited by someone working there, it is "considered one of the greatest in the world". Yeah, it's pretty great (although the Islamic Arts Museum Malaysia gives it a run for its money). It certainly made me want to see more Persian stuff. And I felt like I could've stared at some of those geometrical designs for hours on end.
 
-![Museums of Cairo (2020) — photo 6](/assets/travel/museums-of-cairo-06.jpg)
+![Museums of Cairo (2020) — photo 6](/assets/travelbig/museums-of-cairo-06.jpg)
 
 After visiting the Giza Pyramids and the Egyptian Museum, this place was an oasis. Clean, quiet, fascinating, and totally hassle-free. Best of all, I received a free guided tour by a Cairo University student who was volunteering at the museum for course credits.
 
 Check this one out, art history nerds. There were, like, no other visitors in the entire building. My guess is that the museum fell off everyone's radar after it was heavily damaged by a car bomb in 2014 that was targeting the Cairo police headquarters across the road, shutting the place down for a couple of years. But it's been completely renovated and
 
-![Museums of Cairo (2020) — photo 7](/assets/travel/museums-of-cairo-07.jpg)
+![Museums of Cairo (2020) — photo 7](/assets/travelbig/museums-of-cairo-07.jpg)
 
 --- judging from the large numbers of heavily armed policemen in the locale --- in slightly safer airs at present
 
-![Museums of Cairo (2020) — photo 8](/assets/travel/museums-of-cairo-08.jpg)
+![Museums of Cairo (2020) — photo 8](/assets/travelbig/museums-of-cairo-08.jpg)
 
 The Coptic Museum It's a "comfy" museum that showcases a cross-section of Egypt's Christian art across the centuries. Why do I say comfy? Because of how adorkable early Coptic paintings were. Not the most clever analysis, I know, but look at those big, childish eyes and bold, crayon-like streaks. I love it.
 
 The most significant thing in the Coptic Museum is perhaps something that isn't a painting or a sculpture: the "Gnostic Gospels", a set of 4th-century manuscripts hidden in a clay pot that two Egyptian farmers accidentally found in 1945 while digging for fertiliser. You remember The Da Vinci Code, right? These manuscripts are where that novel got many of its kooky ideas from and where your weird New Age aunty probably got some of hers. They're full of the more fun, mystical, and esoteric ideas that early Christian sects developed before they got stamped out for heresy
 
-![Museums of Cairo (2020) — photo 9](/assets/travel/museums-of-cairo-09.jpg)
+![Museums of Cairo (2020) — photo 9](/assets/travelbig/museums-of-cairo-09.jpg)
 
 ## Museums of India (2020)
 
@@ -1419,7 +1419,7 @@ The most significant thing in the Coptic Museum is perhaps something that isn't 
 
 Artefacts and relics from the Chhatrapati Shivaji Maharaj Vastu Sangrahalaya of Mumbai and the National Museum in New Delhi...
 
-![Museums of India (2020) — photo 1](/assets/travel/museums-of-india-01.jpg)
+![Museums of India (2020) — photo 1](/assets/travelbig/museums-of-india-01.jpg)
 
 The Chhatrapati Shivaji Maharaj Vastu Sangrahalaya (CSMVS) of Mumbai
 
@@ -1427,11 +1427,11 @@ The Chhatrapati Shivaji Maharaj Vastu Sangrahalaya (CSMVS) of Mumbai
 
 I've found most museums in India to be very underwhelming, but the Chhatrapati Shivaji Maharaj Vastu Sangrahalaya ('King Shivaji museum') in Mumbai was a glowing exception. An extraordinary collection of Indian sculptures, miniature paintings, and other artworks from across the centuries.
 
-![Museums of India (2020) — photo 2](/assets/travel/museums-of-india-02.jpg)
+![Museums of India (2020) — photo 2](/assets/travelbig/museums-of-india-02.jpg)
 
 By the end of my visit I actually felt a sense of frustration! I felt melancholy! Like with many great museums, I was overwhelmed by the richness of civilisations and human creativity on display.
 
-![Museums of India (2020) — photo 3](/assets/travel/museums-of-india-03.jpg)
+![Museums of India (2020) — photo 3](/assets/travelbig/museums-of-india-03.jpg)
 
 Highlights of this museum include the personal armour of the Mughal emperor Akbar the Great, the beautifully intricate (and occasionally beautifully violent!) miniature paintings, the breathtaking main sculpture gallery on the ground floor, and the rather macabre Tibetan human bone apron and cap and human thighbone trumpet on display.
 
@@ -1439,15 +1439,15 @@ Highlights of this museum include the personal armour of the Mughal emperor Akba
 
 And while serviceable, the National Museum in New Delhi was far less impressive in terms of its visitor friendliness, item curation, and overall use of space. It also has one of the most hilariously shoddy museum cafeteria's I've ever seen in my entire life. If you had to choose one big museum in India, definitely go with Mumbai's.
 
-![Museums of India (2020) — photo 4](/assets/travel/museums-of-india-04.jpg)
+![Museums of India (2020) — photo 4](/assets/travelbig/museums-of-india-04.jpg)
 
 That said, there were still some amazing objects on display, including an overwhelming selection of Indian miniatures and a phenomenal collection of Mysore and Tanjore paintings --- better than what I saw in Mysore itself, in fact
 
-![Museums of India (2020) — photo 5](/assets/travel/museums-of-india-05.jpg)
+![Museums of India (2020) — photo 5](/assets/travelbig/museums-of-india-05.jpg)
 
 I'll end by saying this: museums are a perfect reminder that there's simply too much to see, learn, and appreciate on every continent. One could dedicate an entire lifetime and only dive deeply into a fleeting sliver of it
 
-![Museums of India (2020) — photo 6](/assets/travel/museums-of-india-06.jpg)
+![Museums of India (2020) — photo 6](/assets/travelbig/museums-of-india-06.jpg)
 
 ## Mysore (2019/2020)
 
@@ -1455,41 +1455,41 @@ I'll end by saying this: museums are a perfect reminder that there's simply too 
 
 After my time in Chennai, I took an overtime train to Mysore in the south western state of Karnataka and spent New Year's there.
 
-![Mysore (2019/2020) — photo 1](/assets/travel/mysore-01.jpg)
+![Mysore (2019/2020) — photo 1](/assets/travelbig/mysore-01.jpg)
 
 This city of under a million people was once at the heart of the Kingdom of Mysore, an Indian realm that lasted for nearly six centuries until 1956, when it was absorbed by British rule. Thanks to a long history of royal patronage, arts and culture flourished in Mysore and it is lauded to this day as the cultural capital Karnataka.
 
 The masterpiece of the city is Mysore Palace, the grandiose residence of the Wadiyar royal family. It was originally constructed in the 14th century and was rebuilt and renovated several times throughout history.
 
-![Mysore (2019/2020) — photo 2](/assets/travel/mysore-02.jpg)
+![Mysore (2019/2020) — photo 2](/assets/travelbig/mysore-02.jpg)
 
 Mysore Palace is a three-storeys tall structure, composed of fine granite, with pink marble domes. Most strikingly, it is an energetic hybrid of Gothic, Hindu, Mughal and Rajput architectural styles.
 
 Interestingly, the former royal family of Mysore survives to this day. Although the household no longer retains any official titles or privileges in modern time, the current head of the Wadiyar dynasty is still often referred to as the 'Maharaja of Mysore'.
 
-![Mysore (2019/2020) — photo 3](/assets/travel/mysore-03.jpg)
+![Mysore (2019/2020) — photo 3](/assets/travelbig/mysore-03.jpg)
 
 Below: the opulent Ambavilasa Hall, once used by the king for private audiences.
 
 And below: the beautifully carved Durbar Hall, which was used as a public audience hall.
 
-![Mysore (2019/2020) — photo 4](/assets/travel/mysore-04.jpg)
+![Mysore (2019/2020) — photo 4](/assets/travelbig/mysore-04.jpg)
 
 Aside from the palace, there is also the city itself. I quite liked it as a city. After the unplanned chaos of Chennai, I found Mysore, by contrast, to be a relatively clean, organised and easy to navigate by Indian city standards.
 
-![Mysore (2019/2020) — photo 5](/assets/travel/mysore-05.jpg)
+![Mysore (2019/2020) — photo 5](/assets/travelbig/mysore-05.jpg)
 
 On New Year's Day, I took the local bus to the top of the Chamundi Hills and hiked the over 1,000 ancient stone steps back down from the summit.
 
 What a view! The hill, and the temple on top of it, is dedicated to the goddess Chamundi, the presiding deity of Mysore.
 
-![Mysore (2019/2020) — photo 6](/assets/travel/mysore-06.jpg)
+![Mysore (2019/2020) — photo 6](/assets/travelbig/mysore-06.jpg)
 
 Halfway down the summit is a huge granite statue of Nandi, the vehicle of Lord Shiva. During my hike, I observed many religious devotees taking the stone steps up towards the temple. As an act of piety, some of the women taking this journey were applying patiently vermillion and turmeric to each stone step as they ascended.
 
 And that summarises my brief stay in Mysore! Onward to the next Indian destination!
 
-![Mysore (2019/2020) — photo 7](/assets/travel/mysore-07.jpg)
+![Mysore (2019/2020) — photo 7](/assets/travelbig/mysore-07.jpg)
 
 ## The British Museum, London (2020)
 
@@ -1497,17 +1497,17 @@ And that summarises my brief stay in Mysore! Onward to the next Indian destinati
 
 ### The day before it closed due to the pandemic...
 
-![The British Museum, London (2020) — photo 1](/assets/travel/the-british-museum-london-01.jpg)
+![The British Museum, London (2020) — photo 1](/assets/travelbig/the-british-museum-london-01.jpg)
 
 Snaps from the glorious British Museum the day before it shut down in March as a result of the COVID-19 outbreak in the UK. It's dignified, it's elegant, and it's a world-class display of Britannia's best war booty from its many years of plundering and/or civilising the rest of the world.
 
 The museum holds priceless, famous, and very controversial artefacts such as the Rosetta Stone (which helped unlock our understanding of the ancient Egyptian language), the Elgin Marbles (which were originally part of the Parthenon in Athens), and the Benin Bronzes (that once decorated the royal palace of the Kingdom of Benin in modern-day Nigeria). These objects, among many others, have highly contested ownership.
 
-![The British Museum, London (2020) — photo 2](/assets/travel/the-british-museum-london-02.jpg)
+![The British Museum, London (2020) — photo 2](/assets/travelbig/the-british-museum-london-02.jpg)
 
 I often find that exploring a museum is as much an act of self-discovery as it is uncovering a particular collection. I find myself often mysteriously drawn to particular, idiosyncratic items for instinctual reasons. That blip, that feeling of magnetism to an object can be an intriguing and even thrilling sensation to have.
 
-![The British Museum, London (2020) — photo 3](/assets/travel/the-british-museum-london-03.jpg)
+![The British Museum, London (2020) — photo 3](/assets/travelbig/the-british-museum-london-03.jpg)
 
 Examples of items I found myself loving in this museum:
 
@@ -1517,27 +1517,27 @@ The complaint tablet to Ea-nase, an ancient Babylonian clay tablet from 1750 BC 
 
 The stunningly beautiful decorative plates, helmets and jewelled cups in the Waddesdon Bequest gallery on the ground floor.
 
-![The British Museum, London (2020) — photo 4](/assets/travel/the-british-museum-london-04.jpg)
+![The British Museum, London (2020) — photo 4](/assets/travelbig/the-british-museum-london-04.jpg)
 
 And who can't help but be awed by the museum's Easter Island statue (or moai) or the marvellous African artistry of the Benin Bronzes?
 
-![The British Museum, London (2020) — photo 5](/assets/travel/the-british-museum-london-05.jpg)
+![The British Museum, London (2020) — photo 5](/assets/travelbig/the-british-museum-london-05.jpg)
 
 Again, pity about their disputed ownership...
 
-![The British Museum, London (2020) — photo 6](/assets/travel/the-british-museum-london-06.jpg)
+![The British Museum, London (2020) — photo 6](/assets/travelbig/the-british-museum-london-06.jpg)
 
 It was sad, of course, to see the museum in such a quiet state as a result of the spread of the COVID-19 pandemic into the UK. It was quite eerie, in fact. I wouldn't be surprised if this was the quietest the British Museum had ever been in years. And who could blame anyone --- a global pandemic will do that to visitor numbers.
 
 What a wonderful place, though. I certainly hope that as we overcome this awful virus, this incredible museum, along with many others the world over, will return to life.
 
-![The British Museum, London (2020) — photo 7](/assets/travel/the-british-museum-london-07.jpg)
+![The British Museum, London (2020) — photo 7](/assets/travelbig/the-british-museum-london-07.jpg)
 
 ## Udaipur (2020)
 
 *Posted 1 March 2021*
 
-![Udaipur (2020) — photo 1](/assets/travel/udaipur-01.jpg)
+![Udaipur (2020) — photo 1](/assets/travelbig/udaipur-01.jpg)
 
 ### Udaipur: The City of Lakes
 
@@ -1545,17 +1545,17 @@ What a wonderful place, though. I certainly hope that as we overcome this awful 
 
 Ah, Udaipur... The City of Lakes, Palaces, Temples, Forts, and Lakes! This city was certainly a stark contrast after an overnight train out of electrifying, madcap Mumbai. It was the historic capital of the kingdom of Mewar and has been acclaimed as one of the most visually romantic corners of India. Prosperous, bucolic, culturally rich, and garden-like. There's no place quite like it on the subcontinent.
 
-![Udaipur (2020) — photo 2](/assets/travel/udaipur-02.jpg)
+![Udaipur (2020) — photo 2](/assets/travelbig/udaipur-02.jpg)
 
 ### 2. The City Palace of Udaipur
 
 Built on the banks of Lake Pichola, this beautiful compound was once the living quarters and administrative centre for the Maharanas of the (still surviving) House of Mewar, who ruled this corner of India for centuries. The exuberant, almost theatrical palatial complex was built over a period of nearly four centuries and provides an excellent view of the surrounding city. Its showy granite and marble façade, its celebrated glasswork, its storied paintings, and its countless, delicately handcrafted nooks and crannies are terrific to behold. It is astonishing that so much of it has remained intact over the ages.
 
-![Udaipur (2020) — photo 3](/assets/travel/udaipur-03.jpg)
+![Udaipur (2020) — photo 3](/assets/travelbig/udaipur-03.jpg)
 
 I'd describe parts of the City Palace as almost *painfully beautiful*. At one point on my tour of the palace, I nearly teared up from the exquisiteness of the artwork and architecture. It sounds silly but it's true. Maybe it was just the mood I was in, I don't know. Point is, the palace is a must visit.
 
-![Udaipur (2020) — photo 4](/assets/travel/udaipur-04.jpg)
+![Udaipur (2020) — photo 4](/assets/travelbig/udaipur-04.jpg)
 
 ### 3. The best meal of my India trip so far?
 
@@ -1565,17 +1565,17 @@ You'd try and be modest with the refills and they'd just throw food at you. The 
 
 An aside: whenever I say I'm from Australia, the conversations I've had with Indian locals tend to revolve around only two topics: bushfires and cricket. The former is upsetting to talk about and the latter I have no clue about. Very occasionally they'd ask me if it's true that Sydney women are the most beautiful in the world. This has happened multiple times. Very strange.
 
-![Udaipur (2020) — photo 5](/assets/travel/udaipur-05.jpg)
+![Udaipur (2020) — photo 5](/assets/travelbig/udaipur-05.jpg)
 
 ### 4. Photos from the other side of Udaipur
 
 Depicted here: Donkey jams on the road, narrow alleyways (where mopeds race down at breakneck speeds), sleepy rooftop scenes, wedding processions, and fascinating Rajasthani folk dances (the firepots are used in the Chari dance for auspicious occasions and the stack of pots are used in the Bhavai dance to show off the balancing skills of the women in the community).
 
-![Udaipur (2020) — photo 6](/assets/travel/udaipur-06.jpg)
+![Udaipur (2020) — photo 6](/assets/travelbig/udaipur-06.jpg)
 
 One morning while in Udaipur, I hopped on the back of a scooter with my guesthouse owner (no helmet, obviously) and zipped down to the local market to buy some mutton. The butcher, squatting in blood-stained jeans, was wildly hacking at a goat leg on a stump with a rusty knife while a small boy was tossing squirming chickens — three in each hand — into a cramped pen.
 
-![Udaipur (2020) — photo 7](/assets/travel/udaipur-07.jpg)
+![Udaipur (2020) — photo 7](/assets/travelbig/udaipur-07.jpg)
 
 I cast my mind back to when I was on the train out of Mumbai, and I recall watching the street kids celebrating Makar Sankranti (which marks the end of the winter solstice and the start of longer days) by flying kites. They flew them into overhead powerlines and they flew them while playing on the train tracks. And all over Udaipur, day labourers stand far above the ground on precarious bamboo scaffolding with no safety equipment, renovating old heritage buildings by hand for a pittance. I think India, like so much of the Global South, is a simultaneously thrilling and frightful place for travellers precisely because the motto is "safety second". Take it or leave it, lean towards it or turn away from it, it'll always be there — countless stories of daily close calls, routine near misses, and humdrum narrow escapes.
 
@@ -1583,13 +1583,13 @@ I cast my mind back to when I was on the train out of Mumbai, and I recall watch
 
 Cowabunga dudes! Check out my new sunnies! 200 rupees, no UV protection, probably still overpriced. I'm finally as cool as the '90s.
 
-![Udaipur (2020) — photo 8](/assets/travel/udaipur-08.jpg)
+![Udaipur (2020) — photo 8](/assets/travelbig/udaipur-08.jpg)
 
 While I was in Udaipur, an odd realisation dawned on me: I'm privileged enough to travel in high and low circles, to move up and down the pecking ladder of the countries I visit, to shift between both luxurious and needful spaces. That may sound extremely vague (and it is!) so I'll try and offer examples. On one of my days here, I went on a boat cruise around Lake Pichola and stopped at Jagmandir, a former island palace and current luxury hotel, and had an obscenely expensive coffee (still cheaper than a Melbourne latte, mind you). Yet earlier that morning, my breakfast consisted of a deep-fried sandwich and a glass of chai at a roadside stall for thirty rupees (a bit over 60 Australian cents). I stood there with my chai watching the world go by in the company of middle-aged men who would probably be lucky to earn in a single day what I casually slapped down on that island hotel coffee.
 
 Similarly, I've had indulgent dinners at rooftop restaurants (pictured: laal maans, a spicy mutton curry specialty of Rajasthan) on the same day I've had a street food lunch for literal pennies. I've had expensive Mumbai cocktails and I may or may not have come across a two rupee cannabis concoction called bhola.
 
-![Udaipur (2020) — photo 9](/assets/travel/udaipur-09.jpg)
+![Udaipur (2020) — photo 9](/assets/travelbig/udaipur-09.jpg)
 
 I've toured boutique hotels (note my photos of the hand-painted pink and blue dining rooms) and I've stayed in spartan accommodation with almost no hot water, where I've learnt how to have bucket showers, crudely hand wash my clothes, sweep the floor with grass brooms, and drink "Indian style" from shared metal cups (i.e. no touching the rim with your lips).
 
@@ -1599,7 +1599,7 @@ I wonder what this makes me. Moving up and down, high and low. Splashing out and
 
 ### 6. Other visits and bits and pieces
 
-![Udaipur (2020) — photo 10](/assets/travel/udaipur-10.jpg)
+![Udaipur (2020) — photo 10](/assets/travelbig/udaipur-10.jpg)
 
 And here are my final set of Udaipur photos before I shift to writing about bigger and better things:
 
@@ -1607,13 +1607,13 @@ And here are my final set of Udaipur photos before I shift to writing about bigg
 - The resplendent, hand-carved Jagdish Temple. The temple has been a continuous site of worship for approximately 370 years. Hardly any surface is left unadorned. Every niche is populated with ornate stone carvings.
 - And the most important tourist attraction for me... food! Pyaj Kachori, a wonderful fried pastry stuffed with a spicy onion mixture and a specialty of the region. Go away glorious history, go away stunning vistas. This is all I actually need. Nothing else matters.
 
-![Udaipur (2020) — photo 11](/assets/travel/udaipur-11.jpg)
+![Udaipur (2020) — photo 11](/assets/travelbig/udaipur-11.jpg)
 
 ### 7. In conclusion
 
 What more can I say? Udaipur. City of Lakes. It's a nice place. Next stop: Even more of the glorious northern state of Rajasthan.
 
-![Udaipur (2020) — photo 12](/assets/travel/udaipur-12.jpg)
+![Udaipur (2020) — photo 12](/assets/travelbig/udaipur-12.jpg)
 
 ## Varanasi (2020)
 
@@ -1625,13 +1625,13 @@ So after exploring one corner of Uttar Pradesh, I made my way to other. All the 
 
 1. A sunrise boat ride on the Ganges Taking a sunrise boat trip on the Ganga was truly one of the most memorable early morning experiences I've ever had. To make matters better, I was hanging out with Indian visitors who were able to haggle for the local price, not the exorbitant foreigner one. It's wonderful to travel a country with domestic tourists and experience how Indians explore their own country.
 
-![Varanasi (2020) — photo 1](/assets/travel/varanasi-01.jpg)
+![Varanasi (2020) — photo 1](/assets/travelbig/varanasi-01.jpg)
 
 Washed in quiet sunlight, Varanasi felt to me like a city that is simultaneously from another time and out of time entirely. Hindus come from all over India to Varanasi and other points along the river to pray and perform sacred rituals. Bathing in its waters is said to cleanse an individual of their sins and having one's ashes scattered in it is said to bring them closer to breaking the cycles of death and rebirth.
 
 And as many of you know, it is also one of the most dangerously polluted rivers on the planet. I'm talking urban sewage, industrial chemicals, pesticides, and astronomically high levels of fecal coliform bacteria, among other ingredients. So unless it is part of your belief
 
-![Varanasi (2020) — photo 2](/assets/travel/varanasi-02.jpg)
+![Varanasi (2020) — photo 2](/assets/travelbig/varanasi-02.jpg)
 
 system, don't dip your hands in the Ganges as I did! (The water is surprisingly lukewarm.)
 
@@ -1639,7 +1639,7 @@ Life and death. Energy and slumber. Purification and pollution. What a wild plac
 
 2. The Ganga Aarti at Dashashwamedh Ghat The must-see Ganga Aarti is a devotional ritual to the Goddess Ganga, the personification of the Ganges, conducted every single evening at dusk by Hindu priests on the river bank.
 
-![Varanasi (2020) — photo 3](/assets/travel/varanasi-03.jpg)
+![Varanasi (2020) — photo 3](/assets/travelbig/varanasi-03.jpg)
 
 The crowds were huge. The spectacle was highly choreographed. It managed to be both a deeply spiritual event for believers and a light-and-sound extravaganza for foreigners at the same time. There was fire. There was clapping. Hands flew up into the air and, regardless of whether everyone in attendance understood it or not, we were all shouting "Jai!" ("Victory!") by the end. I was certainly thrilled.
 
@@ -1647,7 +1647,7 @@ The crowds were huge. The spectacle was highly choreographed. It managed to be b
 
 And check out that massive stupa at the heart of it all! That's the Dhamek Stupa, which supposedly marks the exact spot where the Buddha first preached. Some real Big Dharma Energy right there.
 
-![Varanasi (2020) — photo 4](/assets/travel/varanasi-04.jpg)
+![Varanasi (2020) — photo 4](/assets/travelbig/varanasi-04.jpg)
 
 Terrible jokes aside, I found Sarnath a superbly serene place with monks and pilgrims chilling alongside their more basic tourist counterparts. I recalled the words from the Buddha's first sermon: "Unshakable is the liberation of my mind. This is my last birth. Now there is no more renewed existence."
 
@@ -1657,7 +1657,7 @@ The Lion Capital of Ashoka at Sarnath Museum depicting four Asiatic lions. Sculp
 
 4. Foods of Varanasi
 
-![Varanasi (2020) — photo 5](/assets/travel/varanasi-05.jpg)
+![Varanasi (2020) — photo 5](/assets/travelbig/varanasi-05.jpg)
 
 I like food. Varanasi has food. It also has streets. Which have food. I like Varanasi street food.
 
@@ -1673,7 +1673,7 @@ Lassi and thandai --- cold and creamy dairy-based drinks, often packed with a wi
 
 My photo below is of Manikarnika Ghat, Varanasi's main burning ghat, in a rare moment at dawn when there were no cremations. I passed through this site three times by foot (completely fine, as long as you don't take photos), each visit less daunting than the last. On my first visit, I was guided through inferno by my own third-rate Virgil --- a scammer-cum-guide who I tipped modestly. It was worth it, I think. The huge log piles. The open-air fires. The choking wood smoke. The barely tolerable heat. The endless sound of conflagration and axes hacking at logs. It's hard to explain.
 
-![Varanasi (2020) — photo 6](/assets/travel/varanasi-06.jpg)
+![Varanasi (2020) — photo 6](/assets/travelbig/varanasi-06.jpg)
 
 My favourite lassi shop in the city is also in death's firing line. As you sit there, drinking your mango/pomegranate/cannabis lassi, you can watch bodies being marched down to the river on bamboo stretchers every fifteen minutes or so. "Ram Naam Satya Hai!" chant the bearers. "The name of Lord Rama is the truth!" And without God's breath in a body, its truth disappears.
 
@@ -1683,13 +1683,13 @@ Truth be told, I became a bit clinical about all of it towards the end. But I'd 
 
 6. Concluding with Varanasi Varanasi. Benares. Banaras. Kashi. Call it whatever you want. It's a city of the ages that collects names, temples, pilgrims, holy men, mystics, scammers, druggies, and backpackers from all over the globe. White, dreadlocked hippies stoned out of their minds mingle with face-masked Chinese tour groups. What a place.
 
-![Varanasi (2020) — photo 7](/assets/travel/varanasi-07.jpg)
+![Varanasi (2020) — photo 7](/assets/travelbig/varanasi-07.jpg)
 
 What to see? What to photograph? Everything and nothing. Because Varanasi is all about motion --- the motions of people, animals, rituals, flags, sunrises and sunsets. There is no obvious cynosure, no apparent focal point for your attention. Life drums on here and your awareness dances with it.
 
 The literal rat warrens of the old city with its maze of dead-end alleyways. GPS doesn't work here. There is barely any mobile reception. Heaven forbid you asking for directions and then trying to understand them! Monkeys swinging on powerlines. Scooters vying for cobble-space with swollen bovines. Armed soldiers protecting temple entrances. Hand-painted shop signs reminding you that we can still make things with our fingers. What a place.
 
-![Varanasi (2020) — photo 8](/assets/travel/varanasi-08.jpg)
+![Varanasi (2020) — photo 8](/assets/travelbig/varanasi-08.jpg)
 
 As I currently write these words, I am sitting at King Khalid International Airport waiting for a connecting flight to Egypt. This place is the literal opposite of Varanasi and so much of India. Flat. Orderly. Quiet. New. Unbelievably clean. A motionless desert view. Though I think this might just be a restful interlude to even more chaos. The only way to find out is to board my next flight...
 
@@ -1723,13 +1723,13 @@ Early in the morning, prior to my flight back home, I jogged from the city centr
 
 Alright. I think it's time to head back to Melbourne and recover from the rest of my damn birthday cold.
 
-![Cradle Mountain and Launceston (2019) — photo 1](/assets/travel/cradle-mountain-and-launceston-01.jpg)
+![Cradle Mountain and Launceston (2019) — photo 1](/assets/travelbig/cradle-mountain-and-launceston-01.jpg)
 
 ## Jiufen, Houtong, and Shifen (2019)
 
 *Posted 30 October 2020*
 
-![Jiufen, Houtong, and Shifen (2019) — photo 1](/assets/travel/jiufen-houtong-and-shifen-01.jpg)
+![Jiufen, Houtong, and Shifen (2019) — photo 1](/assets/travelbig/jiufen-houtong-and-shifen-01.jpg)
 
 ### Unusual towns of northern Taiwan
 
@@ -1737,17 +1737,17 @@ North of the beautiful, energetic metropolis of Taipei, three interesting touris
 
 ### 1. Houtong
 
-![Jiufen, Houtong, and Shifen (2019) — photo 2](/assets/travel/jiufen-houtong-and-shifen-02.jpg)
+![Jiufen, Houtong, and Shifen (2019) — photo 2](/assets/travelbig/jiufen-houtong-and-shifen-02.jpg)
 
 Welcome to the Houtong Cat Village. When the local coal industry died in the 1990s, the villagers figured out an obvious solution: turn its unusually large cat population into a tourist attraction. Everywhere you wander, there are cats, cats, and more cats. I'll resist the temptation to make a very obvious feline pun. But somebody please tell America's Rust Belt they have a new economic strategy.
 
-![Jiufen, Houtong, and Shifen (2019) — photo 3](/assets/travel/jiufen-houtong-and-shifen-03.jpg)
+![Jiufen, Houtong, and Shifen (2019) — photo 3](/assets/travelbig/jiufen-houtong-and-shifen-03.jpg)
 
 ### 2. Shifen
 
 Shifen (which translates to "ten portions") is another historic mining town. The first thing you'll notice is the fact that the railway tracks run straight through the middle of the town. The second is that there are a lot of sky lanterns floating around. You're meant to write your wishes on them and launch them into the heavens. Of course, now and then, one of them fizzles out and tumbles back to earth. Haha! Wish denied!
 
-![Jiufen, Houtong, and Shifen (2019) — photo 4](/assets/travel/jiufen-houtong-and-shifen-04.jpg)
+![Jiufen, Houtong, and Shifen (2019) — photo 4](/assets/travelbig/jiufen-houtong-and-shifen-04.jpg)
 
 Close to the town is Shifen Waterfall , a scenic if modestly sized cascade. Nevertheless, at approximately forty metres in width, it's the broadest waterfall in Taiwan.
 
@@ -1755,7 +1755,7 @@ Close to the town is Shifen Waterfall , a scenic if modestly sized cascade. Neve
 
 Jiufen (which translates to "nine portions") is perhaps the most famous of these three towns. It is a bustling, lantern-filled town in the fog-shrouded mountains filled with trinket shops and delicious street food vendors. It proudly claims to be the real-life place that inspired the setting of Miyazaki's "Spirited Away". Nope! A quick internet search reveals that's just a popular myth, one that Miyazaki himself has debunked.
 
-![Jiufen, Houtong, and Shifen (2019) — photo 5](/assets/travel/jiufen-houtong-and-shifen-05.jpg)
+![Jiufen, Houtong, and Shifen (2019) — photo 5](/assets/travelbig/jiufen-houtong-and-shifen-05.jpg)
 
 Oh well... It's still a neat little place to explore and take photographs, of course.
 
@@ -1763,7 +1763,7 @@ Oh well... It's still a neat little place to explore and take photographs, of co
 
 *Posted 23 October 2020*
 
-![Kaohsiung (2019) — photo 1](/assets/travel/kaohsiung-01.jpg)
+![Kaohsiung (2019) — photo 1](/assets/travelbig/kaohsiung-01.jpg)
 
 The Dome of Light, the world's largest glass artwork at one of Kaohsiung's major subway stations.
 
@@ -1775,21 +1775,21 @@ Unlike the eastern coastline, which was filled with lush natural beauty, the wes
 
 But even so, I still came across some truly bright points of interest in Kaohsiung.
 
-![Kaohsiung (2019) — photo 2](/assets/travel/kaohsiung-02.jpg)
+![Kaohsiung (2019) — photo 2](/assets/travelbig/kaohsiung-02.jpg)
 
 Railsea, Taiwan edition. At the Hamasen Railway Cultural Park.
 
 The Pier-2 Art Centre. Originally a series of abandoned warehouses by the sea, the area found a new lease on life as a colourful district for contemporary artists. It's eclectic, it's vibrant, and it's a delight to meander around this place and stumble across peculiar and idiosyncratic public installations, both big and small.
 
-![Kaohsiung (2019) — photo 3](/assets/travel/kaohsiung-03.jpg)
+![Kaohsiung (2019) — photo 3](/assets/travelbig/kaohsiung-03.jpg)
 
 Lotus Pond. Despite the humble name, it is, in fact, a sizeable artificial lake surrounded by Confucian, Taoist and folk religion temples. Created in the 1950s, this place provides is a technicolour tour of local beliefs and traditional architecture.
 
-![The Dragon and Tiger Pagodas.](/assets/travel/kaohsiung-04.jpg)
+![The Dragon and Tiger Pagodas.](/assets/travelbig/kaohsiung-04.jpg)
 
 *The Dragon and Tiger Pagodas.*
 
-![Kaohsiung (2019) — photo 5](/assets/travel/kaohsiung-05.jpg)
+![Kaohsiung (2019) — photo 5](/assets/travelbig/kaohsiung-05.jpg)
 
 I was lucky enough to show up at the lake during a large "miaohui" temple gathering in which various groups paraded to the temples, banged drums, and set off firecrackers. But the most popular group by far was the convoy of mini-jeeps, blasting loud techno music, with pole dancers performing on top of them. Don't believe me? Here is my somewhat-shaky-video proof:
 
@@ -1797,13 +1797,13 @@ Yes. Wow. I guess even the gods need livelier forms of entertainment sometimes..
 
 What more can I say? It was a quirky day in the city.
 
-![Kaohsiung (2019) — photo 6](/assets/travel/kaohsiung-06.jpg)
+![Kaohsiung (2019) — photo 6](/assets/travelbig/kaohsiung-06.jpg)
 
 ## Observations of Perth (2019)
 
 *Posted 31 October 2021*
 
-![Quokka! Setonix brachyurus!](/assets/travel/observations-of-perth-01.jpg)
+![Quokka! Setonix brachyurus!](/assets/travelbig/observations-of-perth-01.jpg)
 
 *Quokka! Setonix brachyurus!*
 
@@ -1815,11 +1815,11 @@ This remark struck a chord with me. I too want to be able to look harder when I 
 
 Skyline from Kings Park and A rugged spot near Cottesloe Botanic Garden Beach And what better place to practice this skill than in an overlooked city in one's own country? The reason I wanted to visit Perth is quite simply that there is never really a reason to visit Perth. Outside of work, academic conferences, or family gatherings, there are few incentives for flying four hours out of our comfortable eastern states to the capital of
 
-![Observations of Perth (2019) — photo 2](/assets/travel/observations-of-perth-02.jpg)
+![Observations of Perth (2019) — photo 2](/assets/travelbig/observations-of-perth-02.jpg)
 
 Western Australia. The fact that I had no profound motive was the compelling force behind my visitation.
 
-![Cottesloe Beach and the Indiana Teahouse](/assets/travel/observations-of-perth-03.jpg)
+![Cottesloe Beach and the Indiana Teahouse](/assets/travelbig/observations-of-perth-03.jpg)
 
 *Cottesloe Beach and the Indiana Teahouse*
 
@@ -1827,17 +1827,17 @@ Ideally, I would've taken the three day Indian Pacific across the Nullarbor (I h
 
 The Swan Bell Tower The city at night And yet here --- on the far edge of the Indian Ocean --- we have a clean, beautiful city of nearly two million people with a high standard of living. Sure, the wealth that can be dug up from the surrounding dirt helps, but translating primary resource extraction into urban success is never
 
-![Observations of Perth (2019) — photo 4](/assets/travel/observations-of-perth-04.jpg)
+![Observations of Perth (2019) — photo 4](/assets/travelbig/observations-of-perth-04.jpg)
 
 guaranteed. Perthians (Perthites?) should be happy with their dice roll. The city's about as good as it gets given the economic geography.
 
-![Riverine luxury](/assets/travel/observations-of-perth-05.jpg)
+![Riverine luxury](/assets/travelbig/observations-of-perth-05.jpg)
 
 *Riverine luxury*
 
 Some of this can be explained by the seeds of history. Perth was once simply known as the Swan River Colony. Established in 1829, it was a lonely and struggling British colony on the remote reaches of a harsh continent. That was, until the discovery of extraordinarily rich veins of gold in Western Australia in the 1890s. This sparked a gold rush, which tripled Perth's population in the ten years from 1891 to 1901. The city's economic future was firmly secure from that point on. Even today, the Perth Mint (which I recommend visiting) distributes some $18 billion worth of pure gold, silver and platinum bullion bars around the world every year.
 
-![Observations of Perth (2019) — photo 6](/assets/travel/observations-of-perth-06.jpg)
+![Observations of Perth (2019) — photo 6](/assets/travelbig/observations-of-perth-06.jpg)
 
 So what to say about Perth specifically?
 
@@ -1845,7 +1845,7 @@ Perth's cafes open nice and early but the supermarket hours are lazy. I was mild
 
 I've recently started warming up to brutalist architecture and the city has some great examples of the style. The Perth Cultural Centre is lovely, reminding me of a small, slightly rundown Go8 university courtyard. I enjoyed the Art Gallery of Western Australia but the Perth Institute of Contemporary Art, despite having an attractive facade, was disappointingly uninspired. A shame too that the Western Australian Museum is currently closed for redevelopment when I was there. And I was not a fan of the new building plan. Why smother such a handsome building in a giant metal box?
 
-![Gotta support the local arts scene](/assets/travel/observations-of-perth-07.jpg)
+![Gotta support the local arts scene](/assets/travelbig/observations-of-perth-07.jpg)
 
 *Gotta support the local arts scene*
 
@@ -1853,35 +1853,35 @@ The waterfront felt very underdeveloped given its closeness to the commercial he
 
 Kings Park is also rightfully a highlight. Much is said about how it is larger than Central Park in New York, or most urban parks in the world for that matter. The verticality of it probably helps. All you have to do is claim a large enough hill as parkland and mission accomplished. I spent a good two or so hours getting lost in the park, listening to podcasts and taking photos of wildflowers.
 
-![Observations of Perth (2019) — photo 8](/assets/travel/observations-of-perth-08.jpg)
+![Observations of Perth (2019) — photo 8](/assets/travelbig/observations-of-perth-08.jpg)
 
 Interestingly, Kings Park also has one of the laxest and unsolemn state war memorials I've ever visited, with picnickers, frisbee throwers, and sunbathers in dangerously unpatriotic proximity to the eternal flame. Distinct and faraway Australians indeed.
 
 I have little to say about Fremantle beyond that I can verify it is very nice. What I found most impressive about it is that its arty, trendy scene sits directly alongside its industrial port operations. They are practically on top of each other. I can't think of many other places I've been where blue-collar industry and bourgeois amenities can coexist smoothly without one crowding out the other. I might also add that Fremantle Prison was fascinatingly glum. My tour guide enjoyed describing the step-by-step process of convict floggings a bit too much. And the fact
 
-![Observations of Perth (2019) — photo 9](/assets/travel/observations-of-perth-09.jpg)
+![Observations of Perth (2019) — photo 9](/assets/travelbig/observations-of-perth-09.jpg)
 
 that the prison had no flush toilets for its inmates and used buckets right up until its closure in 1991(!) is astounding.
 
 Fremantle Prison, one of Australia's major historic convict sites And yes! Rottnest Island is as beautiful as you've heard it to be...
 
-![Observations of Perth (2019) — photo 10](/assets/travel/observations-of-perth-10.jpg)
+![Observations of Perth (2019) — photo 10](/assets/travelbig/observations-of-perth-10.jpg)
 
 But with that said, I have a more substantive comment to make about Rottnest Island:
 
 I did not know about the island's brutal history until I visited the small and unassuming Rottnest Island Museum. Between 1838 and 1932, around 3,700 Aboriginal men and boys were imprisoned on the island. One in ten died of influenza or measles and the island was
 
-![Observations of Perth (2019) — photo 11](/assets/travel/observations-of-perth-11.jpg)
+![Observations of Perth (2019) — photo 11](/assets/travelbig/observations-of-perth-11.jpg)
 
 dubbed the "Black Man's Grave" by the local papers. Indeed, as you cycle around the island, it is easy to see what a harsh environment it must've been for them, with very little natural shelter or resources to speak of. No one apparently talks about this. A friend I visited in Perth confirmed that this is an uncomfortable and unspoken aspect of the city's favourite holiday destination.
 
-!['Greetings from Rottnest' by Sally Morgan (1988)](/assets/travel/observations-of-perth-12.jpg)
+!['Greetings from Rottnest' by Sally Morgan (1988)](/assets/travelbig/observations-of-perth-12.jpg)
 
 *'Greetings from Rottnest' by Sally Morgan (1988)*
 
 Conclusion. I thought Perth was genuinely an interesting place to visit. Lots of history. Lots of art. Stunning weather. Agreeable coffee. Not a "perfect" Australian holiday destination, but that's kind of the point. Hunting for perfectibility is uninspiring. There is plenty to see and do in Perth over a long weekend and (most crucially) reflect on and write about at the trip's end.
 
-![Oh, and here's an obligatory quokka selfie](/assets/travel/observations-of-perth-13.jpg)
+![Oh, and here's an obligatory quokka selfie](/assets/travelbig/observations-of-perth-13.jpg)
 
 *Oh, and here's an obligatory quokka selfie*
 
@@ -1889,7 +1889,7 @@ Conclusion. I thought Perth was genuinely an interesting place to visit. Lots of
 
 *Posted 2 September 2022*
 
-![Kek Lok Si Temple](/assets/travel/penang-01.jpg)
+![Kek Lok Si Temple](/assets/travelbig/penang-01.jpg)
 
 *Kek Lok Si Temple*
 
@@ -1903,11 +1903,11 @@ The Clan Jetties Now for a change in perspectives. Just slightly adjacent to Geo
 
 I generally have quite a high tolerance for stuff like this (e.g. open greywater gutters, trash piles festering on the roadside, open-air restaurants next to truck fumes, rats the size of small cats) and have seen much worse examples outside of Malaysia, but others might find it less bearable.
 
-![Penang Hill](/assets/travel/penang-02.jpg)
+![Penang Hill](/assets/travelbig/penang-02.jpg)
 
 *Penang Hill*
 
-![How it began...](/assets/travel/penang-03.jpg)
+![How it began...](/assets/travelbig/penang-03.jpg)
 
 *How it began...*
 
@@ -1915,7 +1915,7 @@ One morning, I decided to take an exhausting hike to the top of Penang Hill wher
 
 After a while, I emerged from the bush like a sweaty, delirious wild man onto a very touristy hilltop. Everyone else either drove or took the funicular to the top like respectable members of society. Such is the way I like to do things sometimes. I refuse to regret it.
 
-![How it finished...](/assets/travel/penang-04.jpg)
+![How it finished...](/assets/travelbig/penang-04.jpg)
 
 *How it finished...*
 
@@ -1951,7 +1951,7 @@ Time to make your choice. Get up and order some chicken skewers. It's better tha
 
 *Posted 6 November 2020*
 
-![Jing'an temple in downtown Shanghai](/assets/travel/shanghai-01.jpg)
+![Jing'an temple in downtown Shanghai](/assets/travelbig/shanghai-01.jpg)
 
 *Jing'an temple in downtown Shanghai*
 
@@ -1959,65 +1959,65 @@ Time to make your choice. Get up and order some chicken skewers. It's better tha
 
 Shanghai, what a metropolis! The largest city in the People's Republic of China and the second-most populous city proper on the planet. Arriving into the city from the smoggy industrial sprawls of the Jiangsu Province was a godsend. Crisp, clean air. Here, the air is dense with something other than the belching of coal-fired plants and light manufactories. It's redolent of international finance, fashion, retail, professional services and real estate: the perfume of global capital flows!
 
-![Shanghai (2019) — photo 2](/assets/travel/shanghai-02.jpg)
+![Shanghai (2019) — photo 2](/assets/travelbig/shanghai-02.jpg)
 
 When Anthony Bourdain called Shanghai the most materialistic place on earth, he wasn't kidding. During my short stay, I had the opportunity to visit a private yacht club and peek into its decadent wine cellars. I strolled into a Louis Vuitton showcase at the Exhibition Centre just for kicks. I drank Hennessy XO Cognac (mixed with sweet tea!) at the VIP table of a booming nightclub with my father and his 40+-year-old investor colleagues (don't ask). This city is a relentless, gilded cynosure.
 
-![Shanghai (2019) — photo 3](/assets/travel/shanghai-03.jpg)
+![Shanghai (2019) — photo 3](/assets/travelbig/shanghai-03.jpg)
 
 Unlike many other urban centres in the Yangtze River Delta region, where economic growth has supplanted aesthetics with hedgerows of copy-pasted Soviet-style buildings, Shanghai is very pleasing to the eye. Is it as visually attractive as global cities like New York, Paris, and Hong Kong? Not really. But after spending so much time in banal, industrially stamped Chinese cities to the north, seeing the old European banks, consulates, clubs and trading houses of the Shanghai Bund was deeply refreshing. It was a shame that when I visited the Bund, I couldn't see Shanghai's iconic skyline through the mist.
 
-![A misty view of Pudong from The Bund](/assets/travel/shanghai-04.jpg)
+![A misty view of Pudong from The Bund](/assets/travelbig/shanghai-04.jpg)
 
 *A misty view of Pudong from The Bund*
 
 Overall, I found Shanghai fairly walkable, which I like in my cities. Also, it's hard to become even remotely lost with so much English everywhere.
 
-![Shanghai (2019) — photo 5](/assets/travel/shanghai-05.jpg)
+![Shanghai (2019) — photo 5](/assets/travelbig/shanghai-05.jpg)
 
 Likewise, the French Concession is a lovely area to walk around. Hate to admit this, but a colonial history can, at the very least, make a city nicer to look at.
 
-![Shanghai (2019) — photo 6](/assets/travel/shanghai-06.jpg)
+![Shanghai (2019) — photo 6](/assets/travelbig/shanghai-06.jpg)
 
 Even so, the Chinese way of unleashing cycles of creative (and un-creative) destruction has left its mark. Consider the stunning, glittering Jing'an Temple on West Nanjing Road. On paper, sure, this Buddhist temple has existed since the 12th century. In reality, it was repeatedly destroyed and rebuilt over the centuries and was, at its nadir, converted into a plastics factory during the Cultural Revolution. The current temple, as grand as it is, is only 35 years old. Such is the case with many "historical" sites in Mainland China.
 
-![Shanghai (2019) — photo 7](/assets/travel/shanghai-07.jpg)
+![Shanghai (2019) — photo 7](/assets/travelbig/shanghai-07.jpg)
 
 The people are Big City Brusque, as you'd expect. But they're not pathologically rude, like the denizens of Beijing. Shanghaiers also don't seem to spit on the streets that much (an infamous habit of many PRC pedestrian, I'm afraid to say). The subways (which are, as you'd expect, seamless networks of efficiency) have all the usual public transport PSAs: where to stand, how to let passengers off first, how to be a courteous commuter. Yet no one follows them. They do in Taipei. They do in Tokyo. They do in Singapore. They do in Hong Kong. But China is still China and does things China's way.
 
-![Shanghai (2019) — photo 8](/assets/travel/shanghai-08.jpg)
+![Shanghai (2019) — photo 8](/assets/travelbig/shanghai-08.jpg)
 
 Shanghai Museum was wonderful. Free too. Strolling around the building, I got a sense of just how different societies can appreciate art and culture in unique ways. Consider, for example, the Chinese calligraphy wing of the museum. While largely devoid of western tourists, there were throngs of Chinese visitors crowding around particular scrolls and taking photos of ancient Chinese poems. Could you transpose such admiration onto the western world? An analogy would be if the English romantic poets were also famed for their breathtaking penmanship and people travelled from far and wide to a museum in London just to gaze upon their original manuscripts.
 
-![Shanghai (2019) — photo 9](/assets/travel/shanghai-09.jpg)
+![Shanghai (2019) — photo 9](/assets/travelbig/shanghai-09.jpg)
 
 A quick note on food: The conversations about food in China would put most western foodies to shame. At the dinner table, I'd listen to people who were by no means social elites or intense connoisseurs talk endlessly about the best way to cook this breed of chicken, the best age to slaughter a piglet, the best region in China to source that vegetable, etc., etc. You could dedicate an entire lifetime to exploring the various cuisines of China and not even come close to covering it all.
 
-![Shanghai (2019) — photo 10](/assets/travel/shanghai-10.jpg)
+![Shanghai (2019) — photo 10](/assets/travelbig/shanghai-10.jpg)
 
 The photograph below: a view of Yu Garden in the Old City of Shanghai. A quiet, classical-style Chinese garden tucked away from the fevered energy of the modern city.
 
-![Shanghai (2019) — photo 11](/assets/travel/shanghai-11.jpg)
+![Shanghai (2019) — photo 11](/assets/travelbig/shanghai-11.jpg)
 
 Originally built in the 16th century during the Ming Dynasty, the garden has been pummelled by the forces of history. The garden was damaged during the First Opium Wars and was even used as a rebel hideout during the bloody Taiping rebellion. Thankfully, it has since been restored closer to its former glory.
 
-![Shanghai (2019) — photo 12](/assets/travel/shanghai-12.jpg)
+![Shanghai (2019) — photo 12](/assets/travelbig/shanghai-12.jpg)
 
 Shanghai is a place where high and low-tech intermingle incessantly. Cash is clearly on the way out since it seems you can pay at most places in Shanghai with only your smartphone via Wechat Pay or Alipay. I was often the only one paying in cash in some places. Yet everywhere you go, there are also simple street vendors, dealing in grubby notes.
 
-![Shanghai (2019) — photo 13](/assets/travel/shanghai-13.jpg)
+![Shanghai (2019) — photo 13](/assets/travelbig/shanghai-13.jpg)
 
 If you want to do your counterfeit shopping, I suggest you hop on the train to a nearby city. In Shanghai, given it's a global hub of big brand retail, you might accidentally buy the real thing! Still, you find the occasional oddities. I came across a few stores on Old Shanghai Street selling 'authentic mammoth tusks'. Right.
 
-![Shanghai (2019) — photo 14](/assets/travel/shanghai-14.jpg)
+![Shanghai (2019) — photo 14](/assets/travelbig/shanghai-14.jpg)
 
 Change, change, change. That is the unofficial motto of this entire region. In the 1990s, when the then paramount leader of China, Deng Xiaoping, introduced a suite of economic reforms, it triggered an intense redevelopment of Shanghai, especially in the Pudong New Area. The city was reformed as a nexus for global trade and finance, and houses one the largest stock exchanges in the world as well as the first free-trade zone on Chinese soil.
 
-![Shanghai (2019) — photo 15](/assets/travel/shanghai-15.jpg)
+![Shanghai (2019) — photo 15](/assets/travelbig/shanghai-15.jpg)
 
 And did it matter that my Standard Mandarin is spotty? This was something I was a little anxious about at the start of my visit. But, surprisingly, it didn't seem to matter much. With so much intra-national migration in China, I heard plenty of funky accents and dialects. I also heard a lot of switching between regional tongues and the "Beijing Standard". I could have (with a bit of effort) passed for a Chinese national, albeit a slightly strange one from a faraway province. Maybe.
 
-![The Oriental Pearl Radio and Television Tower](/assets/travel/shanghai-16.jpg)
+![The Oriental Pearl Radio and Television Tower](/assets/travelbig/shanghai-16.jpg)
 
 *The Oriental Pearl Radio and Television Tower*
 
@@ -2027,7 +2027,7 @@ And did it matter that my Standard Mandarin is spotty? This was something I was 
 
 Photos from the historic capital on Taiwan's western coast...
 
-![The Anping Old Fort, a historic Dutch fortress](/assets/travel/tainan-01.jpg)
+![The Anping Old Fort, a historic Dutch fortress](/assets/travelbig/tainan-01.jpg)
 
 *The Anping Old Fort, a historic Dutch fortress*
 
@@ -2051,19 +2051,19 @@ And lastly, I visited the charming Chihkan Tower. This was once the site of a Du
 
 Stop 1: Chennai After Malaysia, I made my way over to India. My first stop: Chennai, also known as Madras, the hectic capital of the Indian state of Tamil from the airport was almost the most Nadu. The taxi ride overstimulating thing I did all year!
 
-![The Ramakrishna Temple, Chennai](/assets/travel/tamil-nadu-india-01.jpg)
+![The Ramakrishna Temple, Chennai](/assets/travelbig/tamil-nadu-india-01.jpg)
 
 *The Ramakrishna Temple, Chennai*
 
 I spent my first day simply wandering around the city. I went to Marina Beach, one of the longest natural urban beach in the world, and got caught in the rain. I found the famous Fort St. George, first British fortress built in India, to be mediocre. I tried to visit one the major temples in the affluent, traditional neighbourhood of Mylapore and discovered it was closed. But I'm not even mad. In a post on travelling India, the economist Tyler Cowen writes: "Most of the sights in India, including the very famous ones, are overrated. The main sight is India itself, and that is underrated."
 
-![Tamil Nadu, India (2019) — photo 2](/assets/travel/tamil-nadu-india-02.jpg)
+![Tamil Nadu, India (2019) — photo 2](/assets/travelbig/tamil-nadu-india-02.jpg)
 
 I completely agree. The tourist hot spots were more useful as way points than destinations in and of themselves. Just walking down a few city blocks, getting from point A to point B was a complete thrill. It's all true, all of it -- the cows on the road, the frenzy of colours, the stray dogs, the cheap food, the trash, the energy of the place.
 
 I went to bed after my first full day with the phantom sounds of Chennai's chaotic traffic still ringing in my head. Indeed, I was told by a fellow traveller that I was going to have my best and worst days back-to-back in India. Hell, after a single day in Chennai, I felt like I'd had
 
-![Tamil Nadu, India (2019) — photo 3](/assets/travel/tamil-nadu-india-03.jpg)
+![Tamil Nadu, India (2019) — photo 3](/assets/travelbig/tamil-nadu-india-03.jpg)
 
 extreme highs and lows on an hourly basis. And my big India trip had barely just begun.
 
@@ -2073,7 +2073,7 @@ Chennai does not feel like it has a 'centre mass'. Believe me, I looking. It's t
 
 That said, the public transport is a lot of fun to ride. Dirt cheap buses and a suburban train system without any doors. I saw kids entertain themselves by holding onto the moving train and
 
-![Tamil Nadu, India (2019) — photo 4](/assets/travel/tamil-nadu-india-04.jpg)
+![Tamil Nadu, India (2019) — photo 4](/assets/travelbig/tamil-nadu-india-04.jpg)
 
 seeing how long they can slide their feet along the platform edge. High risk amusement! Also had my first run in with a Hijra (the Indian 'third gender', to put it in egregiously basic terms) on a suburban train trying to extort money off the passengers. Lots of fun!
 
@@ -2087,23 +2087,23 @@ Pictured above: The stunning Kapaleeshwarar Temple in Mylapore, dedicated to the
 
 Stop 2: Mamallapuram After a few days in Chennai I went down south to the coastal town of Mamallapura, best known for its temples and monuments of the Pallava
 
-![Tamil Nadu, India (2019) — photo 5](/assets/travel/tamil-nadu-india-05.jpg)
+![Tamil Nadu, India (2019) — photo 5](/assets/travelbig/tamil-nadu-india-05.jpg)
 
 dynasty from the 7th and 8th century.
 
-![The Shore Temple, built in the early 8th century](/assets/travel/tamil-nadu-india-06.jpg)
+![The Shore Temple, built in the early 8th century](/assets/travelbig/tamil-nadu-india-06.jpg)
 
 *The Shore Temple, built in the early 8th century*
 
 The whole place felt somewhat orderly, with few tours or beggars or overtly scammy sorts. My sense is that the place is struggling a bit with tourist volumes and --- more importantly --- the town underwent a frenzied beautification job when Narendra Modi and Xi Jinping met here during an informal summit in October.
 
-![Tamil Nadu, India (2019) — photo 7](/assets/travel/tamil-nadu-india-07.jpg)
+![Tamil Nadu, India (2019) — photo 7](/assets/travelbig/tamil-nadu-india-07.jpg)
 
 The Group of Monuments at Mahabalipuram, UNESCO World Heritage Site, is what makes this town so special. Huge open-air rock reliefs, beautiful stone-cut temples, and unusual rock formations mark this place with a remarkable fusion of religion, power, wealth, and artistry.
 
 What is also interesting is watching how this small seaside resort town 'works' - e.g. how the shopkeepers set up in the early morning and the way the fishermen operate. There are no seagulls here, only crows. Washed up all along the shore are poisonous blowfish, a very common bycatch. Also, no one has liquor licenses so the restaurants pay regular bribes to the police and you have to keep the beer you're having with your meal hidden under the table.
 
-![Tamil Nadu, India (2019) — photo 8](/assets/travel/tamil-nadu-india-08.jpg)
+![Tamil Nadu, India (2019) — photo 8](/assets/travelbig/tamil-nadu-india-08.jpg)
 
 A funny incident: One night in Mamallapuram, I was one of only two patrons at a seafood restaurant. We befriended the owner and he was like: "Hey! Come along to my friend's niece's puberty ceremony." Then he shut down his restaurant early and took us to a big, colourful 'puberty party'. I don't think anyone minded we were there. To the best of my understanding, in South Indian Hindu culture these ceremonies are known as "Ritusuddhi" and celebrate a girl's transition to womanhood after menarche (i.e. first occurrence of menstruation). There's gift giving, the lucky girl gets to wear a half-saree, and everyone is well fed.
 
@@ -2113,7 +2113,7 @@ How fascinating --- and that was just day three in India!
 
 Stop 3: Dhamma Setu Vipassana Meditation Centre After my brief stay in Mallampuram, I returned to Chennai for the main I was silent Vipassana India: reason in South 10-day a meditation course. I had originally wanted to write a post explaining
 
-![Tamil Nadu, India (2019) — photo 9](/assets/travel/tamil-nadu-india-09.jpg)
+![Tamil Nadu, India (2019) — photo 9](/assets/travelbig/tamil-nadu-india-09.jpg)
 
 how I became interested with meditation, my thoughts on the practice and belief system, how I want to reset my sleep cycle and caffeine tolerance, do a digital detox, etc., etc.
 
@@ -2123,7 +2123,7 @@ Wake up at 4am. Lights out by 9.30pm. Almost ten hours of meditation each day. I
 
 These experiences, from my understanding, are fairly typical for these types of courses. But to exacerbate matters, I had two health scares. One night, I contracted a fever that made me uncertain if I could continue and, on one of my final nights, I got severe burning rashes across my
 
-![Tamil Nadu, India (2019) — photo 10](/assets/travel/tamil-nadu-india-10.jpg)
+![Tamil Nadu, India (2019) — photo 10](/assets/travelbig/tamil-nadu-india-10.jpg)
 
 arms and legs as a result of allergic exposure to something in the environment.
 
@@ -2135,7 +2135,7 @@ And with that out of the way, it was onward to other parts of India...
 
 *Posted 2 June 2021*
 
-![The dumb things I do for social media photos...](/assets/travel/taroko-national-park-01.jpg)
+![The dumb things I do for social media photos...](/assets/travelbig/taroko-national-park-01.jpg)
 
 *The dumb things I do for social media photos...*
 
@@ -2145,7 +2145,7 @@ In early 2019, after a pleasant stay in Taipei, I took the train down the east c
 
 After a night in Hualien City, I hired a bicycle in the early morning and cycled deep into Taroko National Park. It is an extraordinary place, unlike anything I'd ever seen before, where the river is a deep blue-terrain are upon-blue, formations and mountainous the rock reminiscent of an ancient and serene Chinese landscape painting, and the water seems to weep mysteriously from the walls of the gorge.
 
-![Taroko National Park (2019) — photo 2](/assets/travel/taroko-national-park-02.jpg)
+![Taroko National Park (2019) — photo 2](/assets/travelbig/taroko-national-park-02.jpg)
 
 Highlights include the Eternal Spring Shrine, which commemorates the workers who died building the Central Cross-Island Highway that runs through the national park, the Swallow Grotto, where the nearby river walls contain caves that spring swallows nest in, and the marvellous and marblelous Taroko Gorge itself, obviously.
 
@@ -2155,29 +2155,29 @@ And don't conclude your bicycle tour the way I did either: With a downhill crash
 
 That was an extremely unfortunate accident and, to this day, I still have a nasty-looking scar on my right elbow as proof of my misadventures. Once I returned to the township and I had fixed myself up with some more bandages and gauze from the local convenience store, I quaffed down some Taiwan Beer to dull the pain and crawled into bed, wounded but alive...
 
-![Taroko National Park (2019) — photo 3](/assets/travel/taroko-national-park-03.jpg)
+![Taroko National Park (2019) — photo 3](/assets/travelbig/taroko-national-park-03.jpg)
 
 Pictured: a bandaged hand holding a can of cheap, alcohol-based painkilling medicine.
 
 Of course, the fun didn't stop there. The next day, I returned to the gorge and did a tour of the infamous Zhuilu Old Road. This is a narrow footpath winding along the edge of a sheer cliff, hundreds of metres above Taroko Gorge. Many parts have no handrails and a permit is required in advance, with less than 100 people allowed on the trail per day. It is an epic walk and, as my photos can attest, absolutely not suitable for anyone with even a hint of vertigo.
 
-![Taroko National Park (2019) — photo 4](/assets/travel/taroko-national-park-04.jpg)
+![Taroko National Park (2019) — photo 4](/assets/travelbig/taroko-national-park-04.jpg)
 
 The hike to the top was fine (ignoring the fact that I was still bleeding from the bicycle crash the day before) and the mountain mist helped suppress my fear of heights. But on the way back down, the weather -- I was hit with a dizzying fear of heights and cleared up and -- boom! shaky knees.
 
 While I returned to the ground intact, I definitely needed another Taiwan Beer after that second misadventure.
 
-![Taroko National Park (2019) — photo 5](/assets/travel/taroko-national-park-05.jpg)
+![Taroko National Park (2019) — photo 5](/assets/travelbig/taroko-national-park-05.jpg)
 
 Aside from mildly hazardous visits to the national park, I also had the opportunity to meet up with some fellow backpackers from Taipei and check out Hualien City as well. It is a small but interesting place, well worth a visit. For example, the Taiwanese indigenous peoples are much more visible here, certainly more so than in other major urban centres on the island. Because the city is close to a major air force base, you can constantly hear the thundering screams of fighter jets performing military drills overhead. And because the county is the heart of Taiwan's marble industry, many of the city streets are themselves paved with marble.
 
 I ate an array of delicious snacks at the local night market, admired the respectable array of imported whiskeys available at unassuming convenience stores (the Taiwanese love their whiskeys, it seems), and even tried chewing on a betel nut, or areca nut, which is a highly popular but problematic psychoactive substance consumed in this part of the world. Betel nuts can become addictive and give heavy users blood-stained teeth and even oral cancer. Also, it tastes disgusting.
 
-![Taroko National Park (2019) — photo 6](/assets/travel/taroko-national-park-06.jpg)
+![Taroko National Park (2019) — photo 6](/assets/travelbig/taroko-national-park-06.jpg)
 
 Post-script, or rather, a weird anecdote: On my final morning in Hualien, I swung by my friends' hostel and had the honour of meeting "Obama", the hostel owner's dog who, despite his namesake, was apparently very racist. And while he barked angrily at the, ahem, white guests, Obama-the-dog took an immediate liking to me. Yikes. What should we infer from this? How far can we take these allegations? What did you do, Obama? Why are you like this??
 
-![Don't let appearances deceive you...](/assets/travel/taroko-national-park-07.jpg)
+![Don't let appearances deceive you...](/assets/travelbig/taroko-national-park-07.jpg)
 
 *Don't let appearances deceive you...*
 
@@ -2185,19 +2185,19 @@ Post-script, or rather, a weird anecdote: On my final morning in Hualien, I swun
 
 *Posted 4 September 2020*
 
-![The Blue Mountains (2019) — photo 1](/assets/travel/the-blue-mountains-01.jpg)
+![The Blue Mountains (2019) — photo 1](/assets/travelbig/the-blue-mountains-01.jpg)
 
 Ah! An easy weekend train ride from Sydney to the peerless vistas of the Blue Mountains in New South Wales.
 
 Here are some photos of the Three Sisters, Katoomba Falls, Jamison Valley: all that classic bluey, mountainy stuff.
 
-![The Blue Mountains (2019) — photo 2](/assets/travel/the-blue-mountains-02.jpg)
+![The Blue Mountains (2019) — photo 2](/assets/travelbig/the-blue-mountains-02.jpg)
 
 I descended the Giant Stairway into the forest during my visit to the Blue Mountains. It was a somewhat disorientating descent... The metal staircase felt a bit rickety at points. Or perhaps that was just a trick of my mind.
 
 Regardless, the trip down and out of the valley was worth it.
 
-![The Blue Mountains (2019) — photo 3](/assets/travel/the-blue-mountains-03.jpg)
+![The Blue Mountains (2019) — photo 3](/assets/travelbig/the-blue-mountains-03.jpg)
 
 So why is there a blue haze over the mountains? It's from all the blue-coloured koala farts wafting up from the forest below. This is known as "Rayleigh Scattering". Geez, you people should learn more science.
 
@@ -2205,7 +2205,7 @@ So why is there a blue haze over the mountains? It's from all the blue-coloured 
 
 *Posted 2 November 2021*
 
-![The National Palace Museum, Taipei (2019) — photo 1](/assets/travel/the-national-palace-museum-taipei-01.jpg)
+![The National Palace Museum, Taipei (2019) — photo 1](/assets/travelbig/the-national-palace-museum-taipei-01.jpg)
 
 ### Photos from a visit to the highly impressive National Palace Museum in Taipei
 
@@ -2213,7 +2213,7 @@ Originally established in Beijing's Forbidden City after the last Emperor of Chi
 
 Firstly, no trip to the National Palace Museum should be done without a visit first to the Zhishan Garden, a classical Chinese garden housed within the museum compound that incorporates many of the aesthetic principles of Song and Ming dynasty gardening styles.
 
-![The National Palace Museum, Taipei (2019) — photo 2](/assets/travel/the-national-palace-museum-taipei-02.jpg)
+![The National Palace Museum, Taipei (2019) — photo 2](/assets/travelbig/the-national-palace-museum-taipei-02.jpg)
 
 The history of this museum is 'interesting' to say the least. As the Kuomingtang (KMT) government under Chiang Kai-shek began losing the Chinese Civil War to the Chinese Communist Party, the KMT undertook efforts to evacuate as many of the museum's most prized items to the island of Taiwan.
 
@@ -2221,21 +2221,21 @@ In all honesty, the National Palace Museum could be more accurately Best Qing Dy
 
 The existence of so many glorious artefacts of Chinese civilisation is obviously a sore point for the People's Republic of China. Personally, I'm
 
-![The National Palace Museum, Taipei (2019) — photo 3](/assets/travel/the-national-palace-museum-taipei-03.jpg)
+![The National Palace Museum, Taipei (2019) — photo 3](/assets/travelbig/the-national-palace-museum-taipei-03.jpg)
 
 not terribly fussed. How much of it would've survived the cultural destruction of the Cultural Revolution, for instance?
 
-![The National Palace Museum, Taipei (2019) — photo 4](/assets/travel/the-national-palace-museum-taipei-04.jpg)
+![The National Palace Museum, Taipei (2019) — photo 4](/assets/travelbig/the-national-palace-museum-taipei-04.jpg)
 
 However, I was deeply saddened to discover that the museum's famous 'Meat-shaped Stone' (literally a chunk of mineral carved into a slice of pork) was not on exhibit. Turned out it was on loan to the Art Gallery of New South Wales in Australia till May of that year! Oh no!
 
-![The National Palace Museum, Taipei (2019) — photo 5](/assets/travel/the-national-palace-museum-taipei-05.jpg)
+![The National Palace Museum, Taipei (2019) — photo 5](/assets/travelbig/the-national-palace-museum-taipei-05.jpg)
 
 And it just so happened that later in the year I had a chance to visit Sydney and duck inside the Art Gallery of New South Wales. And it was there! It was a monumental day in my cultural education. I am elated to have finally seen this masterpiece of Chinese art, having missed it when I visited the National Palace Museum in Taipei earlier this year.
 
 Behold! The famous Meat-shaped Stone, a piece of jasper carved into the shape of a delectable piece of pork belly. It is exquisite. It is sublime.
 
-![The National Palace Museum, Taipei (2019) — photo 6](/assets/travel/the-national-palace-museum-taipei-06.jpg)
+![The National Palace Museum, Taipei (2019) — photo 6](/assets/travelbig/the-national-palace-museum-taipei-06.jpg)
 
 It's so beautiful I could weep. I feel like a pilgrim having finally reached a holy relic.
 
@@ -2243,7 +2243,7 @@ It's so beautiful I could weep. I feel like a pilgrim having finally reached a h
 
 *Posted 22 August 2020*
 
-![Art day in Singapore (2018) — photo 1](/assets/travel/art-day-in-singapore-01.jpg)
+![Art day in Singapore (2018) — photo 1](/assets/travelbig/art-day-in-singapore-01.jpg)
 
 ### A visit to the National Gallery Singapore...
 
@@ -2251,9 +2251,9 @@ Ah, the National Gallery Singapore - home to the largest public collection of Si
 
 Indeed, sometimes I just want to be alone and wander an art gallery by myself.
 
-![Art day in Singapore (2018) — photo 2](/assets/travel/art-day-in-singapore-02.jpg)
+![Art day in Singapore (2018) — photo 2](/assets/travelbig/art-day-in-singapore-02.jpg)
 
-![Art day in Singapore (2018) — photo 3](/assets/travel/art-day-in-singapore-03.jpg)
+![Art day in Singapore (2018) — photo 3](/assets/travelbig/art-day-in-singapore-03.jpg)
 
 ## Cairns and surrounds (2013 and 2018)
 
@@ -2269,7 +2269,7 @@ Green Island, surrounded by the great yet fragile coral reef and all its works..
 
 But that was 2013 and now it's 2018 and I'm ready to brave the seas once more... I'm on a boat heading out to the Great Barrier Reef for three days and two nights of faraway scuba diving... I hope I'll see extraordinary, even fantastical things in its wondrous ocean.
 
-![Cairns and surrounds (2013 and 2018) — photo 1](/assets/travel/cairns-and-surrounds-01.jpg)
+![Cairns and surrounds (2013 and 2018) — photo 1](/assets/travelbig/cairns-and-surrounds-01.jpg)
 
 ## Darwin (2018)
 
@@ -2277,13 +2277,13 @@ But that was 2013 and now it's 2018 and I'm ready to brave the seas once more...
 
 ### Seven True Facts About Darwin
 
-![Sunset over the Timor Sea at Mindl Beach](/assets/travel/darwin-01.jpg)
+![Sunset over the Timor Sea at Mindl Beach](/assets/travelbig/darwin-01.jpg)
 
 *Sunset over the Timor Sea at Mindl Beach*
 
 Fact #1: Contrary to popular belief, the famous British naturalist Charles Darwin never visited the city. Instead, Darwin was founded in 1869 by
 
-![Darwin (2018) — photo 2](/assets/travel/darwin-02.jpg)
+![Darwin (2018) — photo 2](/assets/travelbig/darwin-02.jpg)
 
 his cousin, Gary Darwin, a beagle breeder who discovered the harbour after making a 2,100 nautical mile wrong turn at the Strait of Malacca.
 
@@ -2291,17 +2291,17 @@ Fact #2: For a brief period, between 1990-1994, the Northern Territory Adansonia
 
 Fact #3: You may be familiar with Darwin's notorious 'The NT News' headlines (e.g. "Horny roo stalks NT women"). But did you know that no human actually writes them? The headlines are, in fact, the product of a malfunctioning mechanical haiku generator: "Basho Gone Troppo" as it's affectionately called by locals.
 
-![Darwin (2018) — photo 3](/assets/travel/darwin-03.jpg)
+![Darwin (2018) — photo 3](/assets/travelbig/darwin-03.jpg)
 
 The Northern Territory Parliament House, known locally as the Wedding Cake Fact #4: If you squint really hard, you can see Indonesia on the horizon.
 
 Darwin is one of the most multicultural places in Australia with 30% of the population born overseas Fact #5: When walking through the George Brown Darwin Botanic Gardens, you may notice signs warning you not to pick up chunks of asbestos on the ground. This is because asbestos is used as a nesting Threskiornis material by the rare and endangered Australian white ibis ( molucca ), which requires it for successful egg incubation.
 
-![Darwin (2018) — photo 4](/assets/travel/darwin-04.jpg)
+![Darwin (2018) — photo 4](/assets/travelbig/darwin-04.jpg)
 
 The taxidermied body of 'Sweetheart', a 5.1-metre long saltwater crocodile that terrorised Darwin boaters in the 1970s Fact #6: In July of 2017, in an innovative attempt to stimulate the slumping Darwin property market, the Chief Minister of the Northern Territory offered free Royal Australian Air Force (RAAF) F/A-18 Hornets for first-time homebuyers.
 
-![Darwin (2018) — photo 5](/assets/travel/darwin-05.jpg)
+![Darwin (2018) — photo 5](/assets/travelbig/darwin-05.jpg)
 
 Fact #7: Common wifi passwords in Darwin hotels: box_jellies, buffal0, crocodil3, salt!water, kAkadu
 
@@ -2315,31 +2315,31 @@ Harsh and brutal images from the frontlines of Nadi and the Yasawa Islands.
 
 Nadi is dull, overcast, and surrounded by mangroves that catch seafaring plastic. Wailoaloa Beach is, like most cheap backpacker haunts, a bit depressing and also the perfect place to step on broken glass. Get the hell out as soon as you can and head for the nice weather and soft coral of the island chains. There's a respectable mix of "boutique" backpackers, rough and tumble hostels, and relaxed homestays dotted across the rocks off the mainland.
 
-![Fiji (2018) — photo 1](/assets/travel/fiji-01.jpg)
+![Fiji (2018) — photo 1](/assets/travelbig/fiji-01.jpg)
 
 Fiji loves to mention to tourists how it's one of the happiest countries on Earth. Ignoring the fact that cross-country eudaimonic analysis is probably bullshit (no Bhutan, you can't invent a happiness index and then give yourself a medal), a large proportion of Fijians I met did genuinely seem like happy people. Think close-knit communities and high levels of religiosity as consistent drivers of social capital.
 
 Random thought: there's a weird lack of seagulls, even in bustling Nadi. Where are all the seagulls in Fiji? I sense a conspiracy...
 
-![Somewhere out in the South Pacific...](/assets/travel/fiji-02.jpg)
+![Somewhere out in the South Pacific...](/assets/travelbig/fiji-02.jpg)
 
 *Somewhere out in the South Pacific...*
 
 Is Fiji part of Polynesia or Melanesia? I've seen some diagrams that include it as part of the Polynesian Triangle, and others that deliberately exclude it. Who should I believe? Does it even matter? On a semi-related note, the fact that humans (originating from Taiwan, supposedly) managed to settle the islands of the Pacific Ocean on canoes is completely insane when you think about it.
 
-![Fiji (2018) — photo 3](/assets/travel/fiji-03.jpg)
+![Fiji (2018) — photo 3](/assets/travelbig/fiji-03.jpg)
 
 The food was consistently great out on the islands---especially anything that included both coconut and fish as ingredients. Indian cuisine is everywhere (40% of the population are of Indian descent, thanks to the British Empire) and cassava is always lovely to try when you can get it. Oddly enough, the best meal I had during my trip was in Nadi, at a restaurant right on the dusty main road. I imagine it was access to large local produce markets that did the trick.
 
 The local rum is unremarkable. The local beer is okay. Like Tui or Victorian Bitters, but less embarrassing to drink.
 
-![Prime seafront real estate.](/assets/travel/fiji-04.jpg)
+![Prime seafront real estate.](/assets/travelbig/fiji-04.jpg)
 
 *Prime seafront real estate.*
 
 Kava was one of those low-key, geographically specific drugs (along with khat, coca leaves, and betel nuts) that I was always curious to try. Having finally drunk some, I give it a "mild shrug out of 10". It was inoffensive and had a tolerably bitter aftertaste. Sadly felt no psychoactive effects since they water it down for tourists.
 
-![Fiji (2018) — photo 5](/assets/travel/fiji-05.jpg)
+![Fiji (2018) — photo 5](/assets/travelbig/fiji-05.jpg)
 
 Despite being one of the most economically developed small island nations in the Pacific, even a casual taxi ride will reveal how patchy this growth actually is. Fiji's GDP per capita, according to the World Bank, puts it squarely between Bhutan and Jordan. An economy built almost solely on tourism and sugar exports sadly doesn't paddle you very far.
 
@@ -2347,13 +2347,13 @@ Bizarrely enough, Fiji is also the only Pacific small island nations to have a n
 
 One last economics point: Fiji has massive untapped fishing wealth. How will it deal with growing foreign interest in this resource? The territorial waters it has to govern is massive, given how small the country is. Think about how Fiji can enforce property rights and maintain bargaining power.
 
-![Fiji (2018) — photo 6](/assets/travel/fiji-06.jpg)
+![Fiji (2018) — photo 6](/assets/travelbig/fiji-06.jpg)
 
 Completed my scuba diving certification out in the Yasawa Islands!
 
 "Fiji time" is pretty much the national motto. Things like the daily ferry go according to loose, ambulatory schedules. I'm reminded of a wonderful passage from Ryszard Kapuscinski's The Shadow of the Sun about African vs. European conceptions of time: "The European feels himself to be time's slave, dependent on it, subject to it... Africans comprehend time differently. For looser concept, more open, elastic, them, it is a much subjective... Time appears as a result of our actions, and vanishes when we neglect or ignore it. It is something that springs to life under our influence, but falls into a state of hibernation, even non existence, if we do not direct our energy towards it."
 
-![Fiji (2018) — photo 7](/assets/travel/fiji-07.jpg)
+![Fiji (2018) — photo 7](/assets/travelbig/fiji-07.jpg)
 
 That said, while I was there, the Rugby Sevens was on during my visit and the entire country seemed to follow the games with clockwork precision.
 
@@ -2361,11 +2361,11 @@ Scuba diving really can be for everyone. Even I managed to learn it, sort of. My
 
 That said, you really have to be careful in knowing the limits of your training. On one of my final dives, I ended up swimming
 
-![Fiji (2018) — photo 8](/assets/travel/fiji-08.jpg)
+![Fiji (2018) — photo 8](/assets/travelbig/fiji-08.jpg)
 
 into a shipwreck at a depth of 30m (despite only being trained down to 18m) and had to do three nitrogen decompression safety stops on the way up. Hair-raising stuff for a rank amateur diver!
 
-![Bula Fiji!](/assets/travel/fiji-09.jpg)
+![Bula Fiji!](/assets/travelbig/fiji-09.jpg)
 
 *Bula Fiji!*
 
@@ -2373,7 +2373,7 @@ into a shipwreck at a depth of 30m (despite only being trained down to 18m) and 
 
 *Posted 1 December 2021*
 
-![Sunset over Ubirr, Kakadu National Park](/assets/travel/kakadu-and-litchfield-01.jpg)
+![Sunset over Ubirr, Kakadu National Park](/assets/travelbig/kakadu-and-litchfield-01.jpg)
 
 *Sunset over Ubirr, Kakadu National Park*
 
@@ -2383,15 +2383,15 @@ In late 2018, I had the opportunity to take a three-day tour of Litchfield and K
 
 The first stop was Litchfield National Park to the southwest of Darwin. Given how incredibly, oppressively hot it was (I don't recommend ever visiting this part of the world in the dead heat of the Aussie summer months), it was a godsend that we were able to cool off at two well-known swimming spots: Florence Falls and Wangi Falls. Crystal clear water. Shaded swimming spots. No man-eating crocodiles. Perfect.
 
-![Kakadu and Litchfield (2018) — photo 2](/assets/travel/kakadu-and-litchfield-02.jpg)
+![Kakadu and Litchfield (2018) — photo 2](/assets/travelbig/kakadu-and-litchfield-02.jpg)
 
 A famous feature of Litchfield National Park is the magnetic termite mounds. Thin, tall and eerily tombstone-like, each mound is orientated with its main axis running north-sound for heat management purposes (hence why their tiny builders are known as 'magnetic' or 'compass termites'). Best. Termite mounds. Ever.
 
-![A bug-built 'graveyard' in Northern Australia](/assets/travel/kakadu-and-litchfield-03.jpg)
+![A bug-built 'graveyard' in Northern Australia](/assets/travelbig/kakadu-and-litchfield-03.jpg)
 
 *A bug-built 'graveyard' in Northern Australia*
 
-![Kakadu and Litchfield (2018) — photo 4](/assets/travel/kakadu-and-litchfield-04.jpg)
+![Kakadu and Litchfield (2018) — photo 4](/assets/travelbig/kakadu-and-litchfield-04.jpg)
 
 ...or are they? Litchfield is also home to many Cathedral termite mounds. They're impossible to miss. These epic structures (constructed simply from dirt, plant matter, and termite saliva and excrement, no less) can soar over four-metres high and be over a century old. They are the megacities of the insect world.
 
@@ -2401,11 +2401,11 @@ The 'natural skyscrapers' of the cathedral termite (Nasutitermes triodiae)
 
 Of course, while Litchfield is near, it is nowhere near as amazing as Kakadu National Park. Southeast of Darwin, Kakadu is one of the largest national parks in Australia. It is roughly the size of Switzerland and is dual-listed on the UNESCO World Heritage List for both its remarkable natural wonder and cultural importance to this part of the planet.
 
-![Kakadu and Litchfield (2018) — photo 5](/assets/travel/kakadu-and-litchfield-05.jpg)
+![Kakadu and Litchfield (2018) — photo 5](/assets/travelbig/kakadu-and-litchfield-05.jpg)
 
 One of the highlights of my time in Kakadu was a cruise into the Yellow Water, a billabong (isolated and backwater branch of a river) on the South Alligator River floodplain that is brimming with native flora and fauna. This was a chance to explore the region's rich wetland areas and see Australian birds, saltwater crocodiles, and some (not-so-native) feral water buffaloes and wild horses.
 
-![Lunch is served](/assets/travel/kakadu-and-litchfield-06.jpg)
+![Lunch is served](/assets/travelbig/kakadu-and-litchfield-06.jpg)
 
 *Lunch is served*
 
@@ -2413,25 +2413,25 @@ A note on crocodiles in the 'Top End': they are absolutely something to be taken
 
 Pictured above: photos of our stopover at Nawurlandja lookout. It was a bloody hot day for a hike, but it offered a sweeping view across the
 
-![Kakadu and Litchfield (2018) — photo 7](/assets/travel/kakadu-and-litchfield-07.jpg)
+![Kakadu and Litchfield (2018) — photo 7](/assets/travelbig/kakadu-and-litchfield-07.jpg)
 
 national park and out towards Burrungkuy (Nourlangie Rock) which is renowned for its Aboriginal rock art.
 
 Speaking of Aboriginal art, Kakadu's reputation as a place of global cultural significance is well-earned. Some of the rock art in the area are up to 20,000 years old(!) and they provide a profound testament to the continuing Aboriginal presence in Australia. Even if many tourists come to this part of the 'Top End' for its natural wonders, its cultural heritage must be appreciated.
 
-![An aesthetically pleasing outcropping at Ubirr](/assets/travel/kakadu-and-litchfield-08.jpg)
+![An aesthetically pleasing outcropping at Ubirr](/assets/travelbig/kakadu-and-litchfield-08.jpg)
 
 *An aesthetically pleasing outcropping at Ubirr*
 
 My all-time favourite place in the national park (and I guess, therefore, by extension, one of my favourite spots in Australia) has to be Ubirr. This is a large rock formation in the East Alligator region of the national
 
-![Kakadu and Litchfield (2018) — photo 9](/assets/travel/kakadu-and-litchfield-09.jpg)
+![Kakadu and Litchfield (2018) — photo 9](/assets/travelbig/kakadu-and-litchfield-09.jpg)
 
 park that is, along with Burrungkuy, celebrated for its ancient Aboriginal rock paintings.
 
 Our tour group was lucky enough to stay for the sunset at Ubirr. And what a magnificent sunset it was, with the panoramic interplay of light and colours across the rocky outcrops and floodplains. Being able to witness this was probably what firmly sealed Ubirr as my most treasured place in Kakadu.
 
-![Jim Jim Falls in the dry season](/assets/travel/kakadu-and-litchfield-10.jpg)
+![Jim Jim Falls in the dry season](/assets/travelbig/kakadu-and-litchfield-10.jpg)
 
 *Jim Jim Falls in the dry season*
 
@@ -2439,13 +2439,13 @@ And on the final day of the tour, we were able to visit Jim Jim Falls. Even thou
 
 So in conclusion, what can I write to summarise my time visiting Litchfield and Kakadu National Park? To put it simply, because of them, the 'Top End' of Australia will always hold a special place in my memories.
 
-![Kakadu and Litchfield (2018) — photo 11](/assets/travel/kakadu-and-litchfield-11.jpg)
+![Kakadu and Litchfield (2018) — photo 11](/assets/travelbig/kakadu-and-litchfield-11.jpg)
 
 What is the 'Top End' then? It is a place of savannah woodlands and sweeping floodplains... birdlife and estuarine crocodiles... billabongs and scorching heat... waterfalls and escarpments... rock art and termite cathedrals... lush wetlands and blood-red sunsets...
 
 It was quite a little trip...
 
-![Onwards, down the nameless dirt trail!](/assets/travel/kakadu-and-litchfield-12.jpg)
+![Onwards, down the nameless dirt trail!](/assets/travelbig/kakadu-and-litchfield-12.jpg)
 
 *Onwards, down the nameless dirt trail!*
 
@@ -2487,13 +2487,13 @@ Last on the list of attractions featured in this post is Busan's Gamcheon Cultur
 
 And that's kind of what it's all about, isn't it? Trying to cobble something together, even when its origins are suspect. Trying to dredge up something impoverished from the inner world and present it to the outer one. I will never set foot in Busan again after my psychological trials there, but these sentences you are reading right now are something I've finally made of it.
 
-![Busan (2017) — photo 1](/assets/travel/busan-01.jpg)
+![Busan (2017) — photo 1](/assets/travelbig/busan-01.jpg)
 
 ## Gyeongju, South Korea (2017)
 
 *Posted 26 June 2020*
 
-![The Tumuli Park tomb complex](/assets/travel/gyeongju-south-korea-01.jpg)
+![The Tumuli Park tomb complex](/assets/travelbig/gyeongju-south-korea-01.jpg)
 
 *The Tumuli Park tomb complex*
 
@@ -2505,7 +2505,7 @@ Reflecting back on my experiences, I'm bothered by this attitude I held. Deep do
 
 ### Silla: An introduction
 
-![Gyeongju, South Korea (2017) — photo 2](/assets/travel/gyeongju-south-korea-02.jpg)
+![Gyeongju, South Korea (2017) — photo 2](/assets/travelbig/gyeongju-south-korea-02.jpg)
 
 Gyeongju is a relatively small city (pop: ~264,000) less than an hour's bus ride from the bustling port city of Busan and it is a place steeped in deep, rich history. It was once the capital of Silla, an ancient and prosperous kingdom that began over two millennia ago (57 BC) and lasted for an extraordinarily long time --- nearly 1,000 years (till 935 AD). Certainly longer than many empires and dynasties throughout human history.
 
@@ -2519,11 +2519,11 @@ It didn't take long on my first day of exploration to stumble across the ancient
 
 One of the most interesting tombs in the park (something I didn't realise at the time when I photographed it) is the Tomb of King Michu, aka the "Tomb of the Bamboo Chief". According to legend, King Michu was able to send a ghost army from beyond the grave to save Silla when external forces threatened it. After the ghosts killed the kingdom's
 
-![Gyeongju, South Korea (2017) — photo 3](/assets/travel/gyeongju-south-korea-03.jpg)
+![Gyeongju, South Korea (2017) — photo 3](/assets/travelbig/gyeongju-south-korea-03.jpg)
 
 enemies, they disappeared, leaving behind only the bamboo leaves that had infested the enemy corpses. A rather macabre, botanical calling card.
 
-![The Tomb of King Michu](/assets/travel/gyeongju-south-korea-04.jpg)
+![The Tomb of King Michu](/assets/travelbig/gyeongju-south-korea-04.jpg)
 
 *The Tomb of King Michu*
 
@@ -2533,7 +2533,7 @@ Another site I didn't fully understand at the time was Cheomseongdae Observatory
 
 During peacetime, once all of Silla's rivals on the peninsula were crushed, science and culture were able to flourish in the kingdom. It is believed that the tower served as the centrepiece for an entire scientific district in the city. The tower had both scientific astronomical purposes and more mystical astrological ones. Like many parts of the ancient world, the movement of the stars was used to guide all facets of life, from when to plant and harvest crops, to when to wage war and make alliances.
 
-![Gyeongju, South Korea (2017) — photo 5](/assets/travel/gyeongju-south-korea-05.jpg)
+![Gyeongju, South Korea (2017) — photo 5](/assets/travelbig/gyeongju-south-korea-05.jpg)
 
 But like the rest of the ancient world, it was hardly a place of scientific reason as we would recognise today. Silla operated under a strict social hierarchy, a fantastical caste system known as the "Bone Rank System". A person's "bone rank" in Silla was determined by their hereditary bloodline, and this rank dictated everything in their lives: from how many servants they could have, what kind of saddle they could sit on, and even what types of utensil they could eat with. For instance, only women of the highest caste (the "sacred bone rank") were permitted to wear hairpins enchased with gemstones or jade. Some scholars even believe that this stagnant, inefficient caste structure helped with Silla's decline, despite the kingdom's wealth and sophistication.
 
@@ -2541,13 +2541,13 @@ But like the rest of the ancient world, it was hardly a place of scientific reas
 
 A little further southwest from here is the Gyeongju National Museum which holds many of the Silla relics uncovered from the old capital. One prime example sits right in the main courtyard of the museum: the Divine Bell of King Seongdeok, a massive bronze bell dating back to the 8th century. It has a grisly, if fanciful, origin story --- supposedly the original versions of the giant bell refused to make a sound despite being remade over and over again. Eventually, a live baby was thrown into the molten bronze of the furnace in order to cast a bell that made the 'perfect sound'.
 
-![Yikes.](/assets/travel/gyeongju-south-korea-06.jpg)
+![Yikes.](/assets/travelbig/gyeongju-south-korea-06.jpg)
 
 *Yikes.*
 
 The museum itself is filled with a range of fascinating artefacts. By tapping into the riches of the Silk Road, Silla was able to transform itself and become fabulously rich. Precious gold, silver and glassware from as far away as Persia has been found in Gyeongju and wealthy aristocrats were said to have owned thousands of slaves.
 
-![Gyeongju, South Korea (2017) — photo 7](/assets/travel/gyeongju-south-korea-07.jpg)
+![Gyeongju, South Korea (2017) — photo 7](/assets/travelbig/gyeongju-south-korea-07.jpg)
 
 Muhammed al-Idrisi, an Arab medieval geographer and travel writer from Sicily, provides the very earliest known account of Korea to westerners. Writing in the 12th century, he stated that "travelers who visit Silla do not think of returning home. Gold is too common. Even the dog's leash and the monkey's collar are made of gold." It was as though Korea was seen at the time as a mythical El Dorado of the East.
 
@@ -2561,7 +2561,7 @@ After the fall of Silla, the site was abandoned and largely forgotten. It was fi
 
 The following day I took a bus out of the city centre and up the slopes of nearby Mount Toham to visit Bulguksa Temple, one of the largest Buddhist temples in South Korea. Built in the early 500s, it represents the flourishing and installation of Buddhism as the Silla state religion.
 
-![Gyeongju, South Korea (2017) — photo 8](/assets/travel/gyeongju-south-korea-08.jpg)
+![Gyeongju, South Korea (2017) — photo 8](/assets/travelbig/gyeongju-south-korea-08.jpg)
 
 As with many exotic goods that found their way into the ancient capital, Buddhism was brought to Gyeongju from Central Asia via the Silk Road.
 
@@ -2569,21 +2569,21 @@ Bulguksa is one of the head temples the Jogye Order of traditional Korean Buddhi
 
 Within the temple complex are two well-known stone pagodas: the Dabotap Pagoda and Seokgatap Pagoda, which stand opposite each other. Dagotap is meant to be feminine, dark, cold, and representative of the messy complexity of the physical world. In contrast, Seokgatap is intended to be masculine, bright, hot, and simplistic, symbolising the elegance of spiritual ascent.
 
-![Gyeongju, South Korea (2017) — photo 9](/assets/travel/gyeongju-south-korea-09.jpg)
+![Gyeongju, South Korea (2017) — photo 9](/assets/travelbig/gyeongju-south-korea-09.jpg)
 
 Dagotap Seokgatap On the temple site, there is also a lucky golden pig that you are supposed to touch it for good luck. And in one part of Bulguksa, there is a courtyard full of stacked stones. The explanation goes that visitors can make (very Instagrammable) wishes by placing stones on the top of each other. If your stack doesn't tumble down, then your wish will come true. So don't go around knocking these over, unless you want to ruin everyone's hopes and dreams...
 
-![Gyeongju, South Korea (2017) — photo 10](/assets/travel/gyeongju-south-korea-10.jpg)
+![Gyeongju, South Korea (2017) — photo 10](/assets/travelbig/gyeongju-south-korea-10.jpg)
 
 ### Seokguram
 
 Hovering above Bulguksa on a mountain ridge is Seokguram, a secluded grotto that is known for its well crafted Buddhist sculptures. Trudging up there almost felt like a pilgrimage along a cold mountain track --- and indeed, the journey up to the grotto from the foot of Mount Toham is supposed to symbolise the spiritual journey of Buddhists to Nirvana.
 
-![Gyeongju, South Korea (2017) — photo 11](/assets/travel/gyeongju-south-korea-11.jpg)
+![Gyeongju, South Korea (2017) — photo 11](/assets/travelbig/gyeongju-south-korea-11.jpg)
 
 The highlight of the grotto is a Buddhist cave temple that was constructed in the 8th century. A large, elegant statue of the Buddha seated within a circular chamber beneath a stone dome (photography was discouraged). The statue faces east towards the coast in order to offer protection against seaborne invaders, especially from Japanese pirates that used to prowl the waters.
 
-![Gyeongju, South Korea (2017) — photo 12](/assets/travel/gyeongju-south-korea-12.jpg)
+![Gyeongju, South Korea (2017) — photo 12](/assets/travelbig/gyeongju-south-korea-12.jpg)
 
 And this concludes my brief trip to Gyeongju: the venerable heart of an obscure and bygone kingdom in one small part of Asia. While I might not have been able to fully admire these sites at the time, I believe that this small writing and research exercise has helped me to relive, to recollect, and rethink my visit.
 
@@ -2591,7 +2591,7 @@ And this concludes my brief trip to Gyeongju: the venerable heart of an obscure 
 
 *Posted 28 June 2020*
 
-![Jeonju Hanok Village](/assets/travel/jeonju-south-korea-01.jpg)
+![Jeonju Hanok Village](/assets/travelbig/jeonju-south-korea-01.jpg)
 
 *Jeonju Hanok Village*
 
@@ -2603,7 +2603,7 @@ This made Jeonju, my next destination, a tricky one to tackle. Jeonju is famous 
 
 I arrived in Jeonju at night, after a three-hour bus ride from Seoul. As with much of South Korea, Jeonju is connected by an affordable and efficient nation-wide bus network. It was certainly a relief to leave the snows of Seoul for a city further south with crisp and clear (albeit still chilly) weather.
 
-![Jeonju, South Korea (2017) — photo 2](/assets/travel/jeonju-south-korea-02.jpg)
+![Jeonju, South Korea (2017) — photo 2](/assets/travelbig/jeonju-south-korea-02.jpg)
 
 Pungnam Gate at night. This is the south gate of the old city wall that used to encircle Jeonju during the Joseon Dynasty.
 
@@ -2613,7 +2613,7 @@ After checking into my hostel, my next mission was simple: eat something. The mo
 
 Anyway, I found a well-reviewed local restaurant and ordered my bibimbap. And. It. Was. Amazing. Just look at that wholesome bibimbap topped with a raw egg! And it comes with a beautiful spread of small side dishes (or "banchan"), including kimchi --- everyone's favourite spicy fermented vegetable dish.
 
-![I'm hungry just looking at this photo.](/assets/travel/jeonju-south-korea-03.jpg)
+![I'm hungry just looking at this photo.](/assets/travelbig/jeonju-south-korea-03.jpg)
 
 *I'm hungry just looking at this photo.*
 
@@ -2621,7 +2621,7 @@ Now, I'm certainly no sociologist, but I thought I'd share a cultural tidbit: du
 
 This feeling helps explain a quirky Korean internet phenomenon known as "mukbang" where people live-stream themselves "performance eating" often very large and elaborate meals to thousands of viewers. In return for being watched, these webcam food performers receive messages and, most importantly, monetary tips from their viewers. At least part of the appeal of mukbang is that it supposedly taps into that ingrained cultural desire for eating to be a social occasion.
 
-![Jeonju, South Korea (2017) — photo 4](/assets/travel/jeonju-south-korea-04.jpg)
+![Jeonju, South Korea (2017) — photo 4](/assets/travelbig/jeonju-south-korea-04.jpg)
 
 The staff stop working to tune into their favourite K-drama.
 
@@ -2631,11 +2631,11 @@ One landmark near Pungnam Gate is the Jeondong Catholic Cathedral. While it's no
 
 These days, South Korea has no dominant religion, with Catholics, Buddhists, and Protestants making up only a minority of the population. The majority either have no religious affiliation or follow Korean shamanism, a polytheistic and animistic folk religion.
 
-![Jeonju, South Korea (2017) — photo 5](/assets/travel/jeonju-south-korea-05.jpg)
+![Jeonju, South Korea (2017) — photo 5](/assets/travelbig/jeonju-south-korea-05.jpg)
 
 Pungnam Gate during the day
 
-![Jeondong Cathedral](/assets/travel/jeonju-south-korea-06.jpg)
+![Jeondong Cathedral](/assets/travelbig/jeonju-south-korea-06.jpg)
 
 *Jeondong Cathedral*
 
@@ -2643,25 +2643,25 @@ Directly across the road from the cathedral is the Gyeonggijeon Shrine, a well-k
 
 Overall, I found the shrine to be a flat, prosaic place, especially in the middle of winter with the bare trees and the bleak grounds. On the plus side, the shrine seemed to be visited entirely by domestic Korean tourists, which made for a nice change from the more globally popular sites in Seoul.
 
-![Jeonju, South Korea (2017) — photo 7](/assets/travel/jeonju-south-korea-07.jpg)
+![Jeonju, South Korea (2017) — photo 7](/assets/travelbig/jeonju-south-korea-07.jpg)
 
 Afterwards, I made my way to the Jeonju Hanok Village, which has over 800 traditional Korean houses. I'm quite a fan of hanoks --- I find them elegant and understated, with their low-lying profile and curving tiles roofs. While I think I preferred the Bukchon Hanok Village in Seoul (it was a graceful contrast from the frenetic, cosmopolitan pace of the rest of the city), the one in Jeonju makes for a pleasant visit. There are a large number of restaurants, guesthouses, workshops, gift shops, and teahouses to explore in this village.
 
 On a hill overlooking the hanoks is an even quirkier place --- the Jeonju Jaman Village. Once a poor hillside shantytown, it has since become the canvas of local artists who have filled it with colourful, eccentric, child-like street murals. It's bright, wacky, and completely apart from the traditional, old-world aesthetics that Jeonju is more famous for.
 
-![Jeonju, South Korea (2017) — photo 8](/assets/travel/jeonju-south-korea-08.jpg)
+![Jeonju, South Korea (2017) — photo 8](/assets/travelbig/jeonju-south-korea-08.jpg)
 
 But sadly, my health wasn't up for anymore exploring. I retreated back to my hostel for the rest of the day and sat in my dorm room tucked in a blanket and enjoying the heated floors. Yes, that's right --- Korea has an ingenious underfloor heating system known as "Ondol" that is ubiquitous across the country. Traditionally, wood smoke was used to heat up stones underneath wooden floorboards, while these days hot water pipes are used to keep houses nice and toasty.
 
 To make things (slightly) better, I had bought a box of choco-pies on the way back. While they were originally an American invention, they are very popular across East Asia and Jeonju is known for its handmade choco-pies. As it turns out, when you're disgustingly sick, there's nothing better than scarfing down these sickly snack cakes in your hostel.
 
-![Jeonju, South Korea (2017) — photo 9](/assets/travel/jeonju-south-korea-09.jpg)
+![Jeonju, South Korea (2017) — photo 9](/assets/travelbig/jeonju-south-korea-09.jpg)
 
 So many... ...different... ...flavours!
 
 The following day (after a long, sniffly sleep-in), I sought out another Jeonju specialty: Kongnamul Gukbap, a soybean sprout soup with rice that is used as a traditional Korean breakfast hangover remedy. And while I definitely did not have a hangover, my thinking was that it would hopefully help with my similar unpleasant ailments. While I can't attest to its medicinal properties, it was a wonderfully hot and hearty breakfast to have on a cold morning.
 
-![Jeonju, South Korea (2017) — photo 10](/assets/travel/jeonju-south-korea-10.jpg)
+![Jeonju, South Korea (2017) — photo 10](/assets/travelbig/jeonju-south-korea-10.jpg)
 
 I'd also like to make a shoutout to another Korean product that helped me with my illness recovery called Pan Cold A. It is a fairly cheap, over-the-counter medicine that consists of three little bottles of mysterious (non-English labelled) liquids per box and seems to be available in most 24-hour convenience stores in the country.
 
@@ -2669,7 +2669,7 @@ A quick Google revealed that Pan Cold A is made from a kitchen sink of ingredien
 
 It's frustrating to be sick while on your travels. Believe me, it's happened to me many times. And while I don't have much in the way of good general advice, I can certainly say that what I did in Jeonju didn't hurt. You simply have to keep your chin up, take it slow, eat very well, and drink untranslated Korean medicines.
 
-![Jeonju, South Korea (2017) — photo 11](/assets/travel/jeonju-south-korea-11.jpg)
+![Jeonju, South Korea (2017) — photo 11](/assets/travelbig/jeonju-south-korea-11.jpg)
 
 ## Art galleries of New York (2016)
 
@@ -2685,7 +2685,7 @@ The answer is *obviously* the Museum of Modern Art (MoMA). Compared to the Metro
 
 ### The Museum of Modern Art
 
-![Art galleries of New York (2016) — photo 1](/assets/travel/art-galleries-of-new-york-01.jpg)
+![Art galleries of New York (2016) — photo 1](/assets/travelbig/art-galleries-of-new-york-01.jpg)
 
 Located in Midtown Manhattan, on 53rd Street between Fifth and Sixth Avenues. MoMA boasts some truly marvellous pieces, including:
 
@@ -2697,19 +2697,19 @@ Located in Midtown Manhattan, on 53rd Street between Fifth and Sixth Avenues. Mo
 - Henri Matisse's large and powerful painting *The Dance (I)*.
 - Some memorable and cryptic Giorgio de Chirico works.
 
-![Art galleries of New York (2016) — photo 2](/assets/travel/art-galleries-of-new-york-02.jpg)
+![Art galleries of New York (2016) — photo 2](/assets/travelbig/art-galleries-of-new-york-02.jpg)
 
 There is also Claude Monet's monumental *Reflections of Clouds on the Water-Lily Pond*, the much pop-culture-referenced Salvador Dalí painting *The Persistence of Memory*, Picasso's lively *Three Musicians*, and Jasper Johns' hot wax painting *Flag*.
 
-![Art galleries of New York (2016) — photo 3](/assets/travel/art-galleries-of-new-york-03.jpg)
+![Art galleries of New York (2016) — photo 3](/assets/travelbig/art-galleries-of-new-york-03.jpg)
 
 ### The Metropolitan Museum of Art
 
-![Art galleries of New York (2016) — photo 4](/assets/travel/art-galleries-of-new-york-04.jpg)
+![Art galleries of New York (2016) — photo 4](/assets/travelbig/art-galleries-of-new-york-04.jpg)
 
 Located at 1000 Fifth Avenue in Manhattan's Upper East Side. Despite my earlier criticisms of the Met, it houses my all-time favourite American artworks: *America Today*, a mural of ten canvas panels by Thomas Hart Benton. They provide a dizzying sense of American dynamism, industry, change, culture, and optimism in the 1920s. If you want a sense of what 'made' modern America so exceptional in the early decades of the twentieth century, then I insist that you should study this mural.
 
-![Art galleries of New York (2016) — photo 5](/assets/travel/art-galleries-of-new-york-05.jpg)
+![Art galleries of New York (2016) — photo 5](/assets/travelbig/art-galleries-of-new-york-05.jpg)
 
 Other notable and fabulous works in the Met include:
 
@@ -2719,17 +2719,17 @@ Other notable and fabulous works in the Met include:
 - *The Death of Socrates*, a powerful piece of neoclassicism by the French master Jacques-Louis David.
 - *Self-Portrait with a Straw Hat* by Vincent van Gogh, as well as one of his still lifes of sunflowers.
 
-![Art galleries of New York (2016) — photo 6](/assets/travel/art-galleries-of-new-york-06.jpg)
+![Art galleries of New York (2016) — photo 6](/assets/travelbig/art-galleries-of-new-york-06.jpg)
 
 If you have to choose between a visit to either MoMA or the Met, my advice is simply this: stay a bit longer in New York City and see both! I promise you won't regret it.
 
-![Art galleries of New York (2016) — photo 7](/assets/travel/art-galleries-of-new-york-07.jpg)
+![Art galleries of New York (2016) — photo 7](/assets/travelbig/art-galleries-of-new-york-07.jpg)
 
 ## Art Institute of Chicago (2016)
 
 *Posted 25 October 2020*
 
-![Founded in 1879, it is one of the oldest and grandest art museums in the US.](/assets/travel/art-institute-of-chicago-01.jpg)
+![Founded in 1879, it is one of the oldest and grandest art museums in the US.](/assets/travelbig/art-institute-of-chicago-01.jpg)
 
 *Founded in 1879, it is one of the oldest and grandest art museums in the US.*
 
@@ -2739,21 +2739,21 @@ The **Art Institute of Chicago** was one of my must-see stops on my journey from
 
 *Paris Street; Rainy Day* by Gustave Caillebotte. *A Sunday Afternoon on the Island of La Grande Jatte* by Georges Seurat. A Vincent van Gogh self-portrait and one of his *Bedroom in Arles* paintings. Jules Breton's *The Song of the Lark*. Jacques-Louis David's *Napoleon*. Ivan Albright's powerfully haunting *That Which I Should Have Done I Did Not Do (The Door)*. And much, much more.
 
-![Art Institute of Chicago (2016) — photo 2](/assets/travel/art-institute-of-chicago-02.jpg)
+![Art Institute of Chicago (2016) — photo 2](/assets/travelbig/art-institute-of-chicago-02.jpg)
 
 As mentioned above, there are some well-known paintings by the American realist painter Edward Hopper which perfectly capture the beautiful solitude and sad loneliness of modern life. I love his paintings and none is more resonant of this theme (or heavily parodied) as his famous 1942 painting *Nighthawks*.
 
-![Art Institute of Chicago (2016) — photo 3](/assets/travel/art-institute-of-chicago-03.jpg)
+![Art Institute of Chicago (2016) — photo 3](/assets/travelbig/art-institute-of-chicago-03.jpg)
 
-![Art Institute of Chicago (2016) — photo 4](/assets/travel/art-institute-of-chicago-04.jpg)
+![Art Institute of Chicago (2016) — photo 4](/assets/travelbig/art-institute-of-chicago-04.jpg)
 
 Aside from that, there are also some wonderful pieces by American modernist Georgia O'Keeffe. There are Jackson Pollock paintings. And there is Pablo Picasso's masterful *The Old Guitarist*.
 
-![Art Institute of Chicago (2016) — photo 5](/assets/travel/art-institute-of-chicago-05.jpg)
+![Art Institute of Chicago (2016) — photo 5](/assets/travelbig/art-institute-of-chicago-05.jpg)
 
 There is African art. There is Asian art. And who can forget the iconic painting *American Gothic* by Grant Wood? Or René Magritte's surrealist work *Time Transfixed*? Or how about Marc Chagall's *American Windows*, a stained glass installation? I could go on and on, of course. Truly, it is a house of masterpieces!
 
-![Art Institute of Chicago (2016) — photo 6](/assets/travel/art-institute-of-chicago-06.jpg)
+![Art Institute of Chicago (2016) — photo 6](/assets/travelbig/art-institute-of-chicago-06.jpg)
 
 ## The California Zephyr (2016)
 
@@ -2763,33 +2763,33 @@ During my first visit to the US, instead of flying like a normal person, I took 
 
 This was an incredible (and incredibly affordable) three-day trip across the North American continent. I saw scenic vistas of seven states, met a colourful array of fellow travellers, and even had breakfast one morning with an Amish family. Few people would call a long train ride a highlight of an American summer holiday, but I had a blast!
 
-![Boarding the California Zephyr from Emeryville in the Bay Area.](/assets/travel/the-california-zephyr-01.jpg)
+![Boarding the California Zephyr from Emeryville in the Bay Area.](/assets/travelbig/the-california-zephyr-01.jpg)
 
 *Boarding the California Zephyr from Emeryville in the Bay Area.*
 
 A valley around the American River. Donner Lake, near the site of the infamous Donner Party.
 
-![Relaxing in the lounge car.](/assets/travel/the-california-zephyr-02.jpg)
+![Relaxing in the lounge car.](/assets/travelbig/the-california-zephyr-02.jpg)
 
 *Relaxing in the lounge car.*
 
 Somewhere in the Sierra Nevada... Afternoon in Nevada.
 
-![And sunset over Nevada as well.](/assets/travel/the-california-zephyr-03.jpg)
+![And sunset over Nevada as well.](/assets/travelbig/the-california-zephyr-03.jpg)
 
 *And sunset over Nevada as well.*
 
-![Good morning Utah!](/assets/travel/the-california-zephyr-04.jpg)
+![Good morning Utah!](/assets/travelbig/the-california-zephyr-04.jpg)
 
 *Good morning Utah!*
 
 The arid desertscape. There are dinosaur bones out there somewhere...
 
-![G'day Colorado!](/assets/travel/the-california-zephyr-05.jpg)
+![G'day Colorado!](/assets/travelbig/the-california-zephyr-05.jpg)
 
 *G'day Colorado!*
 
-![The Colorado River, of course.](/assets/travel/the-california-zephyr-06.jpg)
+![The Colorado River, of course.](/assets/travelbig/the-california-zephyr-06.jpg)
 
 *The Colorado River, of course.*
 
@@ -2797,41 +2797,41 @@ Not pictured: rafters mooning us from the river. Chugging alongside great scener
 
 The hot, dry heartland. The iconic freight-hauling locomotives.
 
-![Glenwood Springs.](/assets/travel/the-california-zephyr-07.jpg)
+![Glenwood Springs.](/assets/travelbig/the-california-zephyr-07.jpg)
 
 *Glenwood Springs.*
 
 The stunning Glenwood Canyon. I wish I'd made a stop here to explore further...
 
-![A California Zephyr heading west.](/assets/travel/the-california-zephyr-08.jpg)
+![A California Zephyr heading west.](/assets/travelbig/the-california-zephyr-08.jpg)
 
 *A California Zephyr heading west.*
 
-![Where am I? I'm not even sure, but it's beautiful alright.](/assets/travel/the-california-zephyr-09.jpg)
+![Where am I? I'm not even sure, but it's beautiful alright.](/assets/travelbig/the-california-zephyr-09.jpg)
 
 *Where am I? I'm not even sure, but it's beautiful alright.*
 
-![A rainy day in the Rocky Mountains.](/assets/travel/the-california-zephyr-10.jpg)
+![A rainy day in the Rocky Mountains.](/assets/travelbig/the-california-zephyr-10.jpg)
 
 *A rainy day in the Rocky Mountains.*
 
-![Look at all that gloomy mountain weather...](/assets/travel/the-california-zephyr-11.jpg)
+![Look at all that gloomy mountain weather...](/assets/travelbig/the-california-zephyr-11.jpg)
 
 *Look at all that gloomy mountain weather...*
 
-![Behold! The High Plains!](/assets/travel/the-california-zephyr-12.jpg)
+![Behold! The High Plains!](/assets/travelbig/the-california-zephyr-12.jpg)
 
 *Behold! The High Plains!*
 
-![Corn! Iowa!](/assets/travel/the-california-zephyr-13.jpg)
+![Corn! Iowa!](/assets/travelbig/the-california-zephyr-13.jpg)
 
 *Corn! Iowa!*
 
-![Crossing the Mississippi River.](/assets/travel/the-california-zephyr-14.jpg)
+![Crossing the Mississippi River.](/assets/travelbig/the-california-zephyr-14.jpg)
 
 *Crossing the Mississippi River.*
 
-![And at last, I arrive in Chicago...](/assets/travel/the-california-zephyr-15.jpg)
+![And at last, I arrive in Chicago...](/assets/travelbig/the-california-zephyr-15.jpg)
 
 *And at last, I arrive in Chicago...*
 
@@ -2839,13 +2839,13 @@ The stunning Glenwood Canyon. I wish I'd made a stop here to explore further...
 
 *Posted 1 February 2022*
 
-![The Grand Canyon and Las Vegas (2016) — photo 1](/assets/travel/the-grand-canyon-and-las-vegas-01.jpg)
+![The Grand Canyon and Las Vegas (2016) — photo 1](/assets/travelbig/the-grand-canyon-and-las-vegas-01.jpg)
 
 Part of the Grand Canyon seen from my flight into Vegas On the final leg of my visit to the United States, I went to Las Vegas in Nevada to do two things: visit the Grand Canyon and to go down to a firing range and experience for the first time what it's like to shoot a gun. And I am proud to say that I accomplished both these missions.
 
 ### On the highway into Grand Canyon National Park...
 
-![The Grand Canyon and Las Vegas (2016) — photo 2](/assets/travel/the-grand-canyon-and-las-vegas-02.jpg)
+![The Grand Canyon and Las Vegas (2016) — photo 2](/assets/travelbig/the-grand-canyon-and-las-vegas-02.jpg)
 
 Ah, the mildly memorable highway from Vegas into Arizona! The rocky, sun-grim landscape. The scraggly, spike-fisted Joshua trees. And a brief stop by the engineering marvel that is the Hoover Dam on the border between Nevada and Arizona.
 
@@ -2855,17 +2855,17 @@ As for the final destination, all I can frankly say is that the Grand Canyon is 
 
 I could tell you that it is nearly 450 km long, nearly 30 km wide and hits a depth of over 1.8 km. But those figures don't mean much to me. Instead, I stood there imagining what it would've been like for the first person to see it as a giant wound in the earth. She was a child perhaps. Perhaps the ancestor from tribes that have lived continuously in this area for countless generations. I can imagine her finding herself on the edge of the sky itself. Tiptoeing on a precipice, where the earth in front simply fell away like rain.
 
-![The Grand Canyon and Las Vegas (2016) — photo 3](/assets/travel/the-grand-canyon-and-las-vegas-03.jpg)
+![The Grand Canyon and Las Vegas (2016) — photo 3](/assets/travelbig/the-grand-canyon-and-las-vegas-03.jpg)
 
 Then hundreds of years later, some European interloper mapping passage down the Colorado River would ink its contours and dub it 'Grand'. But that word doesn't begin to capture the dizzying power, the sheer canyons of imagination that this place can conjure up.
 
-![A giant hole in the ground.](/assets/travel/the-grand-canyon-and-las-vegas-04.jpg)
+![A giant hole in the ground.](/assets/travelbig/the-grand-canyon-and-las-vegas-04.jpg)
 
 *A giant hole in the ground.*
 
 ### And the city of American excess...
 
-![A crummy Disneyland for adults. Maybe.](/assets/travel/the-grand-canyon-and-las-vegas-05.jpg)
+![A crummy Disneyland for adults. Maybe.](/assets/travelbig/the-grand-canyon-and-las-vegas-05.jpg)
 
 *A crummy Disneyland for adults. Maybe.*
 
@@ -2873,7 +2873,7 @@ Anyway, I also hung out around Las Vegas for a while, ate American fast food, tr
 
 I did take some videos of amusing, free attractions in Vegas though...
 
-![The Grand Canyon and Las Vegas (2016) — photo 6](/assets/travel/the-grand-canyon-and-las-vegas-06.jpg)
+![The Grand Canyon and Las Vegas (2016) — photo 6](/assets/travelbig/the-grand-canyon-and-las-vegas-06.jpg)
 
 Video #1: The artificial volcano in front of The Mirage, a Polynesian-themed casino resort. It erupts away nightly with music and pyrotechnics.
 
@@ -2881,7 +2881,7 @@ The Fountains of Bellagio which is hard to miss with its Video 2#: meticulously 
 
 3#: Video a Street Experience, notorious Fremont The touristy pedestrian mall located a respectable distance away from the main Las Vegas Strip. I recommend it for anyone after something a little grittier and grimier. And something a little more bewildering.
 
-![The Grand Canyon and Las Vegas (2016) — photo 7](/assets/travel/the-grand-canyon-and-las-vegas-07.jpg)
+![The Grand Canyon and Las Vegas (2016) — photo 7](/assets/travelbig/the-grand-canyon-and-las-vegas-07.jpg)
 
 But don't assume my negative vibes here are reflective of my thoughts on the United States as a whole! Oh, America (i.e. Home of the Brave, Land of the Free), you've provided an amazing journey... you've made me feel like I've soared atop a bald eagle, pistol duelled Alexander Hamilton, stolen Colonel Sanders' secret fried chicken recipe, and shared a Bud Light with the last of the buffalo.
 
@@ -2891,7 +2891,7 @@ But alas, as the sun sets over the red, white, and blue, I must depart the city 
 
 *Posted 1 October 2020*
 
-![The Waikato River](/assets/travel/the-waikato-new-zealand-01.jpg)
+![The Waikato River](/assets/travelbig/the-waikato-new-zealand-01.jpg)
 
 *The Waikato River*
 
@@ -2905,11 +2905,11 @@ My first stop: Whakarewarewa Forest on the outskirts of Rotorua, known for its c
 
 Afterwards, I wandered around Rotorua proper and took a soak in the local hot thermal springs. Rotorua (alias: 'Roto-Vegas', 'Rotten-rua',
 
-![The Waikato, New Zealand (2016) — photo 2](/assets/travel/the-waikato-new-zealand-02.jpg)
+![The Waikato, New Zealand (2016) — photo 2](/assets/travelbig/the-waikato-new-zealand-02.jpg)
 
 'Sulphur City') is known for its strong geothermal activity, which fills the air with pungent hydrogen sulphide emissions. Translation? The city often has the fragrance of rotten eggs about it. Lovely!
 
-![The Government Gardens, Rotorua](/assets/travel/the-waikato-new-zealand-03.jpg)
+![The Government Gardens, Rotorua](/assets/travelbig/the-waikato-new-zealand-03.jpg)
 
 *The Government Gardens, Rotorua*
 
@@ -2917,11 +2917,11 @@ My visit to Rotorua also meant a visit to Whakarewarewa Geothermal Valley. It is
 
 Occasionally, when the geothermal agony of the underworld can be contained no longer, the boiling crucible beneath the valley explodes through rock pores. This can be seen at sites such as Pohutu Geyser where a jet of silica and scorching water will launch towards the sky (30m, in all) before drizzling back down the geyser's ghostly white terraces.
 
-![The Waikato, New Zealand (2016) — photo 4](/assets/travel/the-waikato-new-zealand-04.jpg)
+![The Waikato, New Zealand (2016) — photo 4](/assets/travelbig/the-waikato-new-zealand-04.jpg)
 
 Pohutu and Prince of Wales Feathers Geysers erupting After Rotorua, I spent a day at Lake Taupo, the largest lake in New Zealand. Fact: that was created when is a caldera lake the a supervolcanic erupted over 26,000 years ago. It is hard for the human mind to imagine the explosion that would've punched a hole this big in the ground all those eons ago.
 
-![Lake Taupo](/assets/travel/the-waikato-new-zealand-05.jpg)
+![Lake Taupo](/assets/travelbig/the-waikato-new-zealand-05.jpg)
 
 *Lake Taupo*
 
@@ -2929,17 +2929,17 @@ I also had the opportunity to briefly hike alongside the Waikato River in Māori
 
 And in the pictures below is Huka Falls near Taupo. As the languid Waikato River is forced through a narrow trench of volcanic rock, it emerges as a thundering cascade of crystal white. Or to put it less lyrically: around 200,000 litres of water surge down Huka Falls every second!
 
-![The Huka Falls](/assets/travel/the-waikato-new-zealand-06.jpg)
+![The Huka Falls](/assets/travelbig/the-waikato-new-zealand-06.jpg)
 
 *The Huka Falls*
 
 Another point of interest: Craters of the Moon, north of Taupo. Ghostly steam vents are scattered across this geothermal landscape. Its soil radiates an eerie heat. And the sulphurous smell can be at times, uh, very musky. It is an otherworldy place to stroll around.
 
-![Craters of the Moon](/assets/travel/the-waikato-new-zealand-07.jpg)
+![Craters of the Moon](/assets/travelbig/the-waikato-new-zealand-07.jpg)
 
 *Craters of the Moon*
 
-![The Waikato, New Zealand (2016) — photo 8](/assets/travel/the-waikato-new-zealand-08.jpg)
+![The Waikato, New Zealand (2016) — photo 8](/assets/travelbig/the-waikato-new-zealand-08.jpg)
 
 Lastly, I concluded with a simple trip to Hamilton Gardens. It is one of the Waikato's most popular visitor attractions and features 21 gardens the aesthetics and floral compositions of different cultures and civilisations. There's an interpretation of a Chinese Scholar's Garden, a Japanese Garden, an Indian Mughal Garden, an Italian Renaissance Garden, among others.
 
@@ -2951,65 +2951,65 @@ While not extremely dramatic, Hamilton Gardens provided an adequate coda to my b
 
 Photos from my day trip to California's famed Yosemite National Park, situated in the picturesque Sierra Nevada mountains...
 
-![Yosemite National Park (2016) — photo 1](/assets/travel/yosemite-national-park-01.jpg)
+![Yosemite National Park (2016) — photo 1](/assets/travelbig/yosemite-national-park-01.jpg)
 
 ## Aoraki National Park (2015)
 
 *Posted 30 September 2020*
 
-![Aoraki National Park (2015) — photo 1](/assets/travel/aoraki-national-park-01.jpg)
+![Aoraki National Park (2015) — photo 1](/assets/travelbig/aoraki-national-park-01.jpg)
 
 Pictures on the road to Aoraki/Mount Cook, the highest mountain in New Zealand...
 
-![Aoraki National Park (2015) — photo 2](/assets/travel/aoraki-national-park-02.jpg)
+![Aoraki National Park (2015) — photo 2](/assets/travelbig/aoraki-national-park-02.jpg)
 
 ## Ayutthaya Historical Park (2015)
 
 *Posted 9 September 2020*
 
-![Ayutthaya Historical Park (2015) — photo 1](/assets/travel/ayutthaya-historical-park-01.jpg)
+![Ayutthaya Historical Park (2015) — photo 1](/assets/travelbig/ayutthaya-historical-park-01.jpg)
 
 ### Cycling across the Ayutthaya Kingdom
 
 85 km north of Bangkok is a little archaeological gem known as the **Ayutthaya Historical Park**, once the capital of a fabulous Siamese kingdom and now a UNESCO World Heritage Site. Like most tourists, a friend and I visited the site as a day-trip destination from chaotic Bangkok. The train ride there from Bangkok's Hualamphong Train Station was surprisingly clean, undramatic and very, very affordable.
 
-![Ayutthaya Historical Park (2015) — photo 2](/assets/travel/ayutthaya-historical-park-02.jpg)
+![Ayutthaya Historical Park (2015) — photo 2](/assets/travelbig/ayutthaya-historical-park-02.jpg)
 
 While these days Ayutthaya is a dusty little city, sweltering in the sticky Thai sun, it was at one point one of the finest cities on the planet. It is estimated that by the year 1700, its population had reached 1 million, making it one of, if not the, largest city of its time. European travellers spoke of it as a resplendent place with fine palaces, trading vessels, and canals reminiscent of Venice. This all ended in 1767 when the Burmese invaded the kingdom and the great city, after over four centuries of existence, was almost entirely razed to the ground.
 
-![Ayutthaya Historical Park (2015) — photo 3](/assets/travel/ayutthaya-historical-park-03.jpg)
+![Ayutthaya Historical Park (2015) — photo 3](/assets/travelbig/ayutthaya-historical-park-03.jpg)
 
 But enough about the sad grind of history. How best to explore this place? By bicycle, of course! Firstly, you need to take a short trip by ferry across the river to the old capital. The historic park is, in a sort of idyllic way, located on an island surrounded by three rivers. After that, it doesn't take much effort to find a cheap bicycle rental to zip from temple to temple. Just be careful with the rough and tumble Thai traffic! My friend and I certainly found it a bit of a hair-raising experience at times.
 
-![The famous head of Buddha at Wat Mahathat](/assets/travel/ayutthaya-historical-park-04.jpg)
+![The famous head of Buddha at Wat Mahathat](/assets/travelbig/ayutthaya-historical-park-04.jpg)
 
 *The famous head of Buddha at Wat Mahathat*
 
 One of the most noteworthy sites in the historic park is **Wat Mahathat**. Called 'The Temple of the Great Relic', it was at one point in the forgotten past the most important monasteries of the Ayutthaya Historic City and a major venue for royal ceremonies and celebrations. These days, the former temple grounds are most famous among foreign visitors for a statue of Buddha that has been photogenically enveloped in tree roots. See above, obviously.
 
-![Ayutthaya Historical Park (2015) — photo 5](/assets/travel/ayutthaya-historical-park-05.jpg)
+![Ayutthaya Historical Park (2015) — photo 5](/assets/travelbig/ayutthaya-historical-park-05.jpg)
 
 Oh, marvellous and crumbling ruins! How I love them! Be it in Asia or Europe or anywhere else on the globe, there's something about the shattered remains of bygone civilisations that will forever intrigue me. The potential for every stone to tell a story. The tilting and decaying towers, the bricks older than memory, a row of headless Buddhas. Faith, endurance, destruction.
 
-![Ayutthaya Historical Park (2015) — photo 6](/assets/travel/ayutthaya-historical-park-06.jpg)
+![Ayutthaya Historical Park (2015) — photo 6](/assets/travelbig/ayutthaya-historical-park-06.jpg)
 
 **Wat Phra Si Sanphet** is another fascinating archaeological spot on the city island. Dating back to around the mid-15th century, the temple was once located within the royal palace grounds. Because of this, it had no resident monks and was used exclusively by the Ayutthaya royal family for their ceremonies and for storing royal relics.
 
 The most striking thing about Wat Phra Si Sanphet is its three large and pale bell-shaped 'chedis' or stupas. These three chedis were once believed to have enshrined the ashes of three kings as well as relics of the Buddha. Who knows? Maybe they are still sealed away somewhere deep inside them.
 
-![Ayutthaya Historical Park (2015) — photo 7](/assets/travel/ayutthaya-historical-park-07.jpg)
+![Ayutthaya Historical Park (2015) — photo 7](/assets/travelbig/ayutthaya-historical-park-07.jpg)
 
 And, like in many other touristy parts of Thailand, in Ayutthaya, you'll come across the chance to feed, pet, and ride captive elephants. I'm sure I don't need to say this, but don't forget to *not support* the local Thai elephant industry. It ain't a pleasant business.
 
-![Ayutthaya Historical Park (2015) — photo 8](/assets/travel/ayutthaya-historical-park-08.jpg)
+![Ayutthaya Historical Park (2015) — photo 8](/assets/travelbig/ayutthaya-historical-park-08.jpg)
 
 One of our final stops on the island was at **Wihan Phra Mongkhon Bophit.** Unlike its more fragmentary surrounding locales, this is a beautiful and bustling modern temple. Just look at that stunning gold-and-red roof structure.
 
-![Ayutthaya Historical Park (2015) — photo 9](/assets/travel/ayutthaya-historical-park-09.jpg)
+![Ayutthaya Historical Park (2015) — photo 9](/assets/travelbig/ayutthaya-historical-park-09.jpg)
 
 A wihan, also called a vihara, is a dedicated building in which an image of the Buddha is enshrined. Its big claim to fame? It houses one of the largest bronze Buddhas in Thailand. According to a nearby sign, the statue is almost 17 metres tall. Trust me, it's more impressive than my photography skills let on.
 
-![Ayutthaya Historical Park (2015) — photo 10](/assets/travel/ayutthaya-historical-park-10.jpg)
+![Ayutthaya Historical Park (2015) — photo 10](/assets/travelbig/ayutthaya-historical-park-10.jpg)
 
 And that concludes all I have to say about Ayutthaya. It was a short trip (we sadly weren't able to knock out all the suggested highlights in the historic area) but it was a memorable one. While we could only glimpse a fraction of its former glory, what we did see stirred my imagination. The surviving, eroded remnants of many yesterdays ago are crying out. What are they saying? What are they trying to convey? Each of us has to listen and interpret on our own.
 
@@ -3021,7 +3021,7 @@ And that concludes all I have to say about Ayutthaya. It was a short trip (we sa
 
 "To be a mass tourist... is to spoil, by way of sheer ontology, the very unspoiledness you are there to experience, It is to impose yourself on places that in all non-economic ways would be better, realer, without you. It is... to confront a dimension of yourself that is as inescapable as it is painful: As a tourist, you become economically significant but existentially loathsome, an insect on a dead thing." - David Foster Wallace the hundred temples scattered across Cambodia's Angkor Of Archaeological Park, none are more iconic than Angkor Wat. Built in
 
-![Reflections on tourism in Angkor (2015) — photo 1](/assets/travel/reflections-on-tourism-in-angkor-01.jpg)
+![Reflections on tourism in Angkor (2015) — photo 1](/assets/travelbig/reflections-on-tourism-in-angkor-01.jpg)
 
 the 12th century in dedication to the Supreme God Vishnu, Angkor Wat is the holy jewel of the Khmer Empire and is heralded as the largest religious monument in the world. It is a delirious marriage of theology and architecture. Its moat represents the Ocean of Milk from which the universe was born, its bas-reliefs depict the great battles of Hindu epics, and its central tower represents Mount Meru, the nexus of all creation. It is a wonder of stone and time.
 
@@ -3031,7 +3031,7 @@ Yet despite being surrounded by wonder, it is hard to ignore that grinding feeli
 
 And once the realisation fully sinks into your chest, it's all over. You realise that it's you. You are both the trapped and the trapper. You are truly in the thick of it, in the deep end. You are just another insect in the global locust swarm of mass tourism. There is no escaping it.
 
-![Reflections on tourism in Angkor (2015) — photo 2](/assets/travel/reflections-on-tourism-in-angkor-02.jpg)
+![Reflections on tourism in Angkor (2015) — photo 2](/assets/travelbig/reflections-on-tourism-in-angkor-02.jpg)
 
 Indeed, we all come in great hordes via tour bus, tuk-tuk, and bicycle. We come for that perfect photo of sunrise over Angkor Wat, for an (ethically dubious) elephant ride around the Bayon, for that silly selfie on top of the Terrace of the Leper King. Even the orange-robed monks that visit Angkor shake the authenticity of the experience, as they also reveal themselves to be mere tourists, whipping out smartphones and waving selfie sticks. As David Foster Wallace puts it so starkly: As tourists, we are all insects on a dead thing. We come, we go, and Angkor remains a lifeless, breathless empire.
 
@@ -3041,7 +3041,7 @@ Cambodia's recent history is a wretched one, that much is certain. Pol Pot. The 
 
 To this day, the country remains one of the poorest in South-East Asia. While the country's prospects are beginning to improve, over a third of the population is still living in poverty. To complicate matters, Cambodia's current leader, Prime Minister Hun Sen, is by all accounts a
 
-![Reflections on tourism in Angkor (2015) — photo 3](/assets/travel/reflections-on-tourism-in-angkor-03.jpg)
+![Reflections on tourism in Angkor (2015) — photo 3](/assets/travelbig/reflections-on-tourism-in-angkor-03.jpg)
 
 strongman who has solidified power through corruption, cronyism and political violence.
 
@@ -3053,7 +3053,7 @@ Perhaps in places like Cambodia at least, David Foster Wallace gets it backwards
 
 ### Kamakura and Yokohama (2012)
 
-![Reflections on tourism in Angkor (2015) — photo 4](/assets/travel/reflections-on-tourism-in-angkor-04.jpg)
+![Reflections on tourism in Angkor (2015) — photo 4](/assets/travelbig/reflections-on-tourism-in-angkor-04.jpg)
 
 *9/26/2020*
 
@@ -3063,11 +3063,11 @@ The Great Buddha of Kamakura, a enormous 13th century bronze statue During my su
 
 Our visit to Kamakura was mainly focussed on Kōtoku-in, a famous Buddhist temple. I'm sure I say something similar to this about the religious sites I've explored around the world, but I feel that Japanese temples are truly something unique in terms of their ambience and ability to blend in with the natural world.
 
-![Reflections on tourism in Angkor (2015) — photo 5](/assets/travel/reflections-on-tourism-in-angkor-05.jpg)
+![Reflections on tourism in Angkor (2015) — photo 5](/assets/travelbig/reflections-on-tourism-in-angkor-05.jpg)
 
 One thing in particular I love about Japanese temples and shrines are the colourful decorative sake barrels on display. They are known and are empty barrels meant to honour the gods -- the as kazaridaru traditional idea being that delicious, delicious Japanese rice wine is meant to connect the people to the deities themselves.
 
-![Reflections on tourism in Angkor (2015) — photo 6](/assets/travel/reflections-on-tourism-in-angkor-06.jpg)
+![Reflections on tourism in Angkor (2015) — photo 6](/assets/travelbig/reflections-on-tourism-in-angkor-06.jpg)
 
 Kōtoku-is temple of the Jōdo-shū or "The Pure Land School" of Buddhism which was introduced to Japan in the 12th century and continues to be one of the most widely practised forms of Buddhism in the country.
 
@@ -3075,7 +3075,7 @@ The literal and spiritual focal point of the temple is the Great Buddha. Excludi
 
 Fun fact: close to the Great Buddha are a pair of huge traditional Japanese straw sandals that are nearly two metres long and weigh around 45 kilograms. These sandals were first woven and donated by a
 
-![Reflections on tourism in Angkor (2015) — photo 7](/assets/travel/reflections-on-tourism-in-angkor-07.jpg)
+![Reflections on tourism in Angkor (2015) — photo 7](/assets/travelbig/reflections-on-tourism-in-angkor-07.jpg)
 
 group of children back in 1951 when the country was still recovering from the ravages of the Second World War. The wish of these children was that "the Great Buddha would don them to walk around Japan, bringing happiness to the people". To this day, children will create and gift a new pair of giant sandals to Kōtoku-in every few years.
 
@@ -3083,13 +3083,13 @@ group of children back in 1951 when the country was still recovering from the ra
 
 I visited the coastal city of Yokohama with a friend on Marine Day, a Japanese public holiday that gives thanks to the bounties and riches of the ocean.
 
-![Reflections on tourism in Angkor (2015) — photo 8](/assets/travel/reflections-on-tourism-in-angkor-08.jpg)
+![Reflections on tourism in Angkor (2015) — photo 8](/assets/travelbig/reflections-on-tourism-in-angkor-08.jpg)
 
 It was a pleasant outing to an important Japanese port city. Although it is a short train ride from the heart of Tokyo, it is a breezy, relaxed and walkable international city that provides a welcome respite from Tokyo's frenetic energy.
 
 I'll be honest. My trip to Japan permanently changed me. It was my first extended trip abroad on my own (this being back in my poor university student days) and I've never looked back. I got bit by the travel bug hard
 
-![Reflections on tourism in Angkor (2015) — photo 9](/assets/travel/reflections-on-tourism-in-angkor-09.jpg)
+![Reflections on tourism in Angkor (2015) — photo 9](/assets/travelbig/reflections-on-tourism-in-angkor-09.jpg)
 
 and that fiery wanderlust has been with me ever since. I have to travel. I have to keep seeing the world for the rest of my life. Is this a curse? A gift? An integral feature of my personality? Even now, all these years later, it is still difficult for me to coherently express.
 
@@ -3105,7 +3105,7 @@ Damn. I look at these old photos from early 2015 and have to both laugh and crin
 
 Funny what the years can do to my perspectives on things...
 
-![The Grand Palace and Wat Phra Kaew](/assets/travel/temple-run-bangkok-edition-01.jpg)
+![The Grand Palace and Wat Phra Kaew](/assets/travelbig/temple-run-bangkok-edition-01.jpg)
 
 *The Grand Palace and Wat Phra Kaew*
 
@@ -3113,19 +3113,19 @@ The Grand Palace: the official residence of the King of Siam. An organic jumble 
 
 And as for Wat Phra Kaew, situated within the palace complex, it's the most sacred Buddhist temple in all of Thailand. Also commonly known as the Temple of the Emerald Buddha, Wat Phra Kaew houses a green gemstone Gautama that's considered the nation's most sacred image of the Enlightened One.
 
-![Wat Saket](/assets/travel/temple-run-bangkok-edition-02.jpg)
+![Wat Saket](/assets/travelbig/temple-run-bangkok-edition-02.jpg)
 
 *Wat Saket*
 
 Wat Saket. The Temple of the Golden Mount. A panoramic view from atop an 80-metre high artificial hill. It was a steep and winding 318-step climb, hence the photo of a damp and dumpy me posing against the hot and smoggy Bangkok cityscape.
 
-![Wat Suthat](/assets/travel/temple-run-bangkok-edition-03.jpg)
+![Wat Suthat](/assets/travelbig/temple-run-bangkok-edition-03.jpg)
 
 *Wat Suthat*
 
 Wat Suthat Thepwararam. Another elegant structure. Endless images of Buddha. The iconic Giant Swing stands in front of the temple, a towering and crimson gate-like structure. Come and enter, it says. Come and look further.
 
-![Wat Pho](/assets/travel/temple-run-bangkok-edition-04.jpg)
+![Wat Pho](/assets/travelbig/temple-run-bangkok-edition-04.jpg)
 
 *Wat Pho*
 
@@ -3133,7 +3133,7 @@ Wat Phra Chetuphon Wimon Mangkhalaram Rajwaramahawihan, to give it its official 
 
 The Temple of the Reclining Buddha. 46-metres long goes its golden repose. There are 108 bronze alms bowls in the temple. Go ahead, grab some coins and drop them in. The sound rings sweetly and good fortune is sure to follow.
 
-![Wat Arun](/assets/travel/temple-run-bangkok-edition-05.jpg)
+![Wat Arun](/assets/travelbig/temple-run-bangkok-edition-05.jpg)
 
 *Wat Arun*
 
@@ -3147,11 +3147,11 @@ Climb up this tower of porcelain puzzle pieces. Don't be shy. Climb up it and ta
 
 *Posted 20 September 2020*
 
-![The Twelve Apostles (2015) — photo 1](/assets/travel/the-twelve-apostles-01.jpg)
+![The Twelve Apostles (2015) — photo 1](/assets/travelbig/the-twelve-apostles-01.jpg)
 
 Ah! The relentless hammering and chiselling of the sea along the Great Ocean Road in Victoria, Australia. Highlights along the road such as Loch Ard Gorge, the London Arch, and the celebrated Twelve Apostles (of which there were never twelve in the first place) are just stacks of limestone carved by the harsh waves of time. Who knows when the next stone stack will collapse? Who knows when the next formation will be born, cleaved from the cliff walls?
 
-![The Twelve Apostles (2015) — photo 2](/assets/travel/the-twelve-apostles-02.jpg)
+![The Twelve Apostles (2015) — photo 2](/assets/travelbig/the-twelve-apostles-02.jpg)
 
 ## Dresden (2014)
 
@@ -3167,17 +3167,17 @@ Once a city of cultural and artistic wonder, Dresden suffered calamitous damage 
 
 One needs to only briefly stroll around Dresden's Altstadt, or Old Town, to see the consequences of these events. Where there should be tightly packed historical buildings, there are instead yawning gaps in the cityscape. Huge, empty spaces in the city centre are like eerie deletions, like solemn omissions, like gouges out of time and space. And the reconstruction of Dresden's monuments continues to this day.
 
-![Dresden (2014) — photo 1](/assets/travel/dresden-01.jpg)
+![Dresden (2014) — photo 1](/assets/travelbig/dresden-01.jpg)
 
 What there is to see (and has been mostly reconstructed) is lovely, however... The Albertinum, a modern art museum. Dresden's iconic Frauenkirche, a Lutheran church. The Schlossplatz, or the Palace Square.
 
-![The restored interior of the Frauenkirche.](/assets/travel/dresden-02.jpg)
+![The restored interior of the Frauenkirche.](/assets/travelbig/dresden-02.jpg)
 
 *The restored interior of the Frauenkirche.*
 
 The Procession of Princes, an enormous mural of Saxony's royalty and noblemen. The Semper Opera House, which once premiered the works
 
-![Dresden (2014) — photo 3](/assets/travel/dresden-03.jpg)
+![Dresden (2014) — photo 3](/assets/travelbig/dresden-03.jpg)
 
 of Wagner and Strauss. A monument to Martin Luther, that titan of the Protestant Reformation, stands stoically for all to witness.
 
@@ -3185,7 +3185,7 @@ Even the communist propaganda mural on the wall of the Kulturpalast, a modernist
 
 The was once a city called the 'Florence on the Elbe' before it was reduced to rubble. Historians have debated endlessly as to the legitimacy of the Allied bombing campaign in terms of morality and strategy and tactical reasoning. All I can say is that it was an unequivocal tragedy for the civilian population.
 
-![Dresden (2014) — photo 4](/assets/travel/dresden-04.jpg)
+![Dresden (2014) — photo 4](/assets/travelbig/dresden-04.jpg)
 
 The American writer Kurt Vonnegut, who himself was a survivor of the bombings when he was a prisoner of war, speaks powerfully from his experience of its aftermath in his novel 'Slaughterhouse-Five':
 
@@ -3193,11 +3193,11 @@ There was a fire-storm out there. Dresden was one big flame. The one flame ate e
 
 It wasn't safe to come out of the shelter until noon the next day. When the Americans and their guards did come out, the sky was black with smoke. The sun was an angry little pinhead. Dresden was like the moon now, nothing but minerals. The stones were hot. Everybody else in the neighborhood was dead. So it goes.
 
-![Dresden (2014) — photo 5](/assets/travel/dresden-05.jpg)
+![Dresden (2014) — photo 5](/assets/travelbig/dresden-05.jpg)
 
 One of the must-visit places in Dresden, I feel, is its Military History Museum. The museum's façade is striking - the architect added a caged arrowhead structure to it, with the idea that it represents the openness and transparency of Germany's modern democratic society, in contrast to the rigidness of the existing building, which represents the severe, authoritarian past.
 
-![The Bundeswehr Military History Museum](/assets/travel/dresden-06.jpg)
+![The Bundeswehr Military History Museum](/assets/travelbig/dresden-06.jpg)
 
 *The Bundeswehr Military History Museum*
 
@@ -3205,13 +3205,13 @@ This museum showcases Germany's complicated relationship with warfare. The perma
 
 I also had the opportunity to experience some of Dresden's high culture with a night at the opera. I went along with my exchange friend and one
 
-![Dresden (2014) — photo 7](/assets/travel/dresden-07.jpg)
+![Dresden (2014) — photo 7](/assets/travelbig/dresden-07.jpg)
 
 of her German friends to see , a comic opera The Marriage of Figaro composed by Mozart. To be honest, I had zero idea what was going on, but the German friend assured me that it was 'very, very funny'.
 
 And I had the chance to enjoy some low, or perhaps 'alternative', culture. For instance, I found Dresden's Neustadt to be a very hip, very lively neighbourhood. My friend also took me to the Elbeflohmarkt, one of the oldest flea markets in the city. Here, I was able to admire piles upon piles of retro junk, East German communist paraphernalia, and potential trash-turned-treasure for sale.
 
-![The Kunsthofpassage Singing Drain Pipes.](/assets/travel/dresden-08.jpg)
+![The Kunsthofpassage Singing Drain Pipes.](/assets/travelbig/dresden-08.jpg)
 
 *The Kunsthofpassage Singing Drain Pipes.*
 
@@ -3219,7 +3219,7 @@ I think I would like to visit this city again in ten, no, twenty years time...
 
 Perhaps by then the gaps of Dresden's Altstadt will have blossomed out, back into its former stony glory. Perhaps with time the Frauenkirche will no longer resemble the inside of a Hungarian bathhouse. Anything is possible with time enough to heal.
 
-![The Elbe at sunset.](/assets/travel/dresden-09.jpg)
+![The Elbe at sunset.](/assets/travelbig/dresden-09.jpg)
 
 *The Elbe at sunset.*
 
@@ -3227,13 +3227,13 @@ Ah! Imagine that, Elbflorenz reborn!
 
 How I would love to waltz down Dresden's wide streets again. I would trace my fingers along the street art and ride the rumbling trams. I would kick through the dead leaves of Alaunpark and wander through the riverside flea market, before sailing down the Elbe itself to find out where all the pretty Saxony girls are.
 
-![Dresden (2014) — photo 10](/assets/travel/dresden-10.jpg)
+![Dresden (2014) — photo 10](/assets/travelbig/dresden-10.jpg)
 
 ### Photo essay: Budapest (2014)
 
 *Posted 1 December 2020*
 
-![One of the famous stone lions of the Chain Bridge.](/assets/travel/photo-essay-budapest-01.jpg)
+![One of the famous stone lions of the Chain Bridge.](/assets/travelbig/photo-essay-budapest-01.jpg)
 
 *One of the famous stone lions of the Chain Bridge.*
 
@@ -3241,43 +3241,43 @@ Budapest. Capital of Hungary. Lady of the Danube.
 
 In the miserly sun of a winter's day, it is cold, beautiful, and stony. A city of baroque and neoclassical houses, churches, monuments. A thrumming heart of hills and bridges in the land of Magyars.
 
-![Photo essay: Budapest (2014) — photo 2](/assets/travel/photo-essay-budapest-02.jpg)
+![Photo essay: Budapest (2014) — photo 2](/assets/travelbig/photo-essay-budapest-02.jpg)
 
 A quick stroll along the riverfront reveals the Hungarian Parliament Building. A demonic doom fortress, more like. The neo-gothic architecture is undoubtedly incredible – it is just that in a certain light it looks like a monstrous redback spider stalking the banks of the Danube...
 
-![Photo essay: Budapest (2014) — photo 3](/assets/travel/photo-essay-budapest-03.jpg)
+![Photo essay: Budapest (2014) — photo 3](/assets/travelbig/photo-essay-budapest-03.jpg)
 
 Strolling across the bridge, from the flat eastern half of inner Budapest to its hillier western portion, you reach the Fisherman's Bastion with its Neo-Romanesque, fairy tale towers located in the Buda Castle area. Here, I will always remember my conversation with an old Hungarian man who was surprised by the colour of my skin when I was a New Zealander, going as far as to rub my cheek briefly in curiosity.
 
-![Photo essay: Budapest (2014) — photo 4](/assets/travel/photo-essay-budapest-04.jpg)
+![Photo essay: Budapest (2014) — photo 4](/assets/travelbig/photo-essay-budapest-04.jpg)
 
 Located next door is Matthias Church, also known as the Church of the Assumption of the Buda Castle, a Roman Catholic church whose long-lost foundations date back to the 11th century. Whatever had originally stood there was destroyed during the Mongol invasions, its predecessor was severely damaged by the Ottoman invasions of Hungary, as well as bombarded by Allied forces near the end of World War II. But the peaceful decades that followed has been kind to this location, allowing it to heal back to glory.
 
-![Photo essay: Budapest (2014) — photo 5](/assets/travel/photo-essay-budapest-05.jpg)
+![Photo essay: Budapest (2014) — photo 5](/assets/travelbig/photo-essay-budapest-05.jpg)
 
 Speaking of the region's history, the name 'Budapest' came about from the 1873 unification of three separate towns in the area called Buda, Óbuda, and Pest.
 
-![Photo essay: Budapest (2014) — photo 6](/assets/travel/photo-essay-budapest-06.jpg)
+![Photo essay: Budapest (2014) — photo 6](/assets/travelbig/photo-essay-budapest-06.jpg)
 
 Today, Budapest is a youthful, culturally zestful city but this was a hard-won status. It suffered under not only Nazi Germany, but also under Soviet military occupation during the Cold War era, all the way to 1991. Political change has been largely kind to Budapest.
 
-![Photo essay: Budapest (2014) — photo 7](/assets/travel/photo-essay-budapest-07.jpg)
+![Photo essay: Budapest (2014) — photo 7](/assets/travelbig/photo-essay-budapest-07.jpg)
 
 Another highlight: Buda Castle, a historical castle and palace complex that once belonged to the Hungarian kings of yore. It is pleasant to visit, but if the architecture seems a little dry then you should know that your instincts are correct. The palace was gutted in the 1950s since the communist government of Hungary considered it a symbol of the former regime. What visitors now see is largely a 'modernist' creation, reconstructed in the vision of a new post-war order.
 
-![Photo essay: Budapest (2014) — photo 8](/assets/travel/photo-essay-budapest-08.jpg)
+![Photo essay: Budapest (2014) — photo 8](/assets/travelbig/photo-essay-budapest-08.jpg)
 
 And behold: St. Stephen's Basilica, a neoclassical Roman Catholic basilica named in honour of the first King of Hungary and undoubtedly the most important church structure in Hungary.
 
-![Photo essay: Budapest (2014) — photo 9](/assets/travel/photo-essay-budapest-09.jpg)
+![Photo essay: Budapest (2014) — photo 9](/assets/travelbig/photo-essay-budapest-09.jpg)
 
 When I visited it, the sunlight struck its interior in such a delicate way, I felt as though I was walking around in a meditative, dreamlike state. I gazed at its finely painted cupola, at its sanctuary and altar, at its statues and stained glass windows. I floated. I was washed in wordless wool-gathering.
 
-![Photo essay: Budapest (2014) — photo 10](/assets/travel/photo-essay-budapest-10.jpg)
+![Photo essay: Budapest (2014) — photo 10](/assets/travelbig/photo-essay-budapest-10.jpg)
 
 Pictured below: the Dohány Street Synagogue, the largest synagogue in Europe and the second-largest on the planet. Also pictured: the striking Anker Palace, an eclectic-style building constructed for a Viennese insurance company in 1908.
 
-![Photo essay: Budapest (2014) — photo 11](/assets/travel/photo-essay-budapest-11.jpg)
+![Photo essay: Budapest (2014) — photo 11](/assets/travelbig/photo-essay-budapest-11.jpg)
 
 The Hospital in the Rock. Constructed in the caverns under Buda Castle, it served once as a vital medical station during the Siege of Budapest in WW2 and is now a museum that recreates those desperate days.
 
@@ -3285,31 +3285,31 @@ The Budapest Cave Church. A modest if unusual church cut into side of Gellért H
 
 The Liberty Statue, also on Gellért Hill. It is a monument to the Hungarians who sacrificed their lives for the independence, freedom, and prosperity of the nation. And may those days become renewed in Hungary soon...
 
-![Photo essay: Budapest (2014) — photo 12](/assets/travel/photo-essay-budapest-12.jpg)
+![Photo essay: Budapest (2014) — photo 12](/assets/travelbig/photo-essay-budapest-12.jpg)
 
 After nightfall, Budapest is bathed in golden electricity. It becomes, regardless of whether it is in crisp darkness or torpid fog, a city encased in amber, suspended like a gemstone.
 
-![Photo essay: Budapest (2014) — photo 13](/assets/travel/photo-essay-budapest-13.jpg)
+![Photo essay: Budapest (2014) — photo 13](/assets/travelbig/photo-essay-budapest-13.jpg)
 
 See here the bullet hole markers on the side of the Ministry of Agriculture Building. These mark the scars of Hungary's failed 1956 Revolution against Soviet domination. Then see the Soviet War Memorial in Liberty Square. Bizarrely, it is situated in the same square as a statue of US president Ronald Reagan. All hail Ronald of House Reagan, Czar of All America, Conqueror of Grenada, Redeemer of Nicaragua, and Destroyer of Communism!
 
-![Photo essay: Budapest (2014) — photo 14](/assets/travel/photo-essay-budapest-14.jpg)
+![Photo essay: Budapest (2014) — photo 14](/assets/travelbig/photo-essay-budapest-14.jpg)
 
 But enough about the politics and the past (for now). When I was in Budapest, I was able to link up with some friends who were also touring Europe and together we visited one of the city's hip and famous ruin bars – alcoholic lubrication establishments located in old, dilapidated and occasionally abandoned buildings.
 
-![Photo essay: Budapest (2014) — photo 15](/assets/travel/photo-essay-budapest-15.jpg)
+![Photo essay: Budapest (2014) — photo 15](/assets/travelbig/photo-essay-budapest-15.jpg)
 
 And Budapest, of course, is also nicknamed the Spa City. As such, no touristy visit to the city would be complete without a dip in the Széchenyi Medicinal Bath, the largest medicinal bath in Europe. Drawing on thermal springs, these public baths feature anywhere from pleasant 18°C pools to scalding 38°C hot pots.
 
-![Photo essay: Budapest (2014) — photo 16](/assets/travel/photo-essay-budapest-16.jpg)
+![Photo essay: Budapest (2014) — photo 16](/assets/travelbig/photo-essay-budapest-16.jpg)
 
 Nearby is the Heroes' Square, one of the major squares in the city. It is notable for its statue complex, depicting important national leaders as well as the legendary leaders of the seven tribes of the Hungarians that supposedly led their people into Central Europe near the end of the 9th century.
 
-![Photo essay: Budapest (2014) — photo 17](/assets/travel/photo-essay-budapest-17.jpg)
+![Photo essay: Budapest (2014) — photo 17](/assets/travelbig/photo-essay-budapest-17.jpg)
 
 And that concludes my remarks on Budapest, the so-called 'Paris of the East' and one of the best European cities to visit. I thought it was better than Prague, in fact (a city with a similar layout consisting of a flat eastern section and a palatial and hilly western quarter, divided by a river). Budapest is certainly a must-visit for any first-timers to this part of the continent.
 
-![Photo essay: Budapest (2014) — photo 18](/assets/travel/photo-essay-budapest-18.jpg)
+![Photo essay: Budapest (2014) — photo 18](/assets/travelbig/photo-essay-budapest-18.jpg)
 
 *"And although she may have studied with an expert dialectician and grammarian, I can tell that she was born... HUNGARIAN!"*
 
@@ -3317,7 +3317,7 @@ And that concludes my remarks on Budapest, the so-called 'Paris of the East' and
 
 *Posted 1 August 2020*
 
-![Trevi Fountain at night](/assets/travel/photo-essay-roma-invicta-01.jpg)
+![Trevi Fountain at night](/assets/travelbig/photo-essay-roma-invicta-01.jpg)
 
 *Trevi Fountain at night*
 
@@ -3327,15 +3327,15 @@ It is hard for most people, myself included, to empathise with Jung's mind-state
 
 What new is there to say about Rome? Very little, I imagine. And the hidden narratives of the Eternal City may well be like Jung's swooning fear: too fraught, too colossal, too ambitious to completely cognise.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 2](/assets/travel/photo-essay-roma-invicta-02.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 2](/assets/travelbig/photo-essay-roma-invicta-02.jpg)
 
 Piazza della Repubblica and the Fountain of the Naiads. Maybe it was because it was the tourist off-season, or maybe it was because I was lucky, but I found Roman drivers very manageable and not as hectic as people have told me. In fact, it was the pedestrians that seemed to be the bad actors much of the time. Mind you, I've been to plenty of wild traffic places in Asia and elsewhere, so maybe my standards have fallen.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 3](/assets/travel/photo-essay-roma-invicta-03.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 3](/assets/travelbig/photo-essay-roma-invicta-03.jpg)
 
 The Basilica of St. Mary of the Angels and the Martyr. This is an example of the history and heritage layered upon history and heritage that probably bothered Jung. A 16th century basilica dedicated to Christian martyrs, it was built into the ruins of the Baths of Diocletian, the largest of the public baths of ancient Rome --- hence the church's unusual, hulking facade.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 4](/assets/travel/photo-essay-roma-invicta-04.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 4](/assets/travelbig/photo-essay-roma-invicta-04.jpg)
 
 Inside, however, the basilica is a thing of beauty based on the designs of none other than Michaelangelo. The soaring transept vaults. The granite and stuccoed columns. The red pilasters. All housed in the forgotten, ruined bowels of an ancient Roman wonder.
 
@@ -3343,19 +3343,19 @@ The Vittorio Emanuele II Monument with Trajan's Column in the foreground --- a v
 
 Due to my poor research efforts before arriving in Rome, I was unaware of the existence of this grandiose marble building --- The Vittorio Emanuele II Monument. Also known as Altare della Patria (Altar to the Fatherland), it honours the first king after Italian unification in the 19th century and was a marvellous structure to come across.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 5](/assets/travel/photo-essay-roma-invicta-05.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 5](/assets/travelbig/photo-essay-roma-invicta-05.jpg)
 
 Amusingly, the monument has been criticised for its appearance and has been compared to a wedding cake (white and layered), a set of dentures (with toothy columns), and a typewriter (wide and boxy).
 
 The monument also doubles as a war memorial, honouring Italy's dead from the First World War. There is a Tomb of the Unknown Soldier, as well as an eternal flame, under the watchful gaze of a statue of Roma --- the ancient Roman goddess personifying the city itself.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 6](/assets/travel/photo-essay-roma-invicta-06.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 6](/assets/travelbig/photo-essay-roma-invicta-06.jpg)
 
 A dreary climate harangued me throughout Europe in December and January. I did not even bother packing an umbrella, thinking that the dampness would eventually clear (or even better, turn to snow). Sadly, this was not to be. Nevertheless, it was moments like these --- such as when I had an awe-inspiring view of the Colosseum straight down the middle of the road --- that made me forget the misery of rainfall and slippery asphalt.
 
 The alluring, yet moody ruins of Rome. Tree stumps of marble. A ribcage of pillars. Mossy foundation stones. All of it ossified, suspended in both time and space, signifying a glorious and dead past that will
 
-![Photo essay: Roma invicta (2013, 2014) — photo 7](/assets/travel/photo-essay-roma-invicta-07.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 7](/assets/travelbig/photo-essay-roma-invicta-07.jpg)
 
 never truly die as long as people continue to speculate and fantasise about it.
 
@@ -3363,13 +3363,13 @@ The Arch of Constantine during restoration work and half-obscured by scaffolding
 
 What's interesting about this arch is that it is effectively an ancient Roman hack-job. Almost all the sculptures on this arch were taken from earlier Roman monuments, with the faces of previous emperors crudely recut to look like Constantine's. The arch was, as the English classicist SPQR , "a costly and destructive exercise Mary Beard puts it in her book in nostalgia" that sought to place "the new emperor in the illustrious tradition of the old".
 
-![Photo essay: Roma invicta (2013, 2014) — photo 8](/assets/travel/photo-essay-roma-invicta-08.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 8](/assets/travelbig/photo-essay-roma-invicta-08.jpg)
 
 The Roman Forum is a sprawl of archaeological treasures. Every cluster of fragments, every clutter of excavated matter tells hundreds upon hundreds of stories.
 
 The Tabularium. The Temple of Antoninus and Faustina. The Arch of Titus. The Column of Phokas. The Basilica of Maxentius and Constantine. And much, much more. Each one contains a story that you can spend a whole lifetime studying.
 
-![The Temple of Saturn at the foot of Capitoline Hill](/assets/travel/photo-essay-roma-invicta-09.jpg)
+![The Temple of Saturn at the foot of Capitoline Hill](/assets/travelbig/photo-essay-roma-invicta-09.jpg)
 
 *The Temple of Saturn at the foot of Capitoline Hill*
 
@@ -3377,73 +3377,73 @@ To quote Ezra Pound:
 
 "Behold how pride and ruin can befall One who hath set the whole world 'neath her laws, All-conquering, now conquered, because She is Time's prey, and Time conquereth all." Trevi Fountain. is without a doubt the most famous fountain in all of Europe, if not the entire world. I found its resplendent Baroque imagery and salubrious rush of water quite captivating. And yes --- I did the cheesy touristy thing and threw a coin into the fountain. And no one should feel bad about it either! Apparently, thousands of Euros land in it every day, which is then scooped up to fund food for the poor.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 10](/assets/travel/photo-essay-roma-invicta-10.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 10](/assets/travelbig/photo-essay-roma-invicta-10.jpg)
 
 The next day and a visit to the Colosseum first thing in the morning in order to beat the crowds. The Flavian Amphitheatre. The true icon of the Roman universe. The largest open-air arena the Romans ever built. I came, I saw, and I was wowed by it.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 11](/assets/travel/photo-essay-roma-invicta-11.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 11](/assets/travelbig/photo-essay-roma-invicta-11.jpg)
 
 Can you imagine what it must've been like? Can anyone? The clashing gladiators. The infamous mock sea battles. Eighty thousand cheering spectators. Exotic wild beasts. The execution of criminals. The religious ceremonies. Panem et circenses. Bread and games.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 12](/assets/travel/photo-essay-roma-invicta-12.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 12](/assets/travelbig/photo-essay-roma-invicta-12.jpg)
 
 The Castel Sant'Angelo. A striking cylindrical building near the Vatican City. The "Castle of the Holy Angel", as it is sometimes called in English, has lived many different lives --- originally, it was the family mausoleum of Emperor Hadrian, later it was used as a papal military fortress, a prison, and an execution site. But these days, as with so many historied parts in Rome, its war-weathered walls have been washed of blood and the castle has settled into its final form as a museum and tourist destination.
 
 The Church of the Sacred Heart of Jesus in Prati. A small neogothic church on the River Tiber. Starkly white and oddly out of place. Just something that caught my eye during my stroll through the city
 
-![Photo essay: Roma invicta (2013, 2014) — photo 13](/assets/travel/photo-essay-roma-invicta-13.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 13](/assets/travelbig/photo-essay-roma-invicta-13.jpg)
 
 Following the rainbow lights on the night of New Year's Eve...
 
-![Photo essay: Roma invicta (2013, 2014) — photo 14](/assets/travel/photo-essay-roma-invicta-14.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 14](/assets/travelbig/photo-essay-roma-invicta-14.jpg)
 
 I, along with two friends I made at my hostel, ended up at the Colosseum watching the New Year's countdown. Farewell 2013 and hello 2014!
 
 Buon Anno! As you expect, fireworks were launched and bottles of wine were popped. That said, the dark crowds made us easy pickpocket targets and one of my friends was unfortunate enough to have a Swiss Army knife stolen. Every seasoned traveller to Europe knows a frustrating Roman theft story and this was ours.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 15](/assets/travel/photo-essay-roma-invicta-15.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 15](/assets/travelbig/photo-essay-roma-invicta-15.jpg)
 
 All alone on the first day of January. I crossed Rome's slick and lazy streets with a contradictory mix of both melancholy and happiness. I found myself at the intersection of Via delle Quattro Fontane and Via del Quirinale with its four Renaissance fountains .
 
-![Photo essay: Roma invicta (2013, 2014) — photo 16](/assets/travel/photo-essay-roma-invicta-16.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 16](/assets/travelbig/photo-essay-roma-invicta-16.jpg)
 
 Chilling on the Spanish Steps, a well-known stairway linking the church of the Santissima Trinità dei Monti above to the Piazza di Spagna below. As nice as it is though, is there anything innately and inordinately exceptional about these steps? I'd argue that the Spanish Steps' modern reputation largely derives from its depictions in beloved classic films such as Roman Holiday .
 
-![Photo essay: Roma invicta (2013, 2014) — photo 17](/assets/travel/photo-essay-roma-invicta-17.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 17](/assets/travelbig/photo-essay-roma-invicta-17.jpg)
 
 Thankfully, my sceptical musings about the Spanish Steps quickly ceased --- there was a live band playing at the bottom of the steps on New Year's Day, which made for a vivacious atmosphere. Bravo!
 
-![Photo essay: Roma invicta (2013, 2014) — photo 18](/assets/travel/photo-essay-roma-invicta-18.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 18](/assets/travelbig/photo-essay-roma-invicta-18.jpg)
 
 The Temple of Hadrian --- or rather, what remains of its original structure. A melted, half-temple. A ghost temple. Its ancient, external colonnades subsumed into a much newer building...
 
-![Photo essay: Roma invicta (2013, 2014) — photo 19](/assets/travel/photo-essay-roma-invicta-19.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 19](/assets/travelbig/photo-essay-roma-invicta-19.jpg)
 
 Piazza Navona on a brisk, winter's day, alive with crowds, stalls, and buskers. An obelisk appropriating the ancient Egyptian artistic style, and dating back around 1,900 years ago to the time of Emperor Domitian, pierces the core of the square. Personally, I'll always remember Piazza Navona as the place where (in a fit of madness) I bought a cone of very overpriced gelato.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 20](/assets/travel/photo-essay-roma-invicta-20.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 20](/assets/travelbig/photo-essay-roma-invicta-20.jpg)
 
 The Fountain of Neptune at Piazza Navona. One of three fountains in the square, this one is clearly the best since it depicts the Roman god of the sea about to skewer a goofy looking octopus for lunch. (Also, Neptune has a seagull for a hat in the photo. I'm easily amused.)
 
 Largo di Torre Argentina. This charming, sunken archaeological space contains the crumbling remains of four Roman Republican temples and part of the Theatre of Pompey. It was on this spot (or rather, vaguely around this area) that Julius Caesar was famously assassinated in the Ides of March, 44 BC.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 21](/assets/travel/photo-essay-roma-invicta-21.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 21](/assets/travelbig/photo-essay-roma-invicta-21.jpg)
 
 Fun fact: These ruins also double as a cat shelter! The Torre Argentina Cat Sanctuary proudly calls itself the oldest in all of Rome and is dedicated to feeding, vaccinating, and sterilising the feral cats that live in and around the temple ruins. As a cat lover, I was delighted to see a number of them lounging in the sun, napping on the ancient stonework.
 
 The Pantheon of Rome! Completed around 125 AD under Emperor Hadrian, it is widely called one of the best-preserved temples of the ancient Roman world. While the name Pantheon suggests that it was a temple to "all the gods", the building's actual function is surprisingly uncertain.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 22](/assets/travel/photo-essay-roma-invicta-22.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 22](/assets/travelbig/photo-essay-roma-invicta-22.jpg)
 
 The most awe-inspiring aspect of the Pantheon is its hemispherical, coffered dome. A large oculus at the centre of the ceiling brings natural light inside the entire structure and almost every visitor was craning their heads up to marvel at the dominating roof. To this day, the Pantheon's dome remains the largest unreinforced concrete dome on the planet.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 23](/assets/travel/photo-essay-roma-invicta-23.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 23](/assets/travelbig/photo-essay-roma-invicta-23.jpg)
 
 I rested for a while on the cool stony banks of Tiber Island, watching the river turn dark with the late afternoon. As recounted by Mary Beard in SPQR, the island has a somewhat quirky origin story --- it was formed at the start of the Republican era when Roman citizens dumped all the crops growing on the private land of the hated tyrant Tarquinius Superbus into the river. As she puts it, it was as if "the shape of the city was born only with the removal of the monarchy".
 
 The island also has a long history as a place of healing. In Roman times, it supposedly housed a temple to Aesculapius, the Greek god of medicine, and in the 17th century, the island was used as a leper hospital. There is still a fully functioning hospital on the island called Fatebenefratelli Hospital --- most famous for sheltering Jews during the Nazi occupation of Italy. Doctors in the hospital saved Jews by diagnosing them was a fatal, highly contagious, and entirely fictitious disease dubbed "Syndrome K", thus deterring Nazis from raiding the hospital
 
-![Photo essay: Roma invicta (2013, 2014) — photo 24](/assets/travel/photo-essay-roma-invicta-24.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 24](/assets/travelbig/photo-essay-roma-invicta-24.jpg)
 
 A view of the Pons Aemilius from Tiber Island. This is the oldest Roman stone bridge (or more accurately, the oldest crumbling remains of a bridge) in the city. Unsurprisingly, it is also known as Ponte Rotto or the "Broken Bridge". Broken. Enduring. Pearls of antiquity disintegrated into a cold, Italian river.
 
@@ -3451,13 +3451,13 @@ The Circus Maximus at sunset, with Palantine Hill in the background. It's hard t
 
 Sights like this remind me of the fascination that artists around the 18th century had with ruins, culminating in the fashionable "Capriccio"
 
-![Photo essay: Roma invicta (2013, 2014) — photo 25](/assets/travel/photo-essay-roma-invicta-25.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 25](/assets/travelbig/photo-essay-roma-invicta-25.jpg)
 
 painting style which often placed small, quotidian human figures in utterly fantastical landscapes filled with immense, ancient ruins.
 
 I found this photo on my camera and could not place its location. After some heavy googling, I managed to solve the mystery. Now I know that it's an image I took of the Fountain of the Tritons outside the Basilica of Saint Mary in Cosmedin. But think about how often travellers take a photo, thinking they'll recall the landmark later, but then completely forget. Think of all the mages we carry with us that have lost their labels in time and space.
 
-![Piazza del Popolo in the late afternoon](/assets/travel/photo-essay-roma-invicta-26.jpg)
+![Piazza del Popolo in the late afternoon](/assets/travelbig/photo-essay-roma-invicta-26.jpg)
 
 *Piazza del Popolo in the late afternoon*
 
@@ -3467,17 +3467,17 @@ So farewell, Roma. A fond goodbye to dead stone and bottomless culture, to Itali
 
 Ave atque vale. All roads lead somewhere. Or maybe they lead nowhere. But at least I'm glad I could make a brief detour for Rome
 
-![Photo essay: Roma invicta (2013, 2014) — photo 27](/assets/travel/photo-essay-roma-invicta-27.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 27](/assets/travelbig/photo-essay-roma-invicta-27.jpg)
 
 ## Photo essay: Venice (2014)
 
 *Posted 2 August 2020*
 
-![Photo essay: Venice (2014) — photo 1](/assets/travel/photo-essay-venice-01.jpg)
+![Photo essay: Venice (2014) — photo 1](/assets/travelbig/photo-essay-venice-01.jpg)
 
 An oath, an oath, I have an oath in heaven. Shall I lay perjury upon my soul? No, not for Venice. William Shakespeare, The Merchant of Venice There I was. Three days in Venice with little money and terrible weather. But even with the sombre dead skies and cold puddling ground, La Serenissima was beautiful.
 
-![Photo essay: Venice (2014) — photo 2](/assets/travel/photo-essay-venice-02.jpg)
+![Photo essay: Venice (2014) — photo 2](/assets/travelbig/photo-essay-venice-02.jpg)
 
 Stepping out of Venezia Santa Lucia railway station was a displacement into the fanciful. Can there possibly be a more dramatic entrance into a new city? The Grand Canal right before you. Movements on the water. The puttering vaporettos. San Simeone Piccolo's striking green dome.
 
@@ -3487,59 +3487,59 @@ City of Bridges. City of Canals. City of Too Many Visitors. City of Bucket Lists
 
 I completely understood what that meant and yet my time in Venice also revealed so much more.
 
-![Photo essay: Venice (2014) — photo 3](/assets/travel/photo-essay-venice-03.jpg)
+![Photo essay: Venice (2014) — photo 3](/assets/travelbig/photo-essay-venice-03.jpg)
 
 Even now, seven years after the visit, I remember riding the water buses and being checked by the ticket inspectors. I can recall the chilly excitement and the hunger in my belly as I made my way to a pricey little hostel bed on the island of Guidecca. I still remember the itinerant romance of the city.
 
 Venice wholeheartedly deserves its indomitable status in the mind's eye. It was a commercial and cultural powerhouse throughout the Middle Ages and the Renaissance. It was the little city-state that transformed itself over the centuries, from a marshy saltwater town to the crown jewel of the Adriatic Sea.
 
-![Photo essay: Venice (2014) — photo 4](/assets/travel/photo-essay-venice-04.jpg)
+![Photo essay: Venice (2014) — photo 4](/assets/travelbig/photo-essay-venice-04.jpg)
 
 According to legend, Venice was founded by Roman refugees, who sought refuge in a swampy lagoon from Germanic and Hunnic invaders. Was Venice really founded as a sanctuary city amidst the crumbling of the Roman Empire? Regardless of the truths in legend, what began as scattered communities of peoples across 118 islands slowly coalesced into a fledgling republic under a Doge, a supreme authority elected for life by the city's aristocratic families.
 
-![Photo essay: Venice (2014) — photo 5](/assets/travel/photo-essay-venice-05.jpg)
+![Photo essay: Venice (2014) — photo 5](/assets/travelbig/photo-essay-venice-05.jpg)
 
 Venice's success was driven by globalisation in a time before globalisation as we know it. Its advantageous location in the region allowed it to ply a lucrative trade with both the Byzantine Empire and the Islamic world. Venice served as Europe's gateway to Asia via the Silk Road and by the late 14th century was the most prosperous city in all of Europe.
 
-![Photo essay: Venice (2014) — photo 6](/assets/travel/photo-essay-venice-06.jpg)
+![Photo essay: Venice (2014) — photo 6](/assets/travelbig/photo-essay-venice-06.jpg)
 
 Venice, of course, backed its magnificent wealth with military might, expanding its economic influence into an empire across the Italian mainland, the Balkan Peninsula, and beyond. Only by the 15th century, with the rise of powers like Portugal and the Ottoman Turks, did Venice's status begin to fade.
 
 But let us (briefly) pause on the history lesson. What does mighty Venice offer the visitor of today?
 
-![Photo essay: Venice (2014) — photo 7](/assets/travel/photo-essay-venice-07.jpg)
+![Photo essay: Venice (2014) — photo 7](/assets/travelbig/photo-essay-venice-07.jpg)
 
 Well, for one thing, Venice's network of canals is genuinely heaven for photographers. Its imagery --- even if you have seen it so many times in pictures --- is preeminently surreal in person. The thin floating houses. The balconies above the water. The Ponte dei Sospiri or Bridge of Sighs. The colourful pali da casada mooring poles.
 
-![Photo essay: Venice (2014) — photo 8](/assets/travel/photo-essay-venice-08.jpg)
+![Photo essay: Venice (2014) — photo 8](/assets/travelbig/photo-essay-venice-08.jpg)
 
 And no visage of the canals is complete without its traditional, flat-bottomed gondolas. Once a common means of transportation in Venice, with thousands of these little crafts swarming the waterscape, these days they operate solely as an elegant (albeit, pricey) experience for tourists. There are currently around 400 licensed gondoliers in Venice and, alas, none of them charged a fixed rate that a broke backpacking student could afford.
 
 The centrepiece of Venice is without a doubt the Piazza San Marco, a vast public space bedecked the exotic facade of St Mark's Basilica, the immensity of St Mark's Campanile, the intricacies of the famous Clock Tower, and the rich colonnade of the Doge's Palace. And yes, even in the mist and the rain, with half the basilica hidden by scaffolding, this was a place worth attending to
 
-![Photo essay: Venice (2014) — photo 9](/assets/travel/photo-essay-venice-09.jpg)
+![Photo essay: Venice (2014) — photo 9](/assets/travelbig/photo-essay-venice-09.jpg)
 
 A view of the Grand Canal from Piazza San Marco with its two famous granite columns, one mounted with the winged Lion of Venice and the other with San Teodoro (Saint Theodore) in the act of spearing a dragon.
 
 The Patriarchal Cathedral Basilica of Saint Mark. Basilica di San Marco. The word that comes to mind when gazing at its structure is "fusion". With its blending of Islamic, Byzantine, and Italian artistic elements, the church represents the melting pot that Venice became through its maritime command.
 
-![Photo essay: Venice (2014) — photo 10](/assets/travel/photo-essay-venice-10.jpg)
+![Photo essay: Venice (2014) — photo 10](/assets/travelbig/photo-essay-venice-10.jpg)
 
 Nicknamed Chiesa d'Oro or Church of Gold, the basilica is also a temple of material splendour with its opulent, golden mosaics. The original church was built to house the relics of Saint Mark after it was reputedly stolen by two Venetian merchants and smuggled out of Alexandria by boat. As the story goes, the body was concealed by pork products to dissuade Alexandria's Muslim custom officers from investigating the cargo too closely The original Triumphal Quadriga, a set of four bronze horses that were once mounted on the roofed open gallery of St Mark's Basilica, purposes, replica statues overlooking the piazza. For restoration currently stand in its original place. Of ancient Roman origin, the horses were famously stolen by Napoleon Bonaparte in 1797, before being returned to Venice eighteen years later.
 
-![Photo essay: Venice (2014) — photo 11](/assets/travel/photo-essay-venice-11.jpg)
+![Photo essay: Venice (2014) — photo 11](/assets/travelbig/photo-essay-venice-11.jpg)
 
 The Porta della Carta, the gothic ceremonial doorway into the Doge's Palace. Above the main entrance, Doge Francesco Foscari, the 65th Doge of the Venetian Republic, is depicted kneeling before the winged lion of St. Mark.
 
 Lavish and stately, the Doge's Palace, or Palazzo Ducale, was once the heart of Venetian government and the official residence of the Doge himself. Every little niche and turret tells a story of architecture, history, and culture.
 
-![Photo essay: Venice (2014) — photo 12](/assets/travel/photo-essay-venice-12.jpg)
+![Photo essay: Venice (2014) — photo 12](/assets/travelbig/photo-essay-venice-12.jpg)
 
 Pictured above: The palace's large central courtyard (left) and the Golden Staircase or Scala d'Oro (right).
 
 The Giants' Staircase, another well-known feature of the Doge's Palace. It is named after the two statues of the Roman gods Mars and Neptune at the top of the staircase, representing Venice's might on land as well as at sea.
 
-![Photo essay: Venice (2014) — photo 13](/assets/travel/photo-essay-venice-13.jpg)
+![Photo essay: Venice (2014) — photo 13](/assets/travelbig/photo-essay-venice-13.jpg)
 
 The Chamber of the Great Council. Without a doubt, it is the grandest room in the entire palace and was also at the time of construction, the largest meeting hall in all of Europe.
 
@@ -3547,7 +3547,7 @@ T orre dell'Orologio. The Clock Tower of St Mark's Square. A timekeeper that has
 
 From top to bottom of the tower: The bronze bell strikers, the ubiquitous winged Venetian lion, a statue of Madonna and Child on the balcony, and the exquisite blue timepiece itself, with its golden clock hand, zodiac signs, and starry backdrop.
 
-![Photo essay: Venice (2014) — photo 14](/assets/travel/photo-essay-venice-14.jpg)
+![Photo essay: Venice (2014) — photo 14](/assets/travelbig/photo-essay-venice-14.jpg)
 
 Pictured above: the Rialto Bridge lit-up at night. This beautiful marble bridge dates back to the Renaissance and is the oldest --- and most iconic --- of four bridges across Venice's Grand Canal.
 
@@ -3557,35 +3557,35 @@ The great Italian scientist Galileo Galilei, the oft-called "father of modern sc
 
 And now to leave Venice proper for some short vaporetto rides to nearby islands...
 
-![Photo essay: Venice (2014) — photo 15](/assets/travel/photo-essay-venice-15.jpg)
+![Photo essay: Venice (2014) — photo 15](/assets/travelbig/photo-essay-venice-15.jpg)
 
 Isola di San Michele. An orange bricked necropolis. Almost the entire island is a walled-off cemetery and its grounds are very peaceful to visit (if you are so inclined). Just don't do what I did and slip on the wet boards propped against the stone steps. Thankfully, there was no one there to judge me but the tombstones.
 
 Murano: a popular island town near Venice that is world famous for its glass products. Although the traditional glassmaking profession is dwindling on the island, Murano's beautiful, artisanal glass is definitely still worth seeing. Make sure not to accidentally break anything in the shops.
 
-![Photo essay: Venice (2014) — photo 16](/assets/travel/photo-essay-venice-16.jpg)
+![Photo essay: Venice (2014) — photo 16](/assets/travelbig/photo-essay-venice-16.jpg)
 
 Likewise, Burano: a quaint, rainbow village that is also on its own little island in the lagoon. Admittedly rather damp and largely absent of visitors when I visited. The amusing, apocryphal story behind why the houses are so brightly painted is that it apparently helped fishermen returning from the sea to identify their own house in the fog.
 
 These days, given the iconic status of the island, Burano's residents need government permission to paint their house a different colour.
 
-![Photo essay: Venice (2014) — photo 17](/assets/travel/photo-essay-venice-17.jpg)
+![Photo essay: Venice (2014) — photo 17](/assets/travelbig/photo-essay-venice-17.jpg)
 
 Move aside Pisa --- the Leaning Bell Tower of Burano is here. I briefly thought I had a problem with my eyes when I first noticed this teetering, unstable-looking campanile! Attached to the Church of San Martino, its extreme tilt is due to land subsidence.
 
-![Photo essay: Venice (2014) — photo 18](/assets/travel/photo-essay-venice-18.jpg)
+![Photo essay: Venice (2014) — photo 18](/assets/travelbig/photo-essay-venice-18.jpg)
 
 Speaking of unstable situations... It is hard to talk about Venice these days and not mention the challenges the city is facing from issues such as over-tourism, cruise ships sailing dangerously close, pollution, and much more. The city is also at risk of literally sinking into the lagoon as a result of rising sea levels and excessive groundwater extraction degrading the land.
 
 Visitor quotas. Special taxes. Flood barriers. Bans on cruise ships. Sustainable tourism. So many solutions have been suggested or implemented to address Venice's challenges. I can't claim any form of expertise on what should be done. All I can do is sadly acknowledge that I might never know this city ever again --- or rather, more to the point, this city of experiences that I and so many others have explored might dissolve away for good.
 
-![Photo essay: Venice (2014) — photo 19](/assets/travel/photo-essay-venice-19.jpg)
+![Photo essay: Venice (2014) — photo 19](/assets/travelbig/photo-essay-venice-19.jpg)
 
 On my last night in Venice, I escaped sideways into the depths of this city. Weaving through the empty water warrens of Cannaregio and Castello, I became one with the darkling walkways and dead-end bridges. I became one with the creaking boats and lapping stone steps I found myself in an unremarkable little square. They had not yet taken down the Christmas decorations. The street lamps gave the square a mulled, orange haze and I remember a football being kicked around by children.
 
 Had I finally found the real Venice? Or was this just another trick of the light?
 
-![Photo essay: Venice (2014) — photo 20](/assets/travel/photo-essay-venice-20.jpg)
+![Photo essay: Venice (2014) — photo 20](/assets/travelbig/photo-essay-venice-20.jpg)
 
 ## Prague (2014)
 
@@ -3629,13 +3629,13 @@ But the hands of one of the gentleman were laid on K.'s throat, while the other 
 
 --- The Trial
 
-![Prague (2014) — photo 1](/assets/travel/prague-01.jpg)
+![Prague (2014) — photo 1](/assets/travelbig/prague-01.jpg)
 
 ## "Holy sight-See-ing" (2013)
 
 *Posted 2 September 2020*
 
-![St. Peter's Square at sunrise](/assets/travel/holy-sight-see-ing-01.jpg)
+![St. Peter's Square at sunrise](/assets/travelbig/holy-sight-see-ing-01.jpg)
 
 *St. Peter's Square at sunrise*
 
@@ -3643,21 +3643,21 @@ But the hands of one of the gentleman were laid on K.'s throat, while the other 
 
 When one is in Rome, it would be remiss of them not to stop by the Vatican City, the smallest sovereign state on the planet. The moment one steps inside St. Peter's Square, they are transported outside of Italy and into the realm of an absolute theocratic monarchy, heading a religion with 1.3 billion members worldwide One of my most memorable experiences in Europe was climbing the dome of St. Peter's Basilica and being the first person on the roof that morning. Just myself and the apostles overlooking Rome at sunrise. The bells suddenly thundered and I watched pigeons explode into the air. Extraordinary.
 
-!["Holy sight-See-ing" (2013) — photo 2](/assets/travel/holy-sight-see-ing-02.jpg)
+!["Holy sight-See-ing" (2013) — photo 2](/assets/travelbig/holy-sight-see-ing-02.jpg)
 
 The basilica is, without a doubt, one of the most breathtaking human creations I have ever entered. What a strange word. Can Breathtaking. such vaulted scale and religious beauty literally interrupt a person's breathing? Can such a centrepiece of world culture still strike awe into someone, like me, who holds no faith? I certainly believe so.
 
 I remember being fixated on the dark sculpted canopy that loomed over the high altar. St. Peter's Baldachin. Its twisting columns were like the legs of some titanic creature, but not of this world.
 
-!["Holy sight-See-ing" (2013) — photo 3](/assets/travel/holy-sight-see-ing-03.jpg)
+!["Holy sight-See-ing" (2013) — photo 3](/assets/travelbig/holy-sight-see-ing-03.jpg)
 
 I was also entranced by the statues that populated the cavernous space of the basilica. Michelangelo's Pietà was a powerful Renaissance marvel. Likewise, the other statues were works of gorgeous craftsmanship which captured the elegant motions and intense expressions of saintly and papal figures. It seemed as though if one were to merely prod them, they would stir into life.
 
-!["Holy sight-See-ing" (2013) — photo 4](/assets/travel/holy-sight-see-ing-04.jpg)
+!["Holy sight-See-ing" (2013) — photo 4](/assets/travelbig/holy-sight-see-ing-04.jpg)
 
 A visit to Vatican City is really an immersion in two parts. The first, of course, is done by entering the great world church of St. Peter's Basilica. The second is undertaken by exploring the Vatican Museums, where the full force of the Roman Catholic Church's wealth and influence across time and space is on display. Priceless frescoes, statues, and paintings --- all of it hoarded, or created, within the Vatican's ecclesiastical dominion.
 
-!["Holy sight-See-ing" (2013) — photo 5](/assets/travel/holy-sight-see-ing-05.jpg)
+!["Holy sight-See-ing" (2013) — photo 5](/assets/travelbig/holy-sight-see-ing-05.jpg)
 
 Some of my personal highlights from the Vatican Museum:
 
@@ -3673,11 +3673,11 @@ The Maps Gallery, surely one of the most astonishingly beautiful hallways ever c
 
 The School of Athens by Raphael, a painting which depicts some of the greatest thinkers of classical antiquity.
 
-!["Holy sight-See-ing" (2013) — photo 6](/assets/travel/holy-sight-see-ing-06.jpg)
+!["Holy sight-See-ing" (2013) — photo 6](/assets/travelbig/holy-sight-see-ing-06.jpg)
 
 A journey into the Vatican Museums is also a journey into the Sistine Chapel, which is celebrated for containing perhaps the most celebrated artistic achievement in all of human history. The effect of the Sistine Chapel, however, is mildly dampened by the frequent snap of the guards:
 
-!["Holy sight-See-ing" (2013) — photo 7](/assets/travel/holy-sight-see-ing-07.jpg)
+!["Holy sight-See-ing" (2013) — photo 7](/assets/travelbig/holy-sight-see-ing-07.jpg)
 
 "No photo! No camera!" It is a space where the demand for hushed contemplation and the burning desire of tourists to capture everything they see is pressed into an unresolvable, endless tension.
 
@@ -3689,7 +3689,7 @@ Instead, I satisfied myself by taking photos of the masterful paintings which, l
 
 *Posted 22 July 2020*
 
-![The Royal Court of the Palace of Versailles](/assets/travel/a-day-trip-to-versailles-01.jpg)
+![The Royal Court of the Palace of Versailles](/assets/travelbig/a-day-trip-to-versailles-01.jpg)
 
 *The Royal Court of the Palace of Versailles*
 
@@ -3699,13 +3699,13 @@ What draws people to the **Palace of Versailles** like bugs to a golden light? I
 
 I visited the *Château de Versailles* on a crisp winter's day. Getting there from Paris was almost too easy. The city of Versailles is located less than twenty kilometres south-west from Paris by RER and the palace is only a short walk from the train station. Given its close proximity to the capital and global fame, the Palace of Versailles is obviously wildly popular all year around. As such, the First Rule of Popular Day Trips applies in full force: Drag yourself out of bed and get there as early to beat the crowds.
 
-![A day trip to Versailles (2013) — photo 2](/assets/travel/a-day-trip-to-versailles-02.jpg)
+![A day trip to Versailles (2013) — photo 2](/assets/travelbig/a-day-trip-to-versailles-02.jpg)
 
 A quick history rundown: The Palace of Versailles can be condensed into the story of three monarchs with the name Louis. Sort of.
 
 Originally, the royal palace was merely a hunting lodge for King Louis XIII in the early 17th-century. His son, King Louis XIV (also famously known as the Sun King) took a great liking to the site and began to significantly expand it, eventually making it his Court in 1683. It then remained this way up until the doomed reign of King Louis XVI—the last monarch to live in Versailles and the last King of France prior to the French Revolution of 1789-99.
 
-![A day trip to Versailles (2013) — photo 3](/assets/travel/a-day-trip-to-versailles-03.jpg)
+![A day trip to Versailles (2013) — photo 3](/assets/travelbig/a-day-trip-to-versailles-03.jpg)
 
 ### Inside the royal residence
 
@@ -3713,19 +3713,19 @@ The palace, simply put, is astonishing. There are 2,300 rooms spread over 63,000
 
 It's worth noting that the palace continued to be developed, even after the wane of the Bourbon dynasty. For instance, there's the Coronation Room with its immense painting depicting the consecration of Napoleon Bonaparte and the coronation of his wife, Empress Josephine. There's also the 1792 Room, another post-French Revolution room, filled with paintings highlighting key battles and figures from the French Revolutionary Wars.
 
-![A day trip to Versailles (2013) — photo 4](/assets/travel/a-day-trip-to-versailles-04.jpg)
+![A day trip to Versailles (2013) — photo 4](/assets/travelbig/a-day-trip-to-versailles-04.jpg)
 
 But the highlight of Versailles is, without a glint of doubt, the dazzling Hall of Mirrors. The gallery showcases French economic, political and cultural prowess from that time period, and is named after its large mirror-panelled arches (mirrors were a highly expensive rarity in the 1600s).
 
 The Hall of Mirrors also played a role in 20th-century history as well. The Treaty of Versailles was signed here in June of 1919, concluding the First World War. It also arguably, with its brutal treatment of Germany, helped lay the foundations for the rise of Nazism and the lead up to the Second World War.
 
-![The Hall of Mirrors](/assets/travel/a-day-trip-to-versailles-05.jpg)
+![The Hall of Mirrors](/assets/travelbig/a-day-trip-to-versailles-05.jpg)
 
 *The Hall of Mirrors*
 
 Connected to the Hall of Mirrors are the War Room and the Peace Room. The War Room commemorates the military victories of France with its marble panels, trophies and gilded weapons. In contrast, the decor in the Peace Room praises the benefits of peace brought upon the continent of Europe by France.
 
-![A day trip to Versailles (2013) — photo 6](/assets/travel/a-day-trip-to-versailles-06.jpg)
+![A day trip to Versailles (2013) — photo 6](/assets/travelbig/a-day-trip-to-versailles-06.jpg)
 
 The State Apartments are another impressive part of the palace. They have lofty names such as the "Venus Salon", the "Mercury Salon", and the "Mars Salon" and were used to hold official acts of the state.
 
@@ -3733,7 +3733,7 @@ For what my words are worth, I believe the most arresting of these rooms is the 
 
 The Royal Chapel is yet another splendour of Versailles, with its airy Gothic-inspired architecture. It was in this chapel, in 1770, that Marie Antoinette, at age fourteen, married Louis XVI.
 
-![The Royal Chapel](/assets/travel/a-day-trip-to-versailles-07.jpg)
+![The Royal Chapel](/assets/travelbig/a-day-trip-to-versailles-07.jpg)
 
 *The Royal Chapel*
 
@@ -3741,21 +3741,21 @@ The Royal Chapel is yet another splendour of Versailles, with its airy Gothic-in
 
 Once you're done with the inside of the palace, there are still the immense palace gardens to explore. Work on the gardens began around the same time as the development of the palace itself and took approximately four decades to complete. They're hard to cover all at once, particularly in wintertime with the icy air nuzzling down your neck...
 
-![A day trip to Versailles (2013) — photo 8](/assets/travel/a-day-trip-to-versailles-08.jpg)
+![A day trip to Versailles (2013) — photo 8](/assets/travelbig/a-day-trip-to-versailles-08.jpg)
 
-![A day trip to Versailles (2013) — photo 9](/assets/travel/a-day-trip-to-versailles-09.jpg)
+![A day trip to Versailles (2013) — photo 9](/assets/travelbig/a-day-trip-to-versailles-09.jpg)
 
 There are buildings that are definitely worth exploring as well — and best of all, they have fewer crowds to navigate through. There's the Grand Trianon with its pink marble colonnade, state apartments, and private chambers. The Petit Trianon is the Grand Trianon's smaller counterpart, but no less charming with its elegant rooms.
 
-![A day trip to Versailles (2013) — photo 10](/assets/travel/a-day-trip-to-versailles-10.jpg)
+![A day trip to Versailles (2013) — photo 10](/assets/travelbig/a-day-trip-to-versailles-10.jpg)
 
-![A day trip to Versailles (2013) — photo 11](/assets/travel/a-day-trip-to-versailles-11.jpg)
+![A day trip to Versailles (2013) — photo 11](/assets/travelbig/a-day-trip-to-versailles-11.jpg)
 
 Lastly, tucked away in a corner of the giant royal estate is the Hameau de la Reine or Queen's Hamlet. This was Marie Antoinette's private leisure retreat. It resembles an idyllic fantasy version of a French peasant farm and enabled her to live out a rustic peasant lifestyle, milking cows and what not.
 
 As charming the hamlet is, it's important to remember what it represented to the angry and impoverished French peasantry: Further proof that the royal family was decadent, contemptuous, and out-of-touch with the common people.
 
-![A day trip to Versailles (2013) — photo 12](/assets/travel/a-day-trip-to-versailles-12.jpg)
+![A day trip to Versailles (2013) — photo 12](/assets/travelbig/a-day-trip-to-versailles-12.jpg)
 
 ### The king is dead. Long live the king.
 
@@ -3791,7 +3791,7 @@ If this idea bothers you, then I recommend that on your visit to Versailles, you
 
 It was here, in the middle of 1789, that the non-privileged members of the National Assembly committed an act of defiance against the monarch. Fearing the king was forcing them to dissolve, they gathered inside a tennis court and took an oath to remain unified until France had a written constitution. This Tennis Court Oath was one of the first great sparks of opposition that ultimately culminated in the French Revolution itself.
 
-![A statue of Jean Sylvain Bailly in the Royal Tennis Court, an early leader of the French Revolution](/assets/travel/a-day-trip-to-versailles-13.jpg)
+![A statue of Jean Sylvain Bailly in the Royal Tennis Court, an early leader of the French Revolution](/assets/travelbig/a-day-trip-to-versailles-13.jpg)
 
 *A statue of Jean Sylvain Bailly in the Royal Tennis Court, an early leader of the French Revolution*
 
@@ -3805,7 +3805,7 @@ At the very least, it now means that simple, ignoble commoners like you and I ca
 
 *Posted 15 May 2023*
 
-![1.](/assets/travel/berlin-01.jpg)
+![1.](/assets/travelbig/berlin-01.jpg)
 
 *1.*
 
@@ -3815,7 +3815,7 @@ A couple of the bottles roll onto the tracks. He jumps down onto the tracks and 
 
 'Jesus Christ', I say. The man standing next to me agrees. 'Crazy', he says.
 
-![2.](/assets/travel/berlin-02.jpg)
+![2.](/assets/travelbig/berlin-02.jpg)
 
 *2.*
 
@@ -3823,7 +3823,7 @@ Lachlan joined us at the hostel with a grizzled Cat Stevens beard, looking broke
 
 Nothing seemed to be able to make him happy and all he could talk about was his miserable Canberra gossip, his miserable ANU politics, his overwhelming retentive misery. Did I mention I regretted being in Berlin with him? The glummiest grumpster holidaying Germany in December of 2013...
 
-![3.](/assets/travel/berlin-03.jpg)
+![3.](/assets/travelbig/berlin-03.jpg)
 
 *3.*
 
@@ -3831,7 +3831,7 @@ It became night so quickly at that time of year. And even though I expected it a
 
 The priceless art and archaeology of Museum Island felt diminished in the stale, cement-like air while that strip of energetic street art on the remnants of the Berlin Wall seemed a doleful afterthought. The Brandenburg Gate was a weakness of stalks. A dark wetness sucked at every surface. The only thing that became unlost was the Holocaust Memorial: its normally baffling, oft-critiqued blocks finally rendered appropriately brutal.
 
-![4.](/assets/travel/berlin-04.jpg)
+![4.](/assets/travelbig/berlin-04.jpg)
 
 *4.*
 
@@ -3841,7 +3841,7 @@ It was good to be in his company again, after studying with him many, many month
 
 The next evening, I had a hearty plate of Bavarian food at a restaurant for dinner.
 
-![5.](/assets/travel/berlin-05.jpg)
+![5.](/assets/travelbig/berlin-05.jpg)
 
 *5.*
 
@@ -3853,7 +3853,7 @@ The next evening, I had a hearty plate of Bavarian food at a restaurant for dinn
 
 *Posted 18 July 2020*
 
-![The Galerie d'Apollon](/assets/travel/the-louvre-in-rhyming-couplets-01.jpg)
+![The Galerie d'Apollon](/assets/travelbig/the-louvre-in-rhyming-couplets-01.jpg)
 
 *The Galerie d'Apollon*
 
@@ -3861,31 +3861,31 @@ The next evening, I had a hearty plate of Bavarian food at a restaurant for dinn
 
 Beyond the glass pyramids in the navel of Paris Was a collection so colossal it truly did scare us. The Louvre: the biggest art museum on the planet! You couldn't see it all in one day, even if you ran it.
 
-![The Louvre... in rhyming couplets (2013) — photo 2](/assets/travel/the-louvre-in-rhyming-couplets-02.jpg)
+![The Louvre... in rhyming couplets (2013) — photo 2](/assets/travelbig/the-louvre-in-rhyming-couplets-02.jpg)
 
 Originally, it was the palace of a lavish dynasty Till it was opened up by revolutionaries in 1793. A vault of masterpieces unlocked for crowds; To this very day, its prestige is up in the clouds.
 
 But I'll say it right now -- Mona Lisa's overrated. Tourists rabble around her, crassly captivated, Ignoring the stunning art that shares her wing, Other grand works that also merit worshipping.
 
-![The Louvre... in rhyming couplets (2013) — photo 3](/assets/travel/the-louvre-in-rhyming-couplets-03.jpg)
+![The Louvre... in rhyming couplets (2013) — photo 3](/assets/travelbig/the-louvre-in-rhyming-couplets-03.jpg)
 
 I loved Jacques-Louis David's dramatic stances, Delacroix's motions, and Ingres's erotic glances; I loved the sculpture garden, bathed in whiteness, And the Apollo Gallery in all its stupid glitziness.
 
-![The Louvre... in rhyming couplets (2013) — photo 4](/assets/travel/the-louvre-in-rhyming-couplets-04.jpg)
+![The Louvre... in rhyming couplets (2013) — photo 4](/assets/travelbig/the-louvre-in-rhyming-couplets-04.jpg)
 
 But after a while, the images seem to roll on repeat, Like ugly Christ Childs suckling Holy Mother's teat, Medieval altarpieces displaying brutalised saints, Or creepy Flemish reptile people in oily paints.
 
-![The Louvre... in rhyming couplets (2013) — photo 5](/assets/travel/the-louvre-in-rhyming-couplets-05.jpg)
+![The Louvre... in rhyming couplets (2013) — photo 5](/assets/travelbig/the-louvre-in-rhyming-couplets-05.jpg)
 
 More military portraits. More tortured passions. Kitchen sink still lifes in all its Dutch fashions. Long halls of Biblical and historical extracts --- Long as the list of Louvre's ill-gotten artefacts.
 
 By the fifth hour, and with very little to eat, We began to feel art's burden on our tiny feet. My friend turned and gave his main takeaway: "I've heard it's much better---the Musee d'Orsay."
 
-![The Louvre... in rhyming couplets (2013) — photo 6](/assets/travel/the-louvre-in-rhyming-couplets-06.jpg)
+![The Louvre... in rhyming couplets (2013) — photo 6](/assets/travelbig/the-louvre-in-rhyming-couplets-06.jpg)
 
 The Greeks got a glance. The Etruscans, a blur. I swear all these church icons are just to deter... We raced past old statues and so, so much more, Said hi to Venus de Milo, then bolted out the door.
 
-![The Louvre... in rhyming couplets (2013) — photo 7](/assets/travel/the-louvre-in-rhyming-couplets-07.jpg)
+![The Louvre... in rhyming couplets (2013) — photo 7](/assets/travelbig/the-louvre-in-rhyming-couplets-07.jpg)
 
 It was too much Louvre and just too much art; It wafted past my head like an odourless fart. Thus, I resign myself to a lack of sophistication If only so my feet can regain some sensation.
 
@@ -3893,7 +3893,7 @@ It was too much Louvre and just too much art; It wafted past my head like an odo
 
 *Posted 3 October 2020*
 
-![Uluru at sunset](/assets/travel/the-red-centre-australia-01.jpg)
+![Uluru at sunset](/assets/travelbig/the-red-centre-australia-01.jpg)
 
 *Uluru at sunset*
 
@@ -3903,7 +3903,7 @@ I made a journey into the Red Centre of Australia back in the middle of 2013, du
 
 There was also a personal reason to go this far into the country. I had just broken up with my college girlfriend and was feeling aimless. I had been in Australia for a couple of years and yet I felt I hadn't properly experienced the true diversity of the landscape. This was a chance to change that. To shake things up a bit.
 
-![The Outback](/assets/travel/the-red-centre-australia-02.jpg)
+![The Outback](/assets/travelbig/the-red-centre-australia-02.jpg)
 
 *The Outback*
 
@@ -3913,11 +3913,11 @@ I went with a tour group to explore Uluṟu-Kata Tjuṯa National Park and see U
 
 Mount Connor, also known as "Fool-uru" since it is commonly mistaken for Uluru Uluru is an epic sandstone rock formation that rises nearly 350m into the air. It is geologically known as an 'inselberg' or 'monadnock', which
 
-![The Red Centre, Australia (2013) — photo 3](/assets/travel/the-red-centre-australia-03.jpg)
+![The Red Centre, Australia (2013) — photo 3](/assets/travelbig/the-red-centre-australia-03.jpg)
 
 means it is a hill or small mountain that stands alone on a flat plain.
 
-![At the base of Uluru](/assets/travel/the-red-centre-australia-04.jpg)
+![At the base of Uluru](/assets/travelbig/the-red-centre-australia-04.jpg)
 
 *At the base of Uluru*
 
@@ -3925,7 +3925,7 @@ Uluru is also a sacred site to the Aboriginal people of the Central Australian d
 
 As many of you may know, this place has also courted controversy. Before late October 2019, tourists were allowed to climb Uluru even though this is deeply disrespectful to the traditional Indigenous custodians of the land. It's a sacred site and not a lump of rock to be conquered by daft foreigners! Not only is it quite a culturally insulting
 
-![The Red Centre, Australia (2013) — photo 5](/assets/travel/the-red-centre-australia-05.jpg)
+![The Red Centre, Australia (2013) — photo 5](/assets/travelbig/the-red-centre-australia-05.jpg)
 
 thing to do, but it can also be rather unsafe. At least 37 visitors have died in incidents related to climbing Uluru since record-keeping began.
 
@@ -3935,7 +3935,7 @@ On a lighter note, I had the privilege of being able to see the colours change a
 
 Next stop: Kata Tjuṯa, also known as the Olgas.
 
-![Kata Tjuṯa](/assets/travel/the-red-centre-australia-06.jpg)
+![Kata Tjuṯa](/assets/travelbig/the-red-centre-australia-06.jpg)
 
 *Kata Tjuṯa*
 
@@ -3943,7 +3943,7 @@ In many ways, it is just as magnificent as Uluru. Jutting out of the scraggly, f
 
 The final stop on my tour was Kings Canyon in Watarrka National Park, around 320 kilometres southwest of Alice Springs. It is a steep and scenic canyon with a lush and permanent waterhole at the heart of it dubbed the Garden of Eden -- a glorious oasis compared to the rugged environment surrounding it. That said, due to an unfortunate flurry of
 
-![The Red Centre, Australia (2013) — photo 7](/assets/travel/the-red-centre-australia-07.jpg)
+![The Red Centre, Australia (2013) — photo 7](/assets/travelbig/the-red-centre-australia-07.jpg)
 
 wet weather during our canyon hike, I had a little trouble seeing it as such!
 
@@ -3953,7 +3953,7 @@ And after this, it was back to Alice Springs. Here, I spent a few more days in t
 
 *Posted 6 October 2020*
 
-![A view of Zurich and the river Limmat](/assets/travel/zurich-01.jpg)
+![A view of Zurich and the river Limmat](/assets/travelbig/zurich-01.jpg)
 
 *A view of Zurich and the river Limmat*
 
@@ -3961,19 +3961,19 @@ A pitstop in Switzerland on the journey between Berlin to Turin A train ride thr
 
 Snaps of Grossmünster, Fraumünster, and Church of St. Peter...
 
-![Zürich (2013) — photo 2](/assets/travel/zurich-02.jpg)
+![Zürich (2013) — photo 2](/assets/travelbig/zurich-02.jpg)
 
 Admiring the art collection of the Kunsthaus...
 
 The Grossmünster in the background with its lovely red spire...
 
-![Zürich (2013) — photo 3](/assets/travel/zurich-03.jpg)
+![Zürich (2013) — photo 3](/assets/travelbig/zurich-03.jpg)
 
 Hiking up Üetliberg, a hill which overlooks Zürich...
 
 A glimpse of the city, Lake Zürich, and the Swiss Alps...
 
-![Zürich (2013) — photo 4](/assets/travel/zurich-04.jpg)
+![Zürich (2013) — photo 4](/assets/travelbig/zurich-04.jpg)
 
 Grand mountains, a blue and feathered sky, the vast winter air...
 
@@ -3983,7 +3983,7 @@ Grand mountains, a blue and feathered sky, the vast winter air...
 
 I lived for over a month in Beijing after my second year of uni. Nominally, I was here to do an "internship", to get some "work experience" with a consulting firm. A joke, truly, given my limited grasp of Chinese. In reality, I wanted to escape my little summer pocket of New Zealand, and I leapt at the chance to spend a wintry, smoggy season in the capital of the People's Republic.
 
-![The Forbidden City.](/assets/travel/a-winter-in-beijing-01.jpg)
+![The Forbidden City.](/assets/travelbig/a-winter-in-beijing-01.jpg)
 
 *The Forbidden City.*
 
@@ -3993,7 +3993,7 @@ In the slideshow below: ceramics from across the expansive, nearly unfathomable,
 
 For me, the Forbidden City did not merely draw my attention to its intricate architectural layout, it seemed to command it with a booming announcement. Its yellow decorated roofs and marble bridges. Its glazed dragon tiles and red-walled pathways. This was a microcosm built by a civilisation that believed they were at the absolute centre of the universe. And it almost certainly was. For a time.
 
-![Jingshan Park.](/assets/travel/a-winter-in-beijing-02.jpg)
+![Jingshan Park.](/assets/travelbig/a-winter-in-beijing-02.jpg)
 
 *Jingshan Park.*
 
@@ -4001,7 +4001,7 @@ Jingshan Park spreads its ancient trees over 23 hectares in the imperial heart. 
 
 I climbed to the top of one of its peaks and felt the dry, muted chill of the Beijing winter. From somewhere near the foot of the hill, I heard the ghostly rise of old men singing. I had no idea what they singing about. I have never known what old men speak about in Chinese.
 
-![Beijing Zoo.](/assets/travel/a-winter-in-beijing-03.jpg)
+![Beijing Zoo.](/assets/travelbig/a-winter-in-beijing-03.jpg)
 
 *Beijing Zoo.*
 
@@ -4009,7 +4009,7 @@ I visited what I thought was the most depressing zoo in the world. I peered upon
 
 But this was many years ago, back when the country was not nearly as sophisticated and wealthy as it is now. And change happens so fast in China. But has change come to these denizens? Are their existences better now? I hope so, I can hope so.
 
-![The Summer Palace.](/assets/travel/a-winter-in-beijing-04.jpg)
+![The Summer Palace.](/assets/travelbig/a-winter-in-beijing-04.jpg)
 
 *The Summer Palace.*
 
@@ -4025,7 +4025,7 @@ We were spooked and the two of us scampered for the safety of solid earth. In my
 
 *Posted 9 March 2022*
 
-![A view of Tiananmen Square and the Forbidden City](/assets/travel/beijing-s-museums-01.jpg)
+![A view of Tiananmen Square and the Forbidden City](/assets/travelbig/beijing-s-museums-01.jpg)
 
 *A view of Tiananmen Square and the Forbidden City*
 
@@ -4051,7 +4051,7 @@ The ramparts of the old dynasties: stone, brick, rammed earth stretching as far 
 
 I race up the battlements to a vacant watchtower, then hike over to another, and then another. Tourists are dotted all along the wall, scattered like pebbles across its winding back. There are many visitors, but they are diffuse. There's no natural congregation point along the Great Wall -- you can walk as much or as little of it as you want. The wall doesn't care. It knows it cannot be conquered on foot. It simply never ends.
 
-![The Great Wall of China — photo 1](/assets/travel/the-great-wall-of-china-01.jpg)
+![The Great Wall of China — photo 1](/assets/travelbig/the-great-wall-of-china-01.jpg)
 
 ## Hakone: Narrow road to the deep north (2012)
 
@@ -4061,7 +4061,7 @@ Days and months are travellers of eternity. So are the years that pass by. Those
 
 - Matsuo Bashō
 
-![Hakone: Narrow road to the deep north (2012) — photo 1](/assets/travel/hakone-narrow-road-to-the-deep-north-01.jpg)
+![Hakone: Narrow road to the deep north (2012) — photo 1](/assets/travelbig/hakone-narrow-road-to-the-deep-north-01.jpg)
 
 ### Hakone and its surrounds (technically, south- west of Tokyo)
 
@@ -4069,7 +4069,7 @@ For my last weekend in Japan, after spending an extraordinary month in Tokyo on 
 
 Without a doubt, the easiest way to reach there from Tokyo and then get around is with the Hakone Freepass, a super convenient and money-saving pass that allows unlimited rides within the designated area, including on the very popular lake cruise and gondola ropeway.
 
-![Hakone: Narrow road to the deep north (2012) — photo 2](/assets/travel/hakone-narrow-road-to-the-deep-north-02.jpg)
+![Hakone: Narrow road to the deep north (2012) — photo 2](/assets/travelbig/hakone-narrow-road-to-the-deep-north-02.jpg)
 
 My adventure kicked off with the train ride from Tokyo, which took me along the Hakone Tozan Railway, Japan's oldest mountain railway. It is a beautiful ride, regardless of the weather, with hydrangeas blooming along the narrow track at certain times of the year.
 
@@ -4077,13 +4077,13 @@ The first stop for me in Hakone was Gora Park, a French-style landscape park tha
 
 The next leg of the journey for me was a ride on the Hakone-Tozan Cable Car up the mountainside from Gora to Sounzan via an old-school funicular railway. Not terribly spectacular, but it was a functional and sturdy enough method of crawling up the slope.
 
-![Hakone: Narrow road to the deep north (2012) — photo 3](/assets/travel/hakone-narrow-road-to-the-deep-north-03.jpg)
+![Hakone: Narrow road to the deep north (2012) — photo 3](/assets/travelbig/hakone-narrow-road-to-the-deep-north-03.jpg)
 
 This cable car led me to a proper Hakone attraction: the Hakone Ropeway, an aerial lift that takes passengers from Sounzan down towards the lake, with an optional stop along the voyage to the boiling sulphur pits of Owakudani. You're able to see Mount Fuji on a good day, but (as you can see from photos) I was not so lucky.
 
 With plenty of time to spare, I stopped off at Owakudani, also known as the Great Boiling Valley. This is an active volcanic zone with hot
 
-![Hakone: Narrow road to the deep north (2012) — photo 4](/assets/travel/hakone-narrow-road-to-the-deep-north-04.jpg)
+![Hakone: Narrow road to the deep north (2012) — photo 4](/assets/travelbig/hakone-narrow-road-to-the-deep-north-04.jpg)
 
 springs and sizzling, milky rivers that are perpetually shrouded in sulphurous fumes. It was delightfully spooky, especially with the signs warning visitors that the local walking tracks can be dangerous due to the volcanic gases.
 
@@ -4091,11 +4091,11 @@ At Owakudani, you can purchase some novelty 'black eggs' which have been cooked 
 
 After my very eggy lunch, I went for a bit of a wander up a nearby hiking trail. I was by myself and it was an unsettling experience. Didn't see or hear a single soul. And after half an hour of this, due to a combination of deteriorating weather, the foul stench, and a growing fear of what could potentially happen to someone alone on an eerie volcanic mountain trail, I wisely decided to head back and boarded the ropeway again to reach the bottom of the mountain.
 
-![Hakone: Narrow road to the deep north (2012) — photo 5](/assets/travel/hakone-narrow-road-to-the-deep-north-05.jpg)
+![Hakone: Narrow road to the deep north (2012) — photo 5](/assets/travelbig/hakone-narrow-road-to-the-deep-north-05.jpg)
 
 The Hakone Ropeway terminates at Togendai on the banks of Lake Ashi. Lake Ashi (or Ashinoko in Japanese) was formed in the caldera of Mount Hakone after the volcano's last eruption around three thousand years ago. Must've been a cataclysmic eruption because Lake Ashi is huge. Here, I boarded my next transportation option: a ridiculous, pirate-theme Hakone Sightseeing Ship to glide across the lake in style. Pirates? Comical boats? I mean, this is Japan after all!
 
-![Hakone: Narrow road to the deep north (2012) — photo 6](/assets/travel/hakone-narrow-road-to-the-deep-north-06.jpg)
+![Hakone: Narrow road to the deep north (2012) — photo 6](/assets/travelbig/hakone-narrow-road-to-the-deep-north-06.jpg)
 
 After the goofy boat ride, I visited a couple of other local attractions:
 
@@ -4105,7 +4105,7 @@ A short but handsome Cedar Avenue between Moto-Hakone and Hakone-machi, lined wi
 
 The Hakone Detached Palace that used to serve as a summer palace for the Imperial Family. While it is an unremarkable and simple building these days, it provides pleasant views of the lake.
 
-![Hakone: Narrow road to the deep north (2012) — photo 7](/assets/travel/hakone-narrow-road-to-the-deep-north-07.jpg)
+![Hakone: Narrow road to the deep north (2012) — photo 7](/assets/travelbig/hakone-narrow-road-to-the-deep-north-07.jpg)
 
 The next portion of my trip (and one of my favourite spots in Hakone) was Hakone Shrine, a serenely attractive Shinto shrine on the shores of Lake Ashi. Tranquil, mossy, magical.
 
@@ -4113,7 +4113,7 @@ I'll let my photos do the talking...
 
 Like every Shinto shrine I've visited in Japan so far, I was linger around here for a few precious moments and rest my heart. I was able to beside its lakeside torii and relax in nature.
 
-![Hakone: Narrow road to the deep north (2012) — photo 8](/assets/travel/hakone-narrow-road-to-the-deep-north-08.jpg)
+![Hakone: Narrow road to the deep north (2012) — photo 8](/assets/travelbig/hakone-narrow-road-to-the-deep-north-08.jpg)
 
 Afterwards, I took the bus to Hakone Yumoto where I made one final stop: a soak in the hot springs at a public bathhouse. Public bathing in Japan is undoubtedly a compelling ordeal for the uninitiated. It's gender-segregated, you have to carefully wash your body before dipping in the pool, and you must bathe naked like everyone else. While it was initially a bit of a culture shock, it wasn't a bad encounter with the unfamiliar.
 
@@ -4121,7 +4121,7 @@ A mountain track, a funicular, a ropeway, a sulphurous hike, and a lake cruise. 
 
 I was able to dip in some geothermal water, bask in the natural environment, revel in the sacred, and bumble around the modern and
 
-![Hakone: Narrow road to the deep north (2012) — photo 9](/assets/travel/hakone-narrow-road-to-the-deep-north-09.jpg)
+![Hakone: Narrow road to the deep north (2012) — photo 9](/assets/travelbig/hakone-narrow-road-to-the-deep-north-09.jpg)
 
 the touristy, all in one place. Hakone is truly a special corner of an incredible country.
 
@@ -4131,7 +4131,7 @@ An old pond, A frog jumps in - Plop!
 
 *Posted 2 October 2021*
 
-![Miyajima's famous "floating" torii gate at low-tide](/assets/travel/hiroshima-and-miyajima-01.jpg)
+![Miyajima's famous "floating" torii gate at low-tide](/assets/travelbig/hiroshima-and-miyajima-01.jpg)
 
 *Miyajima's famous "floating" torii gate at low-tide*
 
@@ -4141,7 +4141,7 @@ Hiroshima - the name alone of this city speaks for itself. And I believe it to b
 
 Hiroshima Day -- I believe there must be bones Under the paved street. - Shigemoto Yasuhiko The A-Bomb Dome, perhaps the most prominent site in the entire memorial park What a sombre yet beautiful site. It was almost surreal how pleasant the summer day was, as I carefully explored the entire park, taking in everything it had to offer in terms of commemorating one of the most tragic and devastating man-made events of the 20th century.
 
-![Hiroshima and Miyajima (2012) — photo 2](/assets/travel/hiroshima-and-miyajima-02.jpg)
+![Hiroshima and Miyajima (2012) — photo 2](/assets/travelbig/hiroshima-and-miyajima-02.jpg)
 
 Things to see in and around the park include:
 
@@ -4155,7 +4155,7 @@ The Memorial Cenotaph. Its arched shape is meant to represent a shelter for the 
 
 The Peace Flame. This has burned continuously since it was lit and the intention is that it will remain lit until all nuclear weapons on Earth are destroyed and humanity is freed from the threat of nuclear annihilation.
 
-![Hiroshima and Miyajima (2012) — photo 3](/assets/travel/hiroshima-and-miyajima-03.jpg)
+![Hiroshima and Miyajima (2012) — photo 3](/assets/travelbig/hiroshima-and-miyajima-03.jpg)
 
 The Memorial Tower to the Mobilized Students. The tower was built to console the souls of over 10,000 students who died in bombings during the Pacific War, not just victims of the atomic bombings in Hiroshima and Nagasaki.
 
@@ -4163,7 +4163,7 @@ The Hiroshima Peace Clock. It is a tower made of three twisted iron pillars with
 
 The Children's Peace Monument. This monument commemorates Sadako Sasaki, one of the most famous child victims of the bombing of Hiroshima, as well as the thousands of other child victims of the attack. When I was visiting the park, a group of Japanese schoolchildren were solemnly gathered around the monument, making for a touching scene.
 
-![Hiroshima and Miyajima (2012) — photo 4](/assets/travel/hiroshima-and-miyajima-04.jpg)
+![Hiroshima and Miyajima (2012) — photo 4](/assets/travelbig/hiroshima-and-miyajima-04.jpg)
 
 The Atomic Bomb Memorial Mound. It is a small grassy hill that contains the cremated ashes of 70,000 unidentified victims of the bombing.
 
@@ -4171,11 +4171,11 @@ The Peace Bell. Visitors are encouraged to ring the bell for world peace. I cert
 
 The A-Bomb Dome. This was once the former Hiroshima Prefectural Industrial Promotion Hall and was the closest surviving structure to the hypocentre of the 'Little Boy' detonation.
 
-![Hiroshima and Miyajima (2012) — photo 5](/assets/travel/hiroshima-and-miyajima-05.jpg)
+![Hiroshima and Miyajima (2012) — photo 5](/assets/travelbig/hiroshima-and-miyajima-05.jpg)
 
 ### Hiroshima Castle
 
-![Hiroshima-jō](/assets/travel/hiroshima-and-miyajima-06.jpg)
+![Hiroshima-jō](/assets/travelbig/hiroshima-and-miyajima-06.jpg)
 
 *Hiroshima-jō*
 
@@ -4183,7 +4183,7 @@ This was one of two feudal Japanese castles I visited while in the country (with
 
 Such is history. While I'm a stickler for the authentic (whatever that means), I did enjoy checking this place out. After all, check out the dork wearing the samurai outfit in the photos. He clearly had fun...
 
-![Hiroshima and Miyajima (2012) — photo 7](/assets/travel/hiroshima-and-miyajima-07.jpg)
+![Hiroshima and Miyajima (2012) — photo 7](/assets/travelbig/hiroshima-and-miyajima-07.jpg)
 
 ### Hiroshima, more generally
 
@@ -4191,13 +4191,13 @@ Other snaps of Hiroshima - now a charming and thriving city of 1.2 million peopl
 
 ### Miyajima
 
-![A glorious view from the top of Mount Misen](/assets/travel/hiroshima-and-miyajima-08.jpg)
+![A glorious view from the top of Mount Misen](/assets/travelbig/hiroshima-and-miyajima-08.jpg)
 
 *A glorious view from the top of Mount Misen*
 
 Officially called Itsukushima, Miyajima (which is Japanese for 'shrine island') is a small picturesque island an hour's boat ride out of the city. It is a sacred place that, for the longest time, forbid ordinary visitors. While things are much laxer in these modern times, it is said that to this day no births and deaths are allowed on the island.
 
-![Hiroshima and Miyajima (2012) — photo 9](/assets/travel/hiroshima-and-miyajima-09.jpg)
+![Hiroshima and Miyajima (2012) — photo 9](/assets/travelbig/hiroshima-and-miyajima-09.jpg)
 
 Located on Miyajima is the Itsukushima shrine: a delicately stunning Shinto compound, with its epic torii gate and its five-tiered pagoda. Also located on Miyajima: the world's largest wooden rice scoop, weighing 2.5 tonnes and nearly 8 metres long. Cool.
 
@@ -4205,11 +4205,11 @@ Also with Miyajima, think mountainous terrain, forests, as well as peaceful and 
 
 Close to Itsukushima shrine is the historic Buddhist temple complex of Daishō-in, which I found even more spell-binding. I loved the charming little Buddhist statues and iconography everywhere, and the temple steps with the row of spinning wheels inscribed with sutras.
 
-![Hiroshima and Miyajima (2012) — photo 10](/assets/travel/hiroshima-and-miyajima-10.jpg)
+![Hiroshima and Miyajima (2012) — photo 10](/assets/travelbig/hiroshima-and-miyajima-10.jpg)
 
 From Daishō-in, I took a hiking trail up to the summit of Mount Misen. It was hot and exhausting, but I was swallowed by the natural landscape and the view from the top was completely worth it.
 
-![Hiroshima and Miyajima (2012) — photo 11](/assets/travel/hiroshima-and-miyajima-11.jpg)
+![Hiroshima and Miyajima (2012) — photo 11](/assets/travelbig/hiroshima-and-miyajima-11.jpg)
 
 Where else in the world can you experience such a heady mix of contrasts in two short days? Beauty and horror. Sombreness and celebration. Commemoration and survival. The power of men and the power of gods and the natural order. Hiroshima and Miyajima.
 
@@ -4217,9 +4217,9 @@ Where else in the world can you experience such a heady mix of contrasts in two 
 
 *Posted 21 October 2020*
 
-![Osaka Castle (2012) — photo 1](/assets/travel/osaka-castle-01.jpg)
+![Osaka Castle (2012) — photo 1](/assets/travelbig/osaka-castle-01.jpg)
 
 Built originally in 1583, it was destroyed by American bombing raids during World War II. Luckily, it was restored into the surface image of its original splendour in the late 1990s -- albeit as a concrete reproduction with an elevator and modern museum within it. Definitely a must-see if you are ever visiting the city of Osaka!
 
-![Osaka Castle (2012) — photo 2](/assets/travel/osaka-castle-02.jpg)
+![Osaka Castle (2012) — photo 2](/assets/travelbig/osaka-castle-02.jpg)
 
