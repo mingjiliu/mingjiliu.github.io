@@ -7,8 +7,6 @@ date: 2022-11-14
 
 ## 22 October 2022
 
-![Mexico City and surrounds — photo 1](/assets/travel/mexico-city-1.jpg)
-
 Day one. Relaxed, jet laggy, wanderings in and around Mexico City's Centro Histórico. This was before the smog and (I suspect) mild high altitude discomfort started knocking me about.
 
 Quick observation #1: They still mask heavy here (~50% by my reckoning), which I suspect is mass behavioural scarring due to Mexico remaining fully open during Covid-19 and taking the full brunt of the pandemic.
@@ -19,7 +17,7 @@ And #3: My broken-ass, crap-awful Duolingo Español has amazingly come in handy 
 
 ## 22 October 2022
 
-![Mexico City and surrounds — photo 2](/assets/travel/mexico-city-2.jpg)
+![Mexico City and surrounds — photo 2](/assets/mexico-city-2.jpg)
 
 Diego Rivera murals in the Palacio de Bellas Artes and the Secretaría de Educación Pública (I'm amused they just allow you to wander around a federal government office building). Much of it reveals his staunch Marxist — or rather, Trotskyist — views (and things, uh, did not end well for Trotsky when he came to Mexico).
 
@@ -31,7 +29,7 @@ But the stark, bedrock truth is that I'm visiting Mexico because Professor Tyler
 
 ## 23 October 2022
 
-![Mexico City and surrounds — photo 3](/assets/travel/mexico-city-3.jpg)
+![Mexico City and surrounds — photo 3](/assets/mexico-city-3.jpg)
 
 What I found on Friday:
 
@@ -51,13 +49,13 @@ The Templo Mayor was a neat little Aztec museum located amidst the ruins of Teno
 
 ## 24 October 2022
 
-![Mexico City and surrounds — photo 4](/assets/travel/mexico-city-4.jpg)
+![Mexico City and surrounds — photo 4](/assets/mexico-city-4.jpg)
 
 Danza de los Voladores performers in Chapultepec Park, outside the anthropology museum. Four people tied by ropes to the top of a thirty-metre high pole, spinning hypnotically back down to earth. No harnesses as far as I can tell!
 
 ## 24 October 2022
 
-![Mexico City and surrounds — photo 5](/assets/travel/mexico-city-5.jpg)
+![Mexico City and surrounds — photo 5](/assets/mexico-city-5.jpg)
 
 Anthropology is canceled! I hate it! I'm done. The Museo Nacional de Antropología was simply too huge to explore in a single day. Want to casually learn about the Aztecs, Mayans, and Olmecs (not to mention numerous other Mesoamerican civilisations) in a couple of hours? Forget it. Either your brain or your feet will break first.
 
@@ -69,13 +67,13 @@ But in all seriousness, this is one impressive museo. Truth be told, I don't eve
 
 ## 25 October 2022
 
-![Mexico City and surrounds — photo 6](/assets/travel/mexico-city-6.jpg)
+![Mexico City and surrounds — photo 6](/assets/mexico-city-6.jpg)
 
 Chapultepec Castle, with unparalleled views of Mexico City's smoggy skyline. It was once the official residence of the hilariously doomed (and Austrian!) second Mexican Emperor, as well as a succession of presidents. A rare monarchic chunk of the Old World transplanted in the Americas.
 
 ## 26 October 2022
 
-![Mexico City and surrounds — photo 7](/assets/travel/mexico-city-7.jpg)
+![Mexico City and surrounds — photo 7](/assets/mexico-city-7.jpg)
 
 Mexican food & drink ramble (part 1 of ?)
 
@@ -97,7 +95,7 @@ Mexican food & drink ramble (part 1 of ?)
 
 ## 27 October 2022
 
-![Mexico City and surrounds — photo 8](/assets/travel/mexico-city-8.jpg)
+![Mexico City and surrounds — photo 8](/assets/mexico-city-8.jpg)
 
 More of Mexico City in no particular order:
 
@@ -110,7 +108,7 @@ More of Mexico City in no particular order:
 
 ## 28 October 2022
 
-![Mexico City and surrounds — photo 9](/assets/travel/mexico-city-9.jpg)
+![Mexico City and surrounds — photo 9](/assets/mexico-city-9.jpg)
 
 Boom. Aliens.
 
@@ -124,13 +122,13 @@ Also, I enjoyed the ride out of Mexico City and witnessing the colourful concret
 
 ## 1 November 2022
 
-![Mexico City and surrounds — photo 10](/assets/travel/mexico-city-10.jpg)
+![Mexico City and surrounds — photo 10](/assets/mexico-city-10.jpg)
 
 The Museo Soumaya, which houses the immense private art collection of Carlos Slim, Mexico's (and formerly the world's) richest man. It's named after Slim's late wife and that's sorta nice — particularly if you like amorphous silver anvils. What's sorta not so nice, however, is the entire floor dedicated to ivory carvings. I wonder how many dead elephants contributed to the artistic tastes of a gentleman worth 5% of Mexico's annual GDP.
 
 ## 4 November 2022
 
-![Mexico City and surrounds — photo 11](/assets/travel/mexico-city-11.jpg)
+![Mexico City and surrounds — photo 11](/assets/mexico-city-11.jpg)
 
 Mexican food and drink ramble (part 2 of ?)
 
@@ -152,19 +150,19 @@ Mexican food and drink ramble (part 2 of ?)
 
 ## 13 November 2022
 
-![Mexico City and surrounds — photo 12](/assets/travel/mexico-city-12.jpg)
+![Mexico City and surrounds — photo 12](/assets/mexico-city-12.jpg)
 
 The Basilica of Santa María de Guadalupe. A Nahuatl-speaking Virgin Mary appears before a 16th-century Indigenous Mexican peasant... A miraculous image appears on a cloak pressed with roses... And blam, we have the most visited Catholic shrine in the world. Do I care about the actual religious story? Not particularly. Am I interested in how this keystone narrative helped shape a unique and unifying element for a troubled colonial society? Sure, sounds cool to me.
 
 ## 14 November 2022
 
-![Mexico City and surrounds — photo 13](/assets/travel/mexico-city-13.jpg)
+![Mexico City and surrounds — photo 13](/assets/mexico-city-13.jpg)
 
 I came to Xochimilco on my last full day in Mexico to observe the remnants of the old Aztec canal system and the agricultural marvels of the chinampas. Instead I drank a lot of beer.
 
 ## 14 November 2022
 
-![Mexico City and surrounds — photo 14](/assets/travel/mexico-city-14.jpg)
+![Mexico City and surrounds — photo 14](/assets/mexico-city-14.jpg)
 
 Mexican food and drink final (part 3 of 3)
 
