@@ -7,7 +7,7 @@ date: 2023-08-25
 
 ## 26 September 2024 — Petra
 
-![Petra](/assets/travel/odds-54-petra.jpg)
+![Petra](/assets/odds-54-petra.jpg)
 
 Top three tips for exploring Petra:
 
@@ -17,25 +17,25 @@ Top three tips for exploring Petra:
 
 ## 21 September 2024 — Delphi
 
-![Delphi](/assets/travel/odds-53-delphi.jpg)
+![Delphi](/assets/odds-53-delphi.jpg)
 
 Huffing the sacred fumes and receiving prophecies from Apollo at Delphi.
 
 ## 18 September 2024 — Athens
 
-![Athens](/assets/travel/odds-52-athens.jpg)
+![Athens](/assets/odds-52-athens.jpg)
 
 Athens should've won the Peloponnesian War. Will never recover from what happened.
 
 ## 5 September 2024 — Merzouga, Morocco
 
-![Merzouga, Morocco](/assets/travel/odds-51-merzouga.jpg)
+![Merzouga, Morocco](/assets/odds-51-merzouga.jpg)
 
 I love sand, it's soft and gentle and comforting and it gets everywhere.
 
 ## 26 August 2024 — Naples
 
-![Naples](/assets/travel/odds-50-naples.jpg)
+![Naples](/assets/odds-50-naples.jpg)
 
 Napoli! Clearly, Elena Ferrante despised this place and I can't imagine Neapolitans liking her depiction of their beloved city.
 
@@ -45,13 +45,13 @@ Time for a heretical opinion. The best meal I've had in Naples was at a 5 euro S
 
 ## 29 January 2024 — Andorra
 
-![Andorra](/assets/travel/odds-48-andorra.jpg)
+![Andorra](/assets/odds-48-andorra.jpg)
 
 Skiing in Andorra this weekend... just so I can say I've been to this odd little country called Andorra.
 
 ## 22 December 2023 — Barcelona
 
-![Barcelona](/assets/travel/odds-47-museum-of-forbidden-art.jpg)
+![Barcelona](/assets/odds-47-museum-of-forbidden-art.jpg)
 
 Sacrilegious fun at Barcelona's Museum of Forbidden Art — a collection of pieces censored, attacked, or withdrawn from exhibitions around the world.
 
@@ -63,19 +63,19 @@ What studying economics in Europe is actually like: Smoking cheap cigarettes on 
 
 ## 1 September 2023 — Barcelona
 
-![Barcelona](/assets/travel/odds-45-casa-vicens-casa-amatller.jpg)
+![Barcelona](/assets/odds-45-casa-vicens-casa-amatller.jpg)
 
 Checking out Gaudí's Casa Vicens and Puig's Casa Amatller. Back when rich people commissioned nice things, died, and then you could just walk around their former bedrooms.
 
 ## 29 August 2023 — The Sagrada Família
 
-![The Sagrada Família](/assets/travel/odds-44-sagrada-familia.jpg)
+![The Sagrada Família](/assets/odds-44-sagrada-familia.jpg)
 
 Is the Sagrada Família one of the most beautiful buildings in the world? Will it even be completed in our lifetime? Well, it's certainly proof we can build some very nice things out of mainly concrete.
 
 ## 25 August 2023 — Madrid
 
-![Madrid](/assets/travel/odds-1-madrid.jpg)
+![Madrid](/assets/odds-1-madrid.jpg)
 
 Ran around the "Golden Triangle of Art" in Madrid. Aren't El Greco and Francisco Goya just wonderful?
 
@@ -85,25 +85,25 @@ Also, also, I finally got to see Picasso's Guernica in real life and it was as b
 
 ## 15 August 2023 — The National Gallery and Tate Britain
 
-![The National Gallery and Tate Britain](/assets/travel/odds-2-the-national-gallery-and-tate-britain.jpg)
+![The National Gallery and Tate Britain](/assets/odds-2-the-national-gallery-and-tate-britain.jpg)
 
 The National Gallery and Tate Britain. Contains one of my all-time favourite paintings: "An Experiment on a Bird in the Air Pump" by Joseph Wright of Derby. Has two of my all-time favourite (white, male, asshole) British artists: J.M.W. Turner and Francis Bacon. Good stuff.
 
 ## 14 August 2023 — A park bench in Oxford
 
-![A park bench in Oxford](/assets/travel/odds-3-a-park-bench-in-oxford.jpg)
+![A park bench in Oxford](/assets/odds-3-a-park-bench-in-oxford.jpg)
 
 It was at this park bench many years ago that a 12 year old girl and her pet ferret concluded their quest to destroy an inter-dimensional Catholic empire and euthanise God. Or something. I dunno, I thought Philip Pullman did a good job with it.
 
 ## 3 August 2023 — The National Portrait Gallery, London
 
-![The National Portrait Gallery, London](/assets/travel/odds-42-national-portrait-gallery.jpg)
+![The National Portrait Gallery, London](/assets/odds-42-national-portrait-gallery.jpg)
 
 Fun fact: every Wikipedia article "profile painting" for every historical English person ever came from the National Portrait Gallery.
 
 ## 25 April 2023 — Pokhara, Nepal
 
-![Pokhara, Nepal](/assets/travel/odds-41-pokhara.jpg)
+![Pokhara, Nepal](/assets/odds-41-pokhara.jpg)
 
 > Into my heart an air that kills  
 > From yon far country blows:  
@@ -118,7 +118,7 @@ Fun fact: every Wikipedia article "profile painting" for every historical Englis
 
 ## 22 April 2023 — Thorung La pass
 
-![Thorung La pass](/assets/travel/odds-40-thorung-la.jpg)
+![Thorung La pass](/assets/odds-40-thorung-la.jpg)
 
 The roof of the world! After ten days of trekking, high altitude acclimatisation and masala teas I've finally made it over Thorung La pass — one of the highest mountain passes on earth at over 5,400m above sea level.
 
@@ -126,25 +126,25 @@ I think I need a nap.
 
 ## 21 April 2023 — The Annapurna Circuit
 
-![The Annapurna Circuit](/assets/travel/odds-39-annapurna-circuit.jpg)
+![The Annapurna Circuit](/assets/odds-39-annapurna-circuit.jpg)
 
 The Annapurna Circuit continues! Trudging our way through snow, mud, yak poop, and blisters to High Camp...
 
 ## 27 October 2022 — A cantina in Guanajuato
 
-![A cantina in Guanajuato](/assets/travel/odds-4-a-cantina-in-guanajuato.jpg)
+![A cantina in Guanajuato](/assets/odds-4-a-cantina-in-guanajuato.jpg)
 
 Just walked into a cantina that exclusively served the local hombres. It was a wild experience. Some guy came up to me and told me that he had "the death sentence on twelve systems." I was *super* confused since I thought Mexico had states, not systems. So I meekly told him that "I'll be careful", to which he replied: "You'll be dead!" Then some random bearded dude in robes told him "this little one's not worth the effort." Wtf dude. Rude, right? Then a brawl started and the guy's arm got cut off with a laser sword. But, anyway, it was still an amazing experience since I was able to score a ride to Alderaan for only 10,000 credits (But I thought they used pesos in this country??).
 
 ## 14 October 2022 — Museum of Contemporary Art, Sydney
 
-![Museum of Contemporary Art, Sydney](/assets/travel/odds-5-museum-of-contemporary-art-sydney.jpg)
+![Museum of Contemporary Art, Sydney](/assets/odds-5-museum-of-contemporary-art-sydney.jpg)
 
 Friday evening visit to the Museum of Contemporary Art in Sydney. It was the one final thing I've always wanted to see in this city. Thank god, I never have to come back! I'm finally free! The chains of desire have shattered! Sweet deliverance of Nibanna.
 
 ## 3 April 2020 — Memories of London
 
-![Memories of London](/assets/travel/odds-6-memories-of-london.jpg)
+![Memories of London](/assets/odds-6-memories-of-london.jpg)
 
 Memories of London: Eerily empty street views, circa two weeks ago. Can't imagine what the vibe is like there now. I've always wanted to visit this city and I can now say I've touched the direct opposite corner of the world. Just a shame I could only spend two days here. But, as I've said before, once this all blows over, I'll be back. I'll be back...
 
@@ -168,13 +168,13 @@ Took a trip to Bendigo recently. Saw lots of bats. I think I prefer the gold rus
 
 ## 7 April 2019 — Art Gallery of New South Wales
 
-![Art Gallery of New South Wales](/assets/travel/odds-10-art-gallery-of-new-south-wales.jpg)
+![Art Gallery of New South Wales](/assets/odds-10-art-gallery-of-new-south-wales.jpg)
 
 Further snaps of arty art from the Art Gallery of NSW. Time for sweeping statements: Lucian Freud is the best portraitists ever. Military paintings are fine as a sometimes indulgence. Contemporary Aboriginal art is the most interesting stuff this country produces. Fight me.
 
 ## 4 April 2019 — Heaven and earth in Chinese art
 
-![Heaven and earth in Chinese art](/assets/travel/odds-11-heaven-and-earth-in-chinese-art.jpg)
+![Heaven and earth in Chinese art](/assets/odds-11-heaven-and-earth-in-chinese-art.jpg)
 
 Photos from the "Heaven and earth in Chinese art" exhibition at the Art Gallery of NSW. A small, but wonderful exhibition on loan from the National Palace Museum of Taipei.
 
@@ -182,13 +182,13 @@ Check it out if you are in Sydney and have the chance - it's very rare that Chin
 
 ## 15 January 2019 — Hualien City
 
-![Hualien City](/assets/travel/odds-18-hualien-city.jpg)
+![Hualien City](/assets/odds-18-hualien-city.jpg)
 
 Visited my friends' hostel in Hualien City, Taiwan and had the honour of meeting "Obama" the racist dog. No, seriously. While he barked at the other *ahem* white guests, he took an immediate liking to me... What should we infer from this? How far can we take these allegations?? Can these so called liberal progressives really be trusted???
 
 ## 10 January 2019 — The Taiwanese honour guard
 
-![The Taiwanese honour guard](/assets/travel/odds-19-the-taiwanese-honour-guard.jpg)
+![The Taiwanese honour guard](/assets/odds-19-the-taiwanese-honour-guard.jpg)
 
 Don't mess with the Taiwanese honour guard. Their bayonets look pointy!
 
@@ -196,33 +196,19 @@ It should be quickly mentioned that the memorial hall honours Chiang Kai-shek, a
 
 ## 27 December 2018 — Cactus Jack’s, Townsville
 
-![Cactus Jack’s, Townsville](/assets/travel/odds-20-cactus-jacks-townsville.jpg)
+![Cactus Jack’s, Townsville](/assets/odds-20-cactus-jacks-townsville.jpg)
 
 Ah, Cactus Jack's... Quite possibly both the very best and very worst North Queensland Mexican-themed restaurant I've ever dined at. Want a giant bowl of chocolate nachos to go with your tequila shots? This is definitely the place for you.
 
-## 26 December 2018 — Fort Complex, Magnetic Island
-
-![Fort Complex, Magnetic Island](/assets/travel/odds-21-fort-complex-magnetic-island.jpg)
-
-Peeking through old WW2 observation posts on Magnetic Island in Queensland. It's a hot, scraggy hike up to the island's Fort Complex and, if you're lucky, you'll spot a dozing koala or two on the way. (And if you're very lucky, other helpful hikers will have made stick arrows on the path pointing at the trees they're hiding in!)
-
-## 26 December 2018 — Arcadia Bay, Magnetic Island
-
-![Arcadia Bay, Magnetic Island](/assets/travel/odds-22-arcadia-bay-magnetic-island.jpg)
-
-Shining sands and swaying palm trees... Arcadia Bay on Magnetic Island, a cosy tropical jewel off the coast of Townsville in North Queensland.
-
-The island's named for the distortionary effects it supposedly had on Captain Cook's ship compass when he sailed past it, although no one since has found anything geomagnetically unusual about the place. Just a load of hogwash apparently... 🧭 🤷🏻‍♂️
-
 ## 22 December 2018 — The Great Barrier Reef
 
-![The Great Barrier Reef](/assets/travel/odds-23-the-great-barrier-reef.jpg)
+![The Great Barrier Reef](/assets/odds-23-the-great-barrier-reef.jpg)
 
 Blowing bath bubbles at the Great Barrier Reef. Truly one of the natural wonders of the world, and an ecosystem of paramount importance to Australia. I've seen things down there that I could not believe. Giant clams, dazzling fish, fragile corals, monstrous sea turtles, furtive sharks... Incredible things.
 
 ## 1 October 2018 — Ballarat
 
-![Ballarat](/assets/travel/odds-25-ballarat.jpg)
+![Ballarat](/assets/odds-25-ballarat.jpg)
 
 Saw some art in Ballarat. The city has one of the finest collections of cow paintings in the Southern Hemisphere. Ate too much cake. Didn't go to Sovereign Hill because gold is lame.
 
@@ -230,30 +216,30 @@ Favourite Ballarat fact: Lake Wendouree is supposedly named after a local aborig
 
 ## 15 August 2018 — Telstra NATSIAA, Darwin
 
-![Telstra NATSIAA, Darwin](/assets/travel/odds-26-telstra-natsiaa-darwin.jpg)
+![Telstra NATSIAA, Darwin](/assets/odds-26-telstra-natsiaa-darwin.jpg)
 
 Stunning artwork from the 2018 Telstra National Aboriginal & Torres Strait Islander Art Awards. Such a cool exhibition at the Museum and Art Gallery of the Northern Territory (MAGNT) in Darwin. This one was my favourite: "Seven Sisters" by the Ken Sisters.
 
 ## 24 July 2018 — Nadi, Fiji
 
-![Nadi, Fiji](/assets/travel/odds-27-nadi-fiji.jpg)
+![Nadi, Fiji](/assets/odds-27-nadi-fiji.jpg)
 
 Best meal I had in Fiji was, funnily enough, on my final day in the rather prosaic town of Nadi. Grilled fish with coconut cream sauce, cassava, and rourou balls (like spinach balls, but made from taro leaves). They don't really do portion control either.
 
 ## 15 February 2018 — The National Museum of Korea
 
-![The National Museum of Korea](/assets/travel/odds-34-the-national-museum-of-korea.jpg)
+![The National Museum of Korea](/assets/odds-34-the-national-museum-of-korea.jpg)
 
 Tucked away in the National Museum of Korea is a little corner showcasing Korean art of dogs throughout history. This one is a 19th century scroll from the late Joseon Period titled "Fierce Dog". Who's a fierce boy? This dog is! Oh yes, he is!
 
 ## 14 February 2018 — Ten Thousand Buddhas Monastery
 
-![Ten Thousand Buddhas Monastery](/assets/travel/odds-35-ten-thousand-buddhas-monastery.jpg)
+![Ten Thousand Buddhas Monastery](/assets/odds-35-ten-thousand-buddhas-monastery.jpg)
 
 One of the many quirky looking Buddha statues at the Ten Thousand Buddhas Monastery in Hong Kong. The temple's name is a bit of a loose term, in actuality. Not only is the temple not a monastery (it's managed by normal, non-monkish folks like you and I), it also has nearly 13,000 models of beings who have supposedly attained Buddhahood.
 
 ## 11 February 2018 — Hong Kong at night
 
-![Hong Kong at night](/assets/travel/odds-36-hong-kong-at-night.jpg)
+![Hong Kong at night](/assets/odds-36-hong-kong-at-night.jpg)
 
 Visiting family in Hong Kong. The city's colour-soaked nightscape is quite incredible, particularly when reflected off the wine-dark waters of Kowloon Bay. Hong Kong has the most skyscrapers taller than 150m of any city in the world (over 350, compared to around 270 in New York) and its skyline is among my favourites during both night and day.
