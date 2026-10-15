@@ -73,8 +73,6 @@ Chapultepec Castle, with unparalleled views of Mexico City's smoggy skyline. It 
 
 ## 26 October 2022
 
-![Mexico City and surrounds — photo 7](/assets/mexico-city-7.jpg)
-
 Mexican food & drink ramble (part 1 of ?)
 
 **Huevos y escamoles:** A breakfast omelette with ant eggs. This was the first thing I ate in Mexico. Yes, I deliberately hunted it down. Yes, I'm that kind of a person. Verdict: Mr Wikipedia states that escamoles "taste buttery and nutty, with a texture akin to that of cottage cheese". I concur.
@@ -128,8 +126,6 @@ The Museo Soumaya, which houses the immense private art collection of Carlos Sli
 
 ## 4 November 2022
 
-![Mexico City and surrounds — photo 11](/assets/mexico-city-11.jpg)
-
 Mexican food and drink ramble (part 2 of ?)
 
 **Huaraches:** masa (maize) dough with "stuff" on top. Verdict: remove the salsa and the lime and you effectively have Mexico City's answer to the HSP. Very filling, but nothing to fly to Central America for.
@@ -161,8 +157,6 @@ The Basilica of Santa María de Guadalupe. A Nahuatl-speaking Virgin Mary appear
 I came to Xochimilco on my last full day in Mexico to observe the remnants of the old Aztec canal system and the agricultural marvels of the chinampas. Instead I drank a lot of beer.
 
 ## 14 November 2022
-
-![Mexico City and surrounds — photo 14](/assets/mexico-city-14.jpg)
 
 Mexican food and drink final (part 3 of 3)
 
