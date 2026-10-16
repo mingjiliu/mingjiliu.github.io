@@ -380,13 +380,9 @@ A dip in the Nile? I ain't afraid of no crocodiles! The water was freezing, howe
 
 Welcome to Philae! Ancient ruins, many over 3,300 years old, on a picturesque island in the middle of a reservoir. Accessible only by boat, the island includes a temple to Isis, the goddess of fertility, and was also worked on by Ptolemaic and Roman builders, as well as later Christian ones (who stamped very noticeable Coptic crosses into the pagan stonework). Further, the whole complex was lifted up and relocated to its current location in the 1960s to save it from flooding as a result of a new dam project. Interesting... right?
 
-![Aswan (2020) — photo 4](/assets/travelbig/aswan-04.jpg)
-
 Okay, time for a story! If much of Egypt's past glory can be credited to the Nile, then a huge chunk of its 20th-century history can be credited to the construction of the Aswan High Dam.
 
 Since the dawn of Egyptian civilisation, the yearly flooding of the Nile bought bounteous harvests but also harkened famine and doom when it failed. The solution? A big-ass dam to control the water flow. This was the dream of the anti-imperialist, pan-Arabist maverick President Gamal Abdel Nasser in the 1950s. But the problem was that it was expensive. Really expensive. So Nasser tried to play both the Americans and the Soviets for money and then nationalised the all-important Suez Canal to generate the necessary funds. In response, Israel, France, and the UK invaded Egypt. Boom. The Suez Crisis ensued. The invasion quickly backfired and these countries were forced to withdraw (effectively ringing the death knell for British imperial ambitions in the new world order).
-
-![Aswan (2020) — photo 5](/assets/travelbig/aswan-05.jpg)
 
 As for the dam's post-construction impact? An agricultural bonanza. National wheat yields tripled in the following decades. Egypt became insulated from devastating droughts. And, at one point, it provided the country with half its electricity. But the dam also messed with the local ecosystem, displaced tens of thousands of local Nubians, and, of course, threatened numerous precious archaeological sites.
 
@@ -400,35 +396,25 @@ The Nubians. What am I remotely qualified to say about them? They are a group in
 
 Along with traditional coffee, we listened to Nubian music and ate coal-roasted dates. All in all, a wonderful evening. I wasn't expecting to experience any Nubian culture during my stay in Egypt so I was delighted to glimpse even a fragment of it. My only previous exposure to anything remotely Nubian was being a cast member in the Elton John musical "Aida" (a cheesy Romeo and Juliet story with topless Egyptian warriors and sultry Nubian princesses) during high school. No, seriously. My life has just been one wild culture trip after another.
 
+![Aswan (2020) — photo 8](/assets/travelbig/aswan-08.jpg)
+
 Glorious praise to Ramses the Great, chosen of Ra, challenger of Hittites and punisher of Libyans! All Egypt prospers under his benevolent protection!
 
-The main attraction of travelling down to Aswan is to make it to Abu Simbel in the far southern reaches of Egypt --- any further south and you'd be in Sudan! Getting to it was tough. I had to wake up before 4 am, take a three-hour-plus minibus ride there from Aswan, and then race to the ticket booth so I could see the place before it was completely
-
-![Aswan (2020) — photo 7](/assets/travelbig/aswan-07.jpg)
-
-swamped by other tourists. But in hindsight (and after a recovery nap or two) I believe it was worth the effort.
+The main attraction of travelling down to Aswan is to make it to Abu Simbel in the far southern reaches of Egypt --- any further south and you'd be in Sudan! Getting to it was tough. I had to wake up before 4 am, take a three-hour-plus minibus ride there from Aswan, and then race to the ticket booth so I could see the place before it was completely swamped by other tourists. But in hindsight (and after a recovery nap or two) I believe it was worth the effort.
 
 When you think of towering pharaonic carvings and rock temples in the desert, when you think of Ozymandias with his "frown, and wrinkled lip, and sneer of cold command", you are thinking of the Great Temple of Ramses II at Abu Simbel. Four colossal statues of the king of kings flank the entrance to this 13th-century BC edifice. You see reliefs of captured foreign slaves on both sides of the entryway. There are potent, violent scenes of military conquest on the temple's interior walls. Surely no other surviving structure of the ancient world can still project such indomitable, ferocious power.
-
-![Aswan (2020) — photo 8](/assets/travelbig/aswan-08.jpg)
 
 Next to the Great Temple is a smaller temple dedicated to the sky goddess Hathor and Ramses's royal wife Nefertari. And both these buildings lie on the banks of Lake Nasser, one of the largest man-made lakes in the world, which was created by the Aswan High Dam. This leads us to an impressive fact about Abu Simbel: like the Philae Temple Complex, the entire site had to be disassembled and rebuilt on higher ground in the 1960s to save it from rising waters as a result of the dam's construction. This project required an international team of engineers and scientist and remains perhaps the most impressive archaeological rescue mission of all time.
 
 Bloody hell, there should be a traveller's game in Egypt where you drink a shot every time you hear about the Aswan High Dam... "And on the pedestal, these words appear: My name is Ozymandias, King of Kings; Look on my Works, ye Mighty, and despair! Nothing beside remains. Round the decay Of that colossal Wreck, boundless and bare The lone and level sands stretch far away."
 
-![Aswan (2020) — photo 9](/assets/travelbig/aswan-09.jpg)
-
 ## Cairo (2020)
 
 *Posted 1 May 2022*
 
-![Welcome to Cairo, Egypt's eclectic capital!](/assets/travelbig/cairo-01.jpg)
-
 *Welcome to Cairo, Egypt's eclectic capital!*
 
 In early 2020, after roaming around the sub-continent for almost two months, I made an exodus out of India and a flight into Egypt. This was my first time in Africa and the Middle East - and hopefully not my last! Anyway, here were some of the things I checked out...
-
-![Tahrir Square](/assets/travelbig/cairo-02.jpg)
 
 *Tahrir Square*
 
@@ -444,25 +430,19 @@ A photo of the most Instagrammable spot in Khan el-Khalili, a famous open-air ba
 
 I also whittled away the hours with fellow world travellers at El Fishawy, quite possibly the most famous coffeehouse in all of Egypt. Crammed into a narrow thoroughfare in the bazaar, this place is quite the frenzied experience. Street vendors hassle you every minute. Clumsy shoppers threaten to knock over your hookah. The cafe staff seem to be juggling too many tasks at once. And yet, despite the pandemonium, there's music and laughter and a theatrical, smoke-drunk energy to it all that makes this place unforgettable.
 
-![Coptic Cairo](/assets/travelbig/cairo-04.jpg)
-
 *Coptic Cairo*
 
 Coptic Cairo is a hushed and compact corner of Egypt's capital unlike anywhere else in this mad city. As a visitor, it would be remiss to only notice the country's mosques and pyramids --- this country also has a very distinctive Coptic Christian minority, making up around 10 per cent of the population.
 
 To be honest, I don't know much about Coptic Christianity or any form of Christianity east of Rome that uses big, scary words like 'patriarchate', 'autocephalous', and 'non-Chalcedonian'. What I do know is that Coptic Christians are the largest Christian community in the Middle East. That they follow their own calendar. That they have their own pope. And that, unfortunately, persecution and discrimination against them is a painful, ongoing problem in Egypt. All the more reason for travellers to remember that they even exist.
 
-Photos include the famous Hanging Church, the Saints Sergius and Bacchus Church, and the beautiful Church of St. George (which is actually a Greek Orthodox church).
-
-![The Citadel of Cairo](/assets/travelbig/cairo-05.jpg)
+I visited the famous Hanging Church, the Saints Sergius and Bacchus Church, and the beautiful Church of St. George (which is actually a Greek Orthodox church).
 
 *The Citadel of Cairo*
 
 This is a medieval fortification built by none other than the legendary Crusader-stomping, warrior-gentleman Saladin. Although the citadel itself is not particularly thrilling (it's a bunch of stone walls on a hill), it provides an excellent view of bustling, dusty Cairo and houses the beautiful Mohamed Ali Mosque.
 
 This magnificent mosque, commissioned in the mid-1800s by Muhammad Ali Pasha, the founder of modern Egypt, happily rivals many grand European churches. I mean, just look at that incredible ceiling! Undoubtedly a masjid for the ages.
-
-![The Mosque of Ibn Tulun](/assets/travelbig/cairo-06.jpg)
 
 *The Mosque of Ibn Tulun*
 
@@ -474,19 +454,17 @@ You can also climb its minaret and view Cairo's cityscape in its dense, concrete
 
 *And even more of Islamic Cairo*
 
-Fragmented, sideways snaps of the Mosque-Madrassa of Sultan Hassan and the Al-Rifa'i Mosque. Two huge, skyward-yearning mosques standing right against each other at the foot of Cairo Citadel.
+Fragmented, sideways views of the Mosque-Madrassa of Sultan Hassan and the Al-Rifa'i Mosque. Two huge, skyward-yearning mosques standing right against each other at the foot of Cairo Citadel.
+
+![And even more of Islamic Cairo](/assets/travelbig/cairo-08.jpg)
 
 It's almost impossible to suggest their volumes and textures through photographs: the gloominess of the lofty ceilings, the rich gravity of the wall patterns, the siesta-like drowsiness of an expansive courtyard... Photos are doomed to failure in places like this.
-
-![Egyptian food](/assets/travelbig/cairo-08.jpg)
 
 *Egyptian food*
 
 Traditional Egyptian food? Yalla! Let's talk about it:
 
 Mulukhiyah and stuffed pigeon. Mulukhiyyah is a salty, slimy, and deliciously fragrant soup made from a vegetable called jute mallow. I can highly recommend it. As for the stuffed pigeon, yikes... It came with two different kinds of rice and the pigeon itself was stuffed with, well, even more rice. That's too much goddamn rice, even for me! Ful or ful medames. An Egyptian staple comprising stewed fava beans, some salad, and a whole lot of bread. This is Nile River peasant fuel at its finest and, except for the egg topping I specifically requested, entirely vegan. I've been a bit surprised to discover Egyptian cuisine is not as meat-heavy as I originally assumed. Koshari. The national dish. Macaroni mixed with rice, lentils, tomato paste, chickpeas, and fried onions. And that's it. Again, it's effectively carbohydrate-intensive, vegan peasant fuel.
-
-![And to conclude, assorted views of Cairo and its urban surrounds](/assets/travelbig/cairo-09.jpg)
 
 *And to conclude, assorted views of Cairo and its urban surrounds*
 
@@ -514,15 +492,9 @@ Stark and uncanny Cappadocia. An alien realm of fairy chimneys, moon-like earth,
 
 It is a land of exceptional geological wonder. Tent rocks. Fairy chimneys. Hoodoos. Call them what you will, the rock formations of Cappadocia are remarkable to behold. Since ancient times, people have carved churches, storehouses, caves, and anything else you can imagine into these rocks.
 
-![Cappadocia (2020) — photo 2](/assets/travelbig/cappadocia-02.jpg)
-
 Cappadocia was a religious haven in the early days of Christianity when the young, upstart faith was being persecuted by the Roman Empire. Practitioners fled into this area and established monastic communities. Here, in this seemingly barren place, these people were able to survive.
 
-![Cappadocia (2020) — photo 3](/assets/travelbig/cappadocia-03.jpg)
-
 When I wasn't touring the region, I passed my time at a cosy European-style pension, or what I thought could reasonably pass as one. I drank cheap red wine. I smoked cheap cigarettes. There was a dusky French helper. There was a pesky cat. I talked late into the night with the other guests and we were served a hearty breakfast in the morning with terrible coffee. It was everything I could've wanted from the experience.
-
-![Cappadocia (2020) — photo 4](/assets/travelbig/cappadocia-04.jpg)
 
 A mad thought came to me while I was staying at my pension, as the 2020 pandemic craziness slowly (or rather, rapidly) descended on the world. I recalled the premise of Boccaccio's 'The Decameron': a group of men and women are sheltering in a villa on the outskirts of Florence to escape the Black Death and, to pass the time, they regale each other with tragic, clever, funny, and bawdry tales. Painfully apropos, if you ask me.
 
@@ -536,15 +508,11 @@ Depicted: yours truly, totally knowing how to play bağlama, a traditional Turki
 
 *Posted 10 October 2020*
 
-![Dahab, Egypt (2020) — photo 1](/assets/travelbig/dahab-egypt-01.jpg)
-
 Dahab! A famous backpackers haunt on the southeast coastline of the Sinai Peninsula!
 
 After a long, bumpy, and exhausting night bus out of Cairo (which included an unannounced 1 am bus swap and multiple security checkpoints), arriving here was like suddenly being tossed into an idyllic mirror universe. Dahab is carefree and beachy in an almost holiday-postcard-cliché sort of way and, in my honest opinion, it is what Goa should've been like.
 
 My goal here in Dahab was simple. It was to scuba dive in the Red Sea, eat falafels, potter around and read books and, most importantly, mellow out for a couple of days. I think I succeeded.
-
-![Dahab, Egypt (2020) — photo 2](/assets/travelbig/dahab-egypt-02.jpg)
 
 And what is Dahab, exactly? Well, there's a lot to comment on. There are the Russian holidaymakers and British pensioners. The quirky Egyptian restaurant owners and Bedouin locals. The usual-suspect-backpackers and marijuana smokers. There are dive shops and quad bike hires and desert adventure operators. It is a place to indulge and do everything at once and do nothing at all.
 
@@ -554,8 +522,6 @@ Pictured below: me with one of my new underwater buddies. Farewell landlubbers!
 
 The coral reefs around this part of the Red Sea are superb. During my stay, I obtained my PADI Advanced Open Water certificate, giving me the ability to dive to 30 metres. With my newfound ability, I had the opportunity to explore the Blue Hole near Dahab, a submarine sinkhole with an internationally notorious reputation -- it allegedly has the highest diver fatality rate of any dive site in the world. Thankfully, my dives there were beautiful and undramatic.
 
-![Dahab, Egypt (2020) — photo 4](/assets/travelbig/dahab-egypt-04.jpg)
-
 But this marvellous Egyptian story could not last forever.
 
 My flawless plan to escape Egypt via a dodgy commuter ferry to Jordan sadly ended in failure. On the very morning I arrived at the port in Nuweiba, the ferry company decided to block all foreigners from boarding due to concerns over COVID-19 (this was just a few weeks before it was officially declared as a pandemic). Disaster!
@@ -564,11 +530,7 @@ So instead of spending my afternoon eating knafeh in the Hashemite Kingdom, I wa
 
 The good news is, I was able to fly out of Egypt and into Istanbul -- a little manoeuvre I like to call 'Failing to Byzantium'. Hah.
 
-(P.S. As it later turned out, this ferry debacle was due to classic Middle Eastern miscommunication within the company --- it has since allowed
-
-![Dahab, Egypt (2020) — photo 5](/assets/travelbig/dahab-egypt-05.jpg)
-
-some nationalities to enter Jordan. Alas, the issue was resolved well after I had departed.)
+(P.S. As it later turned out, this ferry debacle was due to classic Middle Eastern miscommunication within the company --- it has since allowed some nationalities to enter Jordan. Alas, the issue was resolved well after I had departed.)
 
 ## Giza and Alexandria (2020)
 
@@ -582,11 +544,7 @@ some nationalities to enter Jordan. Alas, the issue was resolved well after I ha
 
 Monumental. Cryptic. Iconic. Otherworldly. Mind-boggling. What else can a mere mortal possibly say about them? As the last surviving wonder of the ancient world, I had to make an effort to go see them. Done and dusted. I can finally move on with the rest of my life.
 
-![Giza and Alexandria (2020) — photo 2](/assets/travelbig/giza-and-alexandria-02.jpg)
-
 Fun fact #1: the mammoths were still alive when the Great Pyramid of Giza was built around 2580-2560 BC. Fun fact #2: the Pyramids of Giza were more ancient to the ancient Romans than the ancient Romans are to us. Fun fact #3: these piles of stone attract some, how shall I put it, very interesting perspectives. I've had all kinds of chats at my hostels about 'world chakras', 'energy healing', and 'Atlanteans'. If you don't bump into these modern pilgrims while exploring Egypt, you're missing out.
-
-![Giza and Alexandria (2020) — photo 3](/assets/travelbig/giza-and-alexandria-03.jpg)
 
 Regrettably, my visit didn't begin as intended. In my effort to (a) get there before the calvary of tourist buses, and (b) save money, I took a local minibus, promptly got lost, and was scammed into taking an overpriced horse buggy ride to the ticket office. I didn't lose a painful amount of money, all things considered, but I was so angry with myself I was almost ready to punch out the next Egyptian tout that approached me! That's the reality of travel for me --- sometimes I'm a savvy globetrotter, sometimes I'm too anxious to make good decisions in the heat of the moment. My stock rises and my stock falls. I constantly need to remind myself how to move on and take the rough with the smooth...
 
@@ -598,45 +556,29 @@ Postscript: Despite being one of the most popular destinations on this planet, t
 
 Brief remarks on a day trip out of Cairo to Alexandria, a chill (if somewhat grungy) coastal metropolis...
 
-The people seem very friendly and have a penchant for taking selfies with the lone foreigner walking around. Checked out the waterfront promenade and gorged on the cheapest Mediterranean seafood I will likely ever find in my life. Also browsed the Bibliotheca Alexandrina, an ultra-modern Starfleet Academy-esque library built near the site of the
-
-![Giza and Alexandria (2020) — photo 5](/assets/travelbig/giza-and-alexandria-05.jpg)
-
-ancient Library of Alexandria --- may it rest in peace. Julius Caesar, you arsonist pig!
+The people seem very friendly and have a penchant for taking selfies with the lone foreigner walking around. Checked out the waterfront promenade and gorged on the cheapest Mediterranean seafood I will likely ever find in my life. Also browsed the Bibliotheca Alexandrina, an ultra-modern Starfleet Academy-esque library built near the site of the ancient Library of Alexandria --- may it rest in peace. Julius Caesar, you arsonist pig!
 
 Some notes from the aspiring growth economists within myself: Consider the melancholic and rundown European-style building facades. Consider the battered and boxy black-and-yellow taxicabs that still roam Alexandria's roads. Take away the smartphones and what you have are street scenes that look like they're from the '80s or '70s. What does this tell us about urban technological progress, particularly in lower-middle-income economies like Egypt or elsewhere?
-
-![Giza and Alexandria (2020) — photo 6](/assets/travelbig/giza-and-alexandria-06.jpg)
 
 ## Goa (2020)
 
 *Posted 29 August 2020*
 
-![Goa (2020) — photo 1](/assets/travelbig/goa-01.jpg)
-
 ### Doing absolutely nothing on a beach in Goa
 
 Goa! Multiple Indians have told me they think it's heaven and multiple foreign travellers have told me they think it's overrated. Experiencing a bit of Goa and musing on these disparities is a fascinating exercise. However, I wasn't in Goa for intellectual entertainment. I was there to sit at the beach, read a book, and recover from my food poisoning in Hampi. Please note: chicken vindaloo and Kingfisher do not accelerate healing. Sure, I could've done some (dangerously) cheap water sports or joined a party. But idleness was my dominant mission.
-
-![Goa (2020) — photo 2](/assets/travelbig/goa-02.jpg)
 
 It's hard to get around Goa unless you are brave enough to ride a scooter, well-budgeted enough to afford Goa's taxi cartel, or (like me) mad enough to take the rust bucket local buses everywhere. For that reason, I picked a fairly central location. Not one of the northern drug-and-party beaches, nor one of the southern yoga-and-wellness beaches, but an upmarket-ish interstice beach where everyone was Russian or a British pensioner (there were some Indian families too, which was reassuring). It was also surprisingly uncrowned for early January. I did not mind any of this. It was nice to finally touch the Arabian Sea.
 
 On the question of authenticity: Is not discovering where so-called 'real India' is suspended just part of discovering 'real India'? Plenty of Indians love Goa and many parts of it clearly cater to them. The very visible
 
-![Goa (2020) — photo 3](/assets/travelbig/goa-03.jpg)
-
 Christianity-of-the-tropics (plentiful meat and alcohol, small wooden churches, little crosses and saints on overgrown verandas, pigs in backyards, etc.) and the Portuguese-style houses screams Goa's unique legacy. Plus, the 'lumpiness' (for lack of a better word) of how India runs is still visible. Rough roads and chaotic traffic. Stray dogs on the beach. The masseuse at my sun bed having to stop and hide while a policeman strolled past. You never forget which country you're in!
 
 I'm not an idle person. I'm not a beach person. But I mildly enjoyed Goa. When the sun sets and the moon creeps into view on the beach at dusk, it's the evening star, Venus, a perfect white dot, piercing the waning glow of day that captures your attention as you nurse your beer.
 
-![Goa (2020) — photo 4](/assets/travelbig/goa-04.jpg)
-
 But after three days of lounging around on the beach in Goa doing very, very little, I decided enough was enough and forced myself to visit Old Goa, the former capital of Portuguese India.
 
 Catholic India. Colonial Portugal. The Basilica of Bom Jesus, Se Cathedral, among others. The highlight for me was seeing the colossal ruins of the Church of St. Augustine. It's not just the Hindus that have a monopoly on magnificent Indian ruins! Laterite makes for a striking building material. Forget the flowing marble church sculptures of continental Europe - much of the art within these structures was done by Goan craftsmen with Goan materials. The local influences push through and are worth pausing to admire.
-
-![Goa (2020) — photo 5](/assets/travelbig/goa-05.jpg)
 
 ## Hampi (2020)
 
@@ -644,13 +586,9 @@ Catholic India. Colonial Portugal. The Basilica of Bom Jesus, Se Cathedral, amon
 
 FROM MY DIARY ENTRIES: This ruined expanse in the south Indian state of Karnataka was once the wealthy and powerful imperial capital of Vijayanagara, the "City of Victory". At its peak in the 1500s, this Hindu city was said to be the second largest in the medieval world after Beijing. But the city was sacked by Muslim armies in 1565 and has remained abandoned ever since. Look on my Works, ye Mighty, and despair! Nothing beside remains...
 
-![Hampi (2020) — photo 1](/assets/travelbig/hampi-01.jpg)
-
 DAY 1: I arrived via a bumpy overnight train from Mysore. This place has a bit of a reputation in India backpacking circles - namely cool ruins, hippies, bouldering, and very stoned people trying to climb large stones.
 
 On my first afternoon here, I checked out the Tungabhadra River, the Monolith Bull, the Achyutaraya Temple, and hung out with the local lads.
-
-![Hampi (2020) — photo 2](/assets/travelbig/hampi-02.jpg)
 
 I ended the day with one of the most spectacular sunset landscapes I've ever witnessed. It is a vast and mesmerising land of immense granite rocks, scattered as though the gods were playing marbles in ages past. A great evening and goodnight from atop Matanga Hill.
 
@@ -659,8 +597,6 @@ I ended the day with one of the most spectacular sunset landscapes I've ever wit
 DAY 2: I spent a full day cycling and hiking to sightseeing destinations around Hampi. It's certainly hard to know which pictures to select! See below for photos of Hemakuta Hill, Laksmi Narasimha Temple, Badavilinga Temple, Underground Shiva Temple, Hazara Rama Temple, the Royal Enclosure, Malyawanta Hill, the Saasivekaalu Ganesha, among others.
 
 During my explorations, I bumped into a lot of domestic tourists who wanted my selfie and to know where I was from, especially given my appearance. Unfortunately, a complex story (Chinese heritage, New Zealand citizenship, Australian residency, etc.) doesn't cut it! I eventually caved and just lied and said I was from China whenever people asked.
-
-![Hampi (2020) — photo 4](/assets/travelbig/hampi-04.jpg)
 
 I finished day two by checking out the Virupaksha Temple near the local village, dedicated to a form of Shiva. It is believed to be one of the oldest functioning temple sites in India, being an active place of worship since the 7th century. Plus, the temple had some real head-banging trumpet and drum music going on as well when I visited.
 
@@ -674,21 +610,15 @@ DAY 3: Disaster! I was struck with travellers diarrhoea after (probably) eating 
 
 Thankfully, I met an Indian-Australian traveller at the guesthouse who had hired a rickshaw for the day. So I was able to hitch a lift with him. Plus, he helped me sneak into the paid sites on an Indian ticket (40 rupees as opposed to 600 for foreigners)! I probably shouldn't say that too publicly. Though, I have had many Indians tell me they're opposed to the extreme third-degree price discrimination of tourist sites.
 
-![Hampi (2020) — photo 6](/assets/travelbig/hampi-06.jpg)
-
-Pictured: the stunningly beautiful Vijaya Vitthala Temple, more selfies with the lads, the Lotus Mahal and Elephant Stables.
+What I saw: the stunningly beautiful Vijaya Vitthala Temple, more lads who wanted selfies, the Lotus Mahal and Elephant Stables, and an evening religious ceremony on the banks of the Tungabhadra which ended in fireworks.
 
 ![Hampi (2020) — photo 7](/assets/travelbig/hampi-07.jpg)
-
-Videoed: an evening religious ceremony on the banks of the Tungabhadra which ended in fireworks.
 
 DAY 4: This was my final day in Hampi and it involved a cycling adventure north of the river!
 
 My newfound Indian-Australian friend and I hiked the 575 (or so) steps up Anjaneyadri hill to the supposed birthplace of Hanuman, the 'Monkey God' and servant of Rama. We made many hearty shouts of 'Jai Shri Ram!' ('Victory to Lord Rama!') and 'Jai Hanuman!' ('Victory to Hanuman!') on the way to the top. At one point on the climb, I was handed a banana, which I fed to one of Hanuman's many primate subjects squatting on the rocks.
 
 I'll drop in this over-worn quote now so I don't have to repeat it in future writings: "In religion, every Indian is a millionaire."
-
-![Hampi (2020) — photo 8](/assets/travelbig/hampi-08.jpg)
 
 The Indian countryside is also fascinating to cycle through. Bullocks ploughing the muddy fields. Piles of chillies drying out in the sun. Women (and it seems to be only women) singing and planting rice in the paddy fields. Kids coming up to you and asking for money for "school pens".
 
@@ -702,15 +632,11 @@ That's the way things are here. There is beauty, there is boredom, there is back
 
 "Remember, Mister Premier, that Delhi is the capital of not one but two countries - two Indias. The Light and the Darkness both flow in to Delhi." - Aravind Adiga, The White Tiger
 
-![Old Delhi in the morning](/assets/travelbig/impressions-of-delhi-01.jpg)
+![Delhi in the morning](/assets/travelbig/impressions-of-delhi-01.jpg)
 
-*Old Delhi in the morning*
+*Delhi in the morning*
 
 Delhi is the whole subcontinent flowing into one place... It's the only place in India where I've had people directly speaking Hindi to me. Makes sense. I've seen a lot of people with East Asian features from northeastern states (e.g. Assam and Manipur) and neighbouring countries like Nepal living and working here.
-
-![Paharganj at day](/assets/travelbig/impressions-of-delhi-02.jpg)
-
-*Paharganj at day*
 
 Delhi is a lot to breathe in... Aside from Beijing, this city has some of the worst air pollution I've ever encountered. It's bloody awful. After a day of walking around the city, I was lightheaded and my snot was black
 
@@ -719,8 +645,6 @@ Delhi is a lot to breathe in... Aside from Beijing, this city has some of the wo
 *Jama Masjid*
 
 Delhi is grungy density at its finest... Old Delhi (where a colossal Mughal-era mosque, Jama Masjid, is located) is rundown and crowded to the point of perverse aesthetic perfection. Close by is Paharganj, a nightmare ghetto of cheap hotels and semi-broken neon signs. I stayed there and I loved it and hated it in equal measure.
-
-![Impressions of Delhi (2020) — photo 4](/assets/travelbig/impressions-of-delhi-04.jpg)
 
 Delhi is the ghost in the memorial...
 
@@ -736,23 +660,15 @@ The National War Memorial: constructed in 2014 under the Modi administration, it
 
 Delhi is a city both obsessed and apathetic about security... Everywhere you go in the heart of the city, policemen and soldiers toting Cold War-era surplus firearms. Every time you take the (beautifully modern and efficient) metro system, your bags are screened and you are frisked by officers. Of course, no one seems to give a shit --- they just go through the motions. A great example is the metal detectors in all the hotel entrances. People come, people go, the detectors sometimes beep and sometimes don't, and no one bats an eye.
 
-![Impressions of Delhi (2020) — photo 6](/assets/travelbig/impressions-of-delhi-06.jpg)
-
 Delhi is a rude city... I've had to snap at people and raise my voice just to get things done here. I think I became a bit too aggressive towards the end of my stay. Some of it is simply big-city brusqueness, but I reckon a better explanation is that everyone is just pissed they have to live in Delhi of all places. Mumbai is nicer, Chennai is hilariously messy, but Delhi is in a league of its own.
 
-Delhi has some absolute marvels tucked within the grit... The Qutb Minar complex (the subject of these photos) is a sensational place, filled with tombs and ruins of the Delhi Sultanate. Just check out that soaring, 73-metre tall sandstone minaret! Equally fascinating (for me, at least) are the elaborate Indo-Islamic designs and the bold, contrasting use of white marble and red sandstone in the complex. For
-
-![Impressions of Delhi (2020) — photo 7](/assets/travelbig/impressions-of-delhi-07.jpg)
-
-some reason, seeing this building mixture made me crave both dairy milk and white chocolate at the same time.
+Delhi has some absolute marvels tucked within the grit... The Qutb Minar complex (the subject of these photos) is a sensational place, filled with tombs and ruins of the Delhi Sultanate. Just check out that soaring, 73-metre tall sandstone minaret! Equally fascinating (for me, at least) are the elaborate Indo-Islamic designs and the bold, contrasting use of white marble and red sandstone in the complex. For some reason, seeing this building mixture made me crave both dairy milk and white chocolate at the same time.
 
 ![Humayun's Tomb](/assets/travelbig/impressions-of-delhi-08.jpg)
 
 *Humayun's Tomb*
 
-Delhi is a testament to North India's Islamic legacy... City of djinns, indeed. Although current issues in India surrounding Muslim identity and Hindu nationalism can be politely called a 'fraught clusterfuck' (I'll never forget the awkward exchange I had with an Uber driver in Jaipur where he praised the Chinese government's Xinjiang internment camps), Islam's artistic impact on the country is enthralling. Look no further than Humayun's Tomb Complex in these photos --- home to the grandiose resting place of the second Mughal Empire, as well as other paradisiacal garden-tombs.
-
-![Impressions of Delhi (2020) — photo 9](/assets/travelbig/impressions-of-delhi-09.jpg)
+Delhi is a testament to North India's Islamic legacy... City of djinns, indeed. Although current issues in India surrounding Muslim identity and Hindu nationalism can be politely called a 'fraught clusterfuck' (I'll never forget the awkward exchange I had with an Uber driver in Jaipur where he praised the Chinese government's Xinjiang internment camps), Islam's artistic impact on the country is enthralling. Look no further than Humayun's Tomb Complex --- home to the grandiose resting place of the second Mughal Empire, as well as other paradisiacal garden-tombs.
 
 Delhi is the reason 'Delhi belly' is a thing... Alas, my luck ran out at the very end of my Indian odyssey and I was struck with severe traveller's diarrhoea a second time. Whether I contracted it in the nation's capital or elsewhere (the 'Punjabi punisher', perhaps?), I will never truly know. But I spent my last few precious days in Hindustan staggering around places like Humayun's Tomb in an Imodium-induced fugue state. And I don't even want to begin talking about the hellish 4 am flight I took out of Indira Gandhi International Airport, with my guts churning like the tea in a chai wallah's pot.
 
@@ -762,10 +678,6 @@ Delhi is the reason 'Delhi belly' is a thing... Alas, my luck ran out at the ver
 
 Delhi is the best place to become a 'made man' in the land of madcap travel... After I flew out of Delhi and into Cairo, I could only listen with mild amusement to people bemoaning the traffic, the hassling, the noise, and the dirtiness. My god. If only they knew the things I have experienced on the mean streets of Delhi. I'm not sure if anything can faze me anymore.
 
-![Paharganj at night](/assets/travelbig/impressions-of-delhi-11.jpg)
-
-*Paharganj at night*
-
 Delhi is business and loitering, adeptness and incompetence... It is Connaught Place, where I haggled for fake Ray-Bans outside a high-end sunglass store, was harassed by two skin-crawlingly obnoxious Indian lads, had to suffer the inefficient local post office, found superb exchange rates with back alley dealers, and watched dusklight creep over the ridiculously big Indian flag in Central Park.
 
 ![Gandhi Smriti](/assets/travelbig/impressions-of-delhi-12.jpg)
@@ -774,15 +686,7 @@ Delhi is business and loitering, adeptness and incompetence... It is Connaught P
 
 Delhi is the dream of a softer tomorrow... It is visiting Gandhi Smriti, seeing where Mahatma Gandhi spent the final days of life, reminding myself of what he stood for, and then following in his footsteps to the spot where he was assassinated.
 
-Delhi is a cosmopolitan city but not an international one... The difference I felt between Mumbai and Delhi is the difference I felt between Shanghai and Beijing. Mumbai feels authentically global, with
-
-![Impressions of Delhi (2020) — photo 13](/assets/travelbig/impressions-of-delhi-13.jpg)
-
-the dynamism to match, while Delhi is a bursting-at-the-seams capital that feels like it's still sloughing off an entire nation's complications.
-
-![Hauz Khas Village Park](/assets/travelbig/impressions-of-delhi-14.jpg)
-
-*Hauz Khas Village Park*
+Delhi is a cosmopolitan city but not an international one... The difference I felt between Mumbai and Delhi is the difference I felt between Shanghai and Beijing. Mumbai feels authentically global, with the dynamism to match, while Delhi is a bursting-at-the-seams capital that feels like it's still sloughing off an entire nation's complications.
 
 Delhi is a reminder that every foreign locale, no matter how "westernised", has quirks... On election day for the Delhi Legislative Assembly, I tried to have lunch at a restaurant in the snooty and arty Hauz Khas Village (think off-brand Greenwich Village) and was told by the haughty waitstaff that --- because of the election --- it was a designated 'dry day' in the capital and alcohol could not be served. But when I asked to see their list of mocktails, they informed me that was not possible since it was printed on a menu that also listed alcoholic drinks. Like, what the hell?
 
@@ -828,21 +732,15 @@ So is the Hagia Sophia a cathedral? Is it a mosque? Or is it a historical museum
 
 Hooray for compromise... or so I thought. But then in July 2020, only a few months after I visited it, Turkish President Recep Tayyip Erdoğan redesignated the site as a mosque, triggering much domestic and international controversy.
 
-![And some other nearby attractions...](/assets/travelbig/istanbul-04.jpg)
-
 *And some other nearby attractions...*
 
 Close to the Hagia Sophia, I was also able to visit the twilight underworld of the Cisterna Basilica, the solemnly splendid Tomb of the Sultans, and the palatial Süleymaniye Mosque in the mizzle.
 
-![The domed ceilings of Istanbul](/assets/travelbig/istanbul-05.jpg)
-
-*The domed ceilings of Istanbul*
-
 On these various visits, I spend a lot of time craning my head up at the Ottoman domed ceiling. I'm sure the future neck pain I'll have was a worthy price to pay for being able to peer directly upwards at such decorative beauty.
 
-![And finally, the fantastic food of Turkey...](/assets/travelbig/istanbul-06.jpg)
-
 *And finally, the fantastic food of Turkey...*
+
+![Istanbul breakfast](/assets/travelbig/istanbul-05.jpg)
 
 Let's start with breakfast. Might I recommend an epic full-spread Turkish breakfast called 'kahvalti' (which literally translates to 'before coffee'). Olives, eggs, spreads, dips, a suite of cheeses, and unlimited tea and bread. As you can imagine, I didn't eat anything else for the rest of the day.
 
@@ -874,13 +772,9 @@ Some snaps of Jaipur, the capital of Rajasthan. This was my final stop in this g
 
 Expectations have not fully met reality and past experience. It's a busy, sprawling, impersonal city and once you knock off the main attractions (which seem plentiful, but can be easily visited in a short span of time) it can feel as though you're at a loss of what to do next...
 
-![Jaipur (2020) — photo 2](/assets/travelbig/jaipur-02.jpg)
-
 My advice for Jaipur: best take it slow. Sit at cafes. Reflect on the ups and downs of the trip so far. Plan ahead. Watch the world go by. Compose wistful and semi-informative blog posts.
 
 I was also completely outraged by something else. Jaipur is famously called the "Pink City of India". Now, I don't know about you but nothing here looks remotely pink. More an orangey-red. This is surely the true Indian scam! I demand my bloody paisas back.
-
-![Jaipur (2020) — photo 3](/assets/travelbig/jaipur-03.jpg)
 
 ### The Amber Fort: glorious and elephant congested
 
@@ -888,15 +782,9 @@ The Amber Fort! Once the fortress residence of the Jaipur royal family. Rajput a
 
 Admittedly, it is not my favourite Indian fort (that title goes to Mehrangarh Fort in Jodhpur) but it's utterly majestic in the morning light. Just remember not to take the touristy elephant rides to the top. It is not a terribly ethical thing to do.
 
-![Jaipur (2020) — photo 4](/assets/travelbig/jaipur-04.jpg)
-
 Like with many grand Indian buildings, the Amber Fort mainly inspiring from the outside. Apart from one or two impressive rooms, the interiors are bare-boned with semi-recent restoration work is evident throughout. The same can be said for the City Palace and Hawa Mahal, two other major attractions in the city. This is not an India specific problem, mind you. China too suffers the same issue with many of its large heritage structures.
 
-![Jaipur (2020) — photo 5](/assets/travelbig/jaipur-05.jpg)
-
 But whereas the scant interiors of China can be explained by events like the Cultural Revolution, which gutted the entire country of its historical wealth, the reason here seems more opaque. Hypothesis: It's a result of the anarchic, predatory impact of the British East India Company and direct Crown rule, compounded by a lack of modern state capacity to prioritise and preserve the country's almost countless cultural sites.
-
-![Jaipur (2020) — photo 6](/assets/travelbig/jaipur-06.jpg)
 
 ### Quick notes on Hawa Mahal and Jantar Mantar...
 
@@ -908,29 +796,19 @@ Jantar Mantar: Is it a highfalutin contemporary sculpture garden? Or a set of en
 
 ### Temple run: Jaipur edition
 
-Photos of various forts and temples on the hills surrounding Jaipur. My overall impression: utilitarian strongholds, rundown holy sites, plenty of monkeys.
+I dizzied forts and temples on the hills surrounding Jaipur. My overall impression: utilitarian strongholds, rundown holy sites, plenty of monkeys.
 
-My discontented rickshaw driver rushed me around Nahargarh and Jaigarh Fort and was mainly interested in taking me to a crappy commission-paying shop (an expected side effect of a cheap hire). I'm
-
-![Jaipur (2020) — photo 8](/assets/travelbig/jaipur-08.jpg)
-
-also fairly sure that the trivial entrance fee the holy men charged for visiting the Galta Ji temple complex was a half-hearted scam. Whatever. These things happen.
+My discontented rickshaw driver rushed me around Nahargarh and Jaigarh Fort and was mainly interested in taking me to a crappy commission-paying shop (an expected side effect of a cheap hire). I'm also fairly sure that the trivial entrance fee the holy men charged for visiting the Galta Ji temple complex was a half-hearted scam. Whatever. These things happen.
 
 A personal note to a future self: I need to stop stumbling into temple blessings out of boredom. I mean, I don't believe in any of it and I don't like having stuff put on my forehead or wrapped around my wrists (I remove them the moment I leave). Karma, reincarnation, curses, blessings, deities, prayers, sacrifices, all of it --- I respect them up to a solid threshold, and I often find them intellectually absorbing to observe, but I should endeavour to keep them away from me with a much longer stick.
-
-![Jaipur (2020) — photo 9](/assets/travelbig/jaipur-09.jpg)
 
 ### The Palace and the Museum
 
 The City Palace of Jaipur. It's alright. Had some cool archways and doors, I guess. The lavish throne room had pigeons flying around and shitting in it. The weapons gallery (i.e. "the murder wing") showcased all the ingenious ways Indians tried to attach firearms to other weapons. Gun-swords. Gun-maces. Gun-crossbows. Gun-daggers. Sneaky-cane-swords-that-were-also-cane-guns.
 
-![Jaipur (2020) — photo 10](/assets/travelbig/jaipur-10.jpg)
-
 The best corner of the palace was undoubtedly the painting and photography gallery. For one, it was dark and cool and cleverly curated; for another, there were few visitors and no guided tour groups. I can't abide by paid museum guides. Museums are the ultimate space for me to exercise my introversion. Keep my own pace. Get away from the world. Study whatever displays catch my idiosyncratic attention.
 
 Speaking of museums, the Albert Hall Museum was a pleasant surprise. I expected it to be lacklustre and only went because I was in that part of town. I think my favourite artefacts of India are its miniature paintings (where all the Deccan, Mughal, Rajput, etc. paintings look like they were all done by the same ten guys) and its remarkable religious sculptures.
-
-![Jaipur (2020) — photo 11](/assets/travelbig/jaipur-11.jpg)
 
 And with Jaipur completed, I was finally done with Rajasthan! Afterwards, I took the train to this super obscure, off-the-beaten-path place called Agra. Dunno if you've ever heard of it but it has some well-regarded stuff.
 
@@ -938,31 +816,19 @@ And with Jaipur completed, I was finally done with Rajasthan! Afterwards, I took
 
 *Posted 4 April 2021*
 
-![Jaisalmer (2020) — photo 1](/assets/travelbig/jaisalmer-01.jpg)
-
 ### Greetings from Jaisalmer — The Golden City
 
 Phwoar. What a place! This is the small and remote city of Jaisalmer, a sandstone settlement in the middle of the Thar Desert and once a medieval trading hub on the Silk Road. You can understand why both modern and bygone travellers fell in love with this place. It is the fantastical desert city that springs to mind when they think of ancient, exotic Arabia or Central Asia. Let's discuss some points of interest in this seemingly magical part of the world, shall we?
 
 ### The astonishing Jaisalmer Fort...
 
-This is the giant 800-year-old citadel that sits at the heart of the city. It has been dubbed one of the world's oldest "living forts" and has a resident population of around 4,000 people.
+This is the giant 800-year-old citadel that sits at the heart of the city. It has been dubbed one of the world's oldest "living forts" and has a resident population of around 4,000 people. I even managed to stay at a guesthouse inside the fort for the price of an Aussie coffee a night. It was worth it for the terrible plumbing and non-existent insulation. My room was effectively a medieval stone cell and I loved it.
 
-![Jaisalmer (2020) — photo 2](/assets/travelbig/jaisalmer-02.jpg)
-
-I even managed to stay at a guesthouse inside the fort for the price of an Aussie coffee a night. It was worth it for the terrible plumbing and non-existent insulation. My room was effectively a medieval stone cell and I loved it.
-
-![Jaisalmer (2020) — photo 3](/assets/travelbig/jaisalmer-03.jpg)
+![Jaisalmer (2020) — photo 1](/assets/travelbig/jaisalmer-01.jpg)
 
 ### A bit of male pampering...
 
-To get here, I took an exhausting overnight train ride from Jodhpur. To recover properly, there was only one logical course of action: bargain bin male pampering, Bhārat style.
-
-![Jaisalmer (2020) — photo 4](/assets/travelbig/jaisalmer-04.jpg)
-
-There's actually a bit of a cottage industry on YouTube of people filming themselves getting old school, hole-in-the-wall Indian barbershop treatments like this. So why not get a snippet of the action?
-
-![Jaisalmer (2020) — photo 5](/assets/travelbig/jaisalmer-05.jpg)
+To get here, I took an exhausting overnight train ride from Jodhpur. To recover properly, there was only one logical course of action: bargain bin male pampering, Bhārat style. There's actually a bit of a cottage industry on YouTube of people filming themselves getting old school, hole-in-the-wall Indian barbershop treatments like this. So why not get a snippet of the action?
 
 At one point the barber put on what I can only describe as a video game 'power fist' and/or 'vibro-weapon' and started to seismically attack my scalp. The best and/or worst and/or strangest part was when he did a little earthquake rub right down my ear canal. Ah, the things I do for worldly experiences.
 
@@ -982,25 +848,17 @@ During my time here, I did a camel safari in the Great Indian Desert topped off 
 
 ![Jaisalmer (2020) — photo 7](/assets/travelbig/jaisalmer-07.jpg)
 
-And also, these photos are deceptive! The Thar Desert has some small dunes for sure, but it is nothing like the endless rolling sands of the Sahara. Much of the landscape is quite rocky, with plenty of vegetation and clusters of human infrastructure.
+And also, photos are deceptive! The Thar Desert has some small dunes for sure, but it is nothing like the endless rolling sands of the Sahara. Much of the landscape is quite rocky, with plenty of vegetation and clusters of human infrastructure.
 
-![Jaisalmer (2020) — photo 8](/assets/travelbig/jaisalmer-08.jpg)
-
-I know that I look very happy in some of these photos (and I mostly was). But behind the smiles for the camera, I never suspended my critical thinking. Jaisalmer is filled with dodgy bargain bin camel tours and I did my research to make sure I went with a good company. Even so, I was constantly alert to anything feeling off.
-
-![Jaisalmer (2020) — photo 9](/assets/travelbig/jaisalmer-09.jpg)
+I know that I look very happy (and I mostly was). But behind the smiles for the camera, I never suspended my critical thinking. Jaisalmer is filled with dodgy bargain bin camel tours and I did my research to make sure I went with a good company. Even so, I was constantly alert to anything feeling off.
 
 Were the camels healthy? Hard to say given the lack of familiarity most westerners have with these animals. Was it okay that the person leading my camel was about the age of ten? This potentially gets into thorny questions of local community norms and the opportunity costs for labour vs. schooling in developing economies. I am, very often, what the writer Malcolm Gladwell calls "the holy fool". High threat detection, easily suspicious. If it takes the average person five minutes to drop their guard in a new situation, I'd happily take fifteen.
 
-![Jaisalmer (2020) — photo 10](/assets/travelbig/jaisalmer-10.jpg)
-
 Not the best way to end a segment about a beautiful desert safari (and truly, I did enjoy myself) but I thought these points were worth sharing. I'm not a total hack fraud. Not yet.
-
-![Jaisalmer (2020) — photo 11](/assets/travelbig/jaisalmer-11.jpg)
 
 ### Wealthy haveli façades...
 
-Below are photos of the absurdly detailed havelis (traditional Indian mansions) of rich merchant families from Jaisalmer's trade routing past. Sadly, as with many Indian heritage buildings, it's much more impressive on the outside than on the inside. A literal façade.
+These are the absurdly detailed havelis (traditional Indian mansions) of rich merchant families from Jaisalmer's trade routing past. Sadly, as with many Indian heritage buildings, it's much more impressive on the outside than on the inside. A literal façade.
 
 ![Jaisalmer (2020) — photo 12](/assets/travelbig/jaisalmer-12.jpg)
 
@@ -1018,8 +876,6 @@ The first is Gadisar Lake, a man-made water reservoir built in the 1400s where a
 
 ![Jaisalmer (2020) — photo 14](/assets/travelbig/jaisalmer-14.jpg)
 
-![Jaisalmer (2020) — photo 15](/assets/travelbig/jaisalmer-15.jpg)
-
 The second is Bada Bagh, a set of royal cenotaphs (known as "chhatri") in a desert garden north of the city. Peaceful and crumbling. One shouldn't visit too many of these places! I'd hate to remember India only as a land of tombs, necropolises, and marbled thanatocracies. Rich dead people have done very well here.
 
 ![Jaisalmer (2020) — photo 16](/assets/travelbig/jaisalmer-16.jpg)
@@ -1031,12 +887,6 @@ My photograph of Rajasthani village women carrying firewood on their heads while
 ![Jaisalmer (2020) — photo 17](/assets/travelbig/jaisalmer-17.jpg)
 
 Change is the only constant. Change that, I imagine, is happening too quickly for some and not happening fast enough for many.
-
-### And finally, some more photos of Jaisalmer Fort because why not...
-
-Because, seriously, why not? Just look at this place!
-
-![Jaisalmer (2020) — photo 18](/assets/travelbig/jaisalmer-18.jpg)
 
 ## Jodhpur (2020)
 
@@ -1052,8 +902,6 @@ I'm a bit gobsmacked a human-made structure like this exists. Visiting Mehrangar
 
 It is a colossal, impregnable 500-year-old fortress of the Maharajas of Mewar. A brutal and imposing exterior with opulent royal chambers within. Pigeons and small green parrots flit in and around this desert titan. And it completely overpowers the skyline of Jodhpur's old, blue city.
 
-![Jodhpur (2020) — photo 2](/assets/travelbig/jodhpur-02.jpg)
-
 Rudyard Kipling, after visiting the fort, famously described it as "the work of angels, fairies and giants". He's absolutely right.
 
 Royal treasures from the Mehrangarh Fort museum collection The Sun Fort also probably has the best audio tour I've done in India. The tour was fascinating throughout, with a modest but carefully curated royal museum collection. The best "exhibit" was the sleepy old man with a hookah kit who let us sniff a tin of opium powder (still a favourite of rural Rajasthan despite its illegality). "Good for digestion, good for sleep, good for sex," he told us.
@@ -1062,25 +910,17 @@ Royal treasures from the Mehrangarh Fort museum collection The Sun Fort also pro
 
 Blue, soothing Jodhpur Some chill, blue views of Jodhpur, Rajasthan. Forget about Chefchaouen in Morocco! Here's an alternative travel destination for your azure-cerulean-sky-blue-Instagram fix.
 
-![Jodhpur (2020) — photo 4](/assets/travelbig/jodhpur-04.jpg)
-
 Jodhpur has a lot going for it (the food in the main market area is cheap and great) but it's also one of the grungiest places I've been to so far in India. The trash problem seems worse. The stray dogs seem meaner. The scooters are a little more aggressive. Many streets are redolent of fecal matter and burnt rubbish, and open defecation (a perennial public health challenge in India) is more visible here than elsewhere. I'm not bothered very much by this kind of stuff anymore, but keep it in mind if you're planning a visit!
-
-![Jodhpur (2020) — photo 5](/assets/travelbig/jodhpur-05.jpg)
 
 Additional Jodhpur highlights (1) The epic Toorji Ka Jhalra (Toorji's Step Well) where the tourists come to take photos and the locals come to smoke ganja. Indian stepwells are the best.
 
 (2) Jaswant Thada, the marble cenotaph and cremation grounds of the Jodhpur royal family. Dubbed the "Taj Mahal of Rajasthan" and you can see why.
-
-![Jodhpur (2020) — photo 6](/assets/travelbig/jodhpur-06.jpg)
 
 (3) The bustling Sardar Market, which has excellent fruit juice, desserts, samosas, and a very, very good omelette shop.
 
 (4) The Mandore Gardens, located on the city outskirts. The former ancient capital of the Jodhpur State, the gardens contain the stunningly sculpted cenotaphs of various dead and forgotten maharajas. It was also completely free to enter when I visited --- a rarity for such a peaceful, well-preserved heritage site in India.
 
 An addendum...
-
-![Jodhpur (2020) — photo 7](/assets/travelbig/jodhpur-07.jpg)
 
 Black cowboy hats seem to be all the rage for Indian male tourists in their own country. There are 'English Wine Shops' and 'German Bakeries'. Packets of instant noodles populate the shelves in little hole-in-wall convenience stores. Every shop seems to have the same bland Arial font for their storefront retail signs. As I walk past bored shopkeepers, they call out to me and try to guess my nationality. "Konichiwa!'" they say, "Ni hao!" Some even think I'm Nepali or from the North-eastern states of India based on my tanned backpacker's complexion.
 
@@ -1094,13 +934,7 @@ As my bus rumbles along the highway at night, I see Rajasthani men huddled aroun
 
 Luxor, a city on the Nile River, stands at the site of the ancient pharaonic capital of Thebes. On Luxor's East Bank is the Egyptian township proper with the popular Temple of Luxor and the Temple of Karnak. On its West Bank are the harsh desert visages, the burial place of pharaohs, and the stark archaeological iconography of so many people's imagination.
 
-Karnak Temple...
-
-![Luxor (2020) — photo 1](/assets/travelbig/luxor-01.jpg)
-
-If the must-see of Luxor's West Bank is the Valley of the Kings, then the must-see of the East Bank is without a doubt the Karnak Temple Complex. Now, I readily admit that I have a penchant for exaggeration in my descriptions. I pop on my travel-tinted lenses and suddenly everything's a little 'beautiful this' and 'amazing that', but I think that even without such worldly biases this place is awe-inspiring.
-
-![Luxor (2020) — photo 2](/assets/travelbig/luxor-02.jpg)
+Karnak Temple... If the must-see of Luxor's West Bank is the Valley of the Kings, then the must-see of the East Bank is without a doubt the Karnak Temple Complex. Now, I readily admit that I have a penchant for exaggeration in my descriptions. I pop on my travel-tinted lenses and suddenly everything's a little 'beautiful this' and 'amazing that', but I think that even without such worldly biases this place is awe-inspiring.
 
 An immense religious site that first began life 4,000 years ago, Karnak is primarily dedicated to Amun-Re, the supreme patron deity of ancient Thebes (along with areas dedicated to his wife Mut, the divine mother goddess, and Mont, the falcon-headed god of war). To enter its Great Hypostyle Hall is to enter a forest of colossal stone columns. It is to truly become a human-ant surrounded by the workings of towering and ageless pagan gods.
 
@@ -1110,17 +944,13 @@ Immense. Colossal. Towering. How much further can I strain the thesaurus in sear
 
 To appreciate just how powerful this place is, one should reach Karnak as soon as it opens (i.e. before any tour groups arrive) in order to become fully consumed by its enormous pillars in the chilly, honey-yellow morning light.
 
-![Luxor (2020) — photo 4](/assets/travelbig/luxor-04.jpg)
-
 How much backbreaking labour went into this place! Consider the slavishly carved hieroglyphs, the heroically erected obelisks, the monstrous pylon gateways, the broad sacred lake, and the careful rows of sphinxes and headless god-kings. Can you feel the endless toil of craftsmen? The snap of ropes and the crush of wheels? The dust and sweat and the want of shade and water? Labour of labours for the king of kings.
-
-![Luxor (2020) — photo 5](/assets/travelbig/luxor-05.jpg)
 
 Located away from all the tourists milling inside the Great Hypostyle Hall is the smaller, but no less impressive, Temple of Khonsu. Here you can admire ancient colours that have endured layers upon layers of neglect. Here you can listen to the small birds that nest and flitter within a canopy of aching stone. Here you are finally alone.
 
 Let the sound of birds wash over you. Let it restore you like a sigh. This world can still be peaceful sometimes.
 
-Photos of Luxor Temple, day and night...
+### Photos of Luxor Temple, after dark...
 
 This ancient complex sits on the Nile's east bank, surrounded by busy shops, cafes, and restaurants. It's been kicking around since 1400 BC and may or may not have served as the coronation site of new pharaohs. The temple was partially converted into a Christian church by the Romans, was occupied by Arab villagers in medieval times, and now has an active mosque in the middle of it. In other words, oodles of history.
 
@@ -1128,19 +958,15 @@ This ancient complex sits on the Nile's east bank, surrounded by busy shops, caf
 
 Many people opt to walk around it, peering in from the outside. But if you have the time and budget, I recommend purchasing a ticket to go inside --- especially after dark, when the imposing columns and timeworn statues are lit up for dramatic effect.
 
-![Luxor (2020) — photo 7](/assets/travelbig/luxor-07.jpg)
-
-Cycling towards the Valley of the Kings on the West Bank of Luxor...
+### Cycling towards the Valley of the Kings on the West Bank of Luxor...
 
 Now it is time to venture across the Nile to Luxor's West Bank. A stark desert landscape. Barren limestone hills. The dry morning heat and a solitary bird of prey in the sky above. Like venturing across another planet.
-
-![Luxor (2020) — photo 8](/assets/travelbig/luxor-08.jpg)
 
 Exploring the West Bank with a janky, rented bicycle certainly isn't the easiest way to do it! But for some reason, cycling around ancient ruins has just become a thing I do now. I did it at Angkor Wat, at Ayutthaya in Thailand, and I did it recently in Hampi.
 
 I guess it's the joy of setting your own pace, of having to work for your tourist attractions, and of exploring a locale in an economical, old-school manner. No reason to stop now.
 
-The Tomb of the Nobles...
+### The Tomb of the Nobles...
 
 Filed under photos-I-technically-shouldn't-have. Turns out a small, ahem, tip to the guards can turn a 'no photo' area into a "my friend, take as many photos as you want" one. Baksheesh, baby!
 
@@ -1150,11 +976,9 @@ These are the 18th dynasty burial chambers of Sennofer, a royal gardener, and Re
 
 Unlike the sepulchres of the mighty pharaohs, which are mainly painted with religious themes, these tombs provide wonderful insights into everyday ancient Egyptian life. 10/10, would bribe again.
 
-The Temple of Hatshepsut...
+### The Temple of Hatshepsut...
 
 The Mortuary Temple of Hatshepsut on the West Bank was built for a powerful New Kingdom pharaoh. What a panorama with those timeless cliffs and that vivid desert sky!
-
-![Luxor (2020) — photo 10](/assets/travelbig/luxor-10.jpg)
 
 It should be noted that the monument has undergone heavy restoration and reconstruction and there's not a terrible amount to explore within. Still, you can't beat that frontal view. It completely seizes the imagination the first time you see it.
 
@@ -1162,7 +986,7 @@ Hatshepsut, you may be interested to know, was a woman. She was (to the best of 
 
 ![Luxor (2020) — photo 11](/assets/travelbig/luxor-11.jpg)
 
-Ah, at last --- the world-renowned Valley of the Kings...
+### Ah, at last --- the world-renowned Valley of the Kings...
 
 Or as the ancient locals used to call it back in the day: "The Great and Majestic Necropolis of the Millions of Years of the Pharaoh, Life, Strength, Health in The West of Thebes". Catchy.
 
@@ -1170,11 +994,9 @@ Photographed in this section is KV2, the tourist-swamped resting place of Ramess
 
 This was my katabasis, my descent into the underworld. There are over sixty chthonic tombs (only around a third of which belong to actual kings) from the 16th to 11th century BC spread throughout this area. Many of them are opulently coloured and meticulously decorated. A number of them plunge ridiculously deep into the bowels of the earth.
 
-![Luxor (2020) — photo 12](/assets/travelbig/luxor-12.jpg)
-
 Hieroglyphs as far as the eye can see. Hexes and spells. The Book of the Dead. Mythological scenes and deities galore. And don't forget tomb robbers, King Tut, and the curse of the pharaohs. Death has inspired an unparalleled art form within these chambers.
 
-A brave and highly qualified archaeologist stands baffled before his discoveries in an ancient Egyptian tomb...
+### A brave and highly qualified archaeologist stands baffled before his discoveries in an ancient Egyptian tomb...
 
 Welcome to KV9, the Tomb of Rameses V and Rameses VI. It is marvellous. The tomb is spacious, sensationally preserved, and sublimely colourful --- the sepulchral highlight of my trip to the Valley of the Kings.
 
@@ -1182,12 +1004,9 @@ Welcome to KV9, the Tomb of Rameses V and Rameses VI. It is marvellous. The tomb
 
 And it's also weird. Really fucking weird. Some of the paintings on the walls are genuinely quite freaky looking, like something out of an unhinged fever dream. Elongated beings. Decapitated bodies. Serpentine and/or vermiform beasts. Man-animal hybrids. Wacky limbs and sinister grins. Maybe it was just the odd mood I was in, but this tomb seriously felt like a plunge down the rabbit (hieroglyph sign no. E34) hole.
 
-![Luxor (2020) — photo 14](/assets/travelbig/luxor-14.jpg)
-
-And finally, a nighttime visit to Luxor Museum...
+### And finally, a nighttime visit to Luxor Museum...
 
 "Did I do the right thing, trying to escape into history? Did this ambition make any sense? After all, we encounter in historical accounts the very same things such as we thought we could flee in our time... we are never in the presence of unmediated history, but of history recounted, presented, history as it appeared to someone, as he or she believes it to have been. This has been the nature of the enterprise always, and the folly may be to believe one can resist it."
-
 --- Ryszard Kapuscinski
 
 ![Luxor (2020) — photo 15](/assets/travelbig/luxor-15.jpg)
@@ -1198,19 +1017,11 @@ And finally, a nighttime visit to Luxor Museum...
 
 ### Malacca City --- some lukewarm observations
 
-Malacca. It is a city of over half a million people on the south-western coast of the Malay Peninsula. It is a major tourist attraction and its historic centre has been listed as a UNESCO World Heritage Site since 2008. It is a confluence of Malays, Tamils, Chinese, Peranakans, and other peoples. It is the story of the Portuguese seizing it from the Sultanate, the Dutch seizing it from Portuguese, the English taking control, and then union with the Malay States in the aftermath of the
-
-![Malacca, Malaysia (2020) — photo 1](/assets/travelbig/malacca-malaysia-01.jpg)
-
-World War II. So much blood spilt for a place that is now a leisurely day trip from Kuala Lumpur...
+Malacca. It is a city of over half a million people on the south-western coast of the Malay Peninsula. It is a major tourist attraction and its historic centre has been listed as a UNESCO World Heritage Site since 2008. It is a confluence of Malays, Tamils, Chinese, Peranakans, and other peoples. It is the story of the Portuguese seizing it from the Sultanate, the Dutch seizing it from Portuguese, the English taking control, and then union with the Malay States in the aftermath of the World War II. So much blood spilt for a place that is now a leisurely day trip from Kuala Lumpur...
 
 Despite the high levels of cushy and, quite frankly, tacky tourism in the city, oddities abound. The Tan Kim Seng Bridge that crosses the Malacca River, the nexus of the historical city, is a deafening cacophony of birds in the evening and an action painting of droppings...
 
-![Malacca, Malaysia (2020) — photo 2](/assets/travelbig/malacca-malaysia-02.jpg)
-
 History can be found in unusual nooks. For instance, the mausoleum of Hang Jebat, a 15th-century local legendary warrior, can be found indignantly squeezed between an auto repair shop and a cookie store on a rarely explored side road. Meanwhile, the revolving panoramic tower a warbling, the Taming Sari Tower, makes of Malacca, extraterrestrial sound that resonates across much of the city...
-
-![Malacca, Malaysia (2020) — photo 3](/assets/travelbig/malacca-malaysia-03.jpg)
 
 As for the famous Christ Church Malacca, it is prosaic in a style that only the Anglicans can pull off. Nice to sit in. Strangely, I was the only one inside despite the throngs of tourists milling outside the church in the heat.
 
@@ -1218,11 +1029,9 @@ Nearby is the Stadthuys, a historical museum and former colonial Dutch city hall
 
 Pictured below: the beautiful 16th-century hilltop ruins of Saint Paul's Church, with its chunky and imposing old Portuguese tombstones...
 
-The Melaka Straits Mosque, built on stilts to make it appear at times as though it is floating about the waves, makes for a great visit, but it's in a bad location. I wouldn't recommend walking there like I did (just take a taxi instead) --- not because it felt unsafe, but because it felt lonely and
-
 ![Malacca, Malaysia (2020) — photo 4](/assets/travelbig/malacca-malaysia-04.jpg)
 
-dull. Vacant lots, tenantless buildings, and silent construction sites. There is also an unoccupied and half-completed faux-European shopping boulevard nearby, which is a hollow and dispiritingly kitschy thing to see.
+The Melaka Straits Mosque, built on stilts to make it appear at times as though it is floating about the waves, makes for a great visit, but it's in a bad location. I wouldn't recommend walking there like I did (just take a taxi instead) --- not because it felt unsafe, but because it felt lonely and dull. Vacant lots, tenantless buildings, and silent construction sites. There is also an unoccupied and half-completed faux-European shopping boulevard nearby, which is a hollow and dispiritingly kitschy thing to see.
 
 Malacca is ultimately a place of conflux. One can be walking behind some Indian tourists in a Chinese folk temple --- partly distracted by the sight of Buddhist nuns across the road taking selfies --- when the Islamic call to prayer starts blasting from around the corner...
 
@@ -1234,11 +1043,7 @@ Chicken rice balls. A famous Malacca dish. It's cheap, it's quick, and it's no-f
 
 Cendol. An iced dessert with green rice flour jelly, mixed with coconut milk and drizzled with palm sugar syrup. Surprisingly not as sugary as I'd imagine it would be. I'm not the biggest fan of icy Asian desserts, but this was passably pleasant.
 
-Finally, Malacca is synonymous with bombastic, fever-inducing bicycle rickshaws. Glum men pedalling middle-aged Chinese tourists around on flashing contraptions covered with plushy cartoon decorations, blasting
-
-![Malacca, Malaysia (2020) — photo 5](/assets/travelbig/malacca-malaysia-05.jpg)
-
-"Gangnam Style", "Let It Go", or that cloying call-me-señorita song at painfully high volumes. They are a terror to behold.
+Finally, Malacca is synonymous with bombastic, fever-inducing bicycle rickshaws. Glum men pedalling middle-aged Chinese tourists around on flashing contraptions covered with plushy cartoon decorations, blasting "Gangnam Style", "Let It Go", or that cloying call-me-señorita song at painfully high volumes. They are a terror to behold.
 
 ## Mumbai (2020)
 
@@ -1248,15 +1053,17 @@ Salaam Bombay! This post provides some assorted remarks on my visit to Mumbai, I
 
 Here is yours truly at the Gateway of India. It was completed in 1924 to commemorate the arrival of King George V, the first British monarch to visit India, in 1911. Originally a symbol of British conquest and power, it has now become perhaps the most famous tourist icon of Mumbai.
 
+![Gateway of India.](/assets/travelbig/mumbai-011.jpg)
+
 Oh my. The relentless photography touts! The pigeons! The postcard and fridge magnet sellers! And don't forget the useless security checkpoint that was installed after the 2008 Mumbai terror attacks. O save us, British Raj! Come back and rule/ransack again! (Or actually, don't.)
 
-The photos below include my snaps of Marine Drive on a thankfully-not-too-smoggy day, the opulent Taj Hotel (where I had to go through a security checkpoint to sit at the Starbucks there), the handsome Rajabai Clock Tower and the homely Mumbai Stock Exchange, and the stunning Chhatrapati Shivaji Maharaj Terminus during the day and at night --- undoubtedly the grandest train station building I've ever seen in my life.
+Mumbai, for me, is the Marine Drive on a thankfully-not-too-smoggy day, the opulent Taj Hotel (where I had to go through a security checkpoint to sit at the Starbucks there), the handsome Rajabai Clock Tower and the homely Mumbai Stock Exchange, and the stunning Chhatrapati Shivaji Maharaj Terminus during the day and at night --- undoubtedly the grandest train station building I've ever seen in my life.
 
 The old, austere British architecture of downtown Mumbai is wonderful to behold. That and how it contrasts with Mumbai's frenetic energy (I was told that if you can cross the streets in Mumbai you can cross any street in the world).
 
 "Indo-Saracenic" is the name of the architectural style. It's a fancy way of saying that the British architects who designed the power projection structures of the British Raj were partly inspired by local styles --- with a bias towards India's Islamic, as opposed to Hindu, aesthetic legacy (hence the dated term "Saracenic").
 
-And below is a video of a very quiet, very relaxing morning stroll I took down Mohammed Ali Road in South Mumbai:
+Mumbai, for me, is a very deafening stroll I took down Mohammed Ali Road in South Mumbai.
 
 But Mumbai can also be confronting for the uninitiated. I've seen plenty of rough stuff in India, but here it is starker. Homeless camps and small children in rags next to luxury cars. Some of the unhealthiest strays I've ever seen. Beggars on the streets, or outside hospitals and temples, with brutal disfigurements. The reality of this city thrills and, of course, the reality of this city also bites.
 
@@ -1276,13 +1083,12 @@ Bademiya --- an iconic kebab joint in South Mumbai. India is a legendary place t
 
 Speaking of food, Mumbai street food is a wonder. Friendly roadside vendors selling pure deliciousness for rock bottom prices? Yes, please. And not even once did I feel sick afterwards!
 
-Pictured below:
-
 ![Sev puri, a crispy deep-fried bread loaded with diced potatoes, onions, and chutneys.](/assets/travelbig/mumbai-01.jpg)
 
-*Sev puri, a crispy deep-fried bread loaded with diced potatoes, onions, and chutneys.*
-
-Pani puri, the same kind of bread but hollowed out and filled with flavoured water, chutney, chilli, and masala. Pav bhaji, a thick vegetable curry with cheap greasy bread rolls. Falooda, made of rose syrup, vermicelli, sweet milk; served with ice cream and other bits of decadence.
+Sev puri, a crispy deep-fried bread loaded with diced potatoes, onions, and chutneys. 
+Pani puri, the same kind of bread but hollowed out and filled with flavoured water, chutney, chilli, and masala. 
+Pav bhaji, a thick vegetable curry with cheap greasy bread rolls. 
+Falooda, made of rose syrup, vermicelli, sweet milk; served with ice cream and other bits of decadence.
 
 Don't sell yourself short and avoid all the street food in India! If it's a busy place, serving food out fast, and the stuff is fresh and vegetarian then I reckon your chances of avoiding the ol' 'Delhi belly' are good. But never forget it's still a game of chance. Caveat vorator! (Eater beware!)
 
@@ -1308,46 +1114,34 @@ Another filter coffee, please. I need another hit before catching my overnight t
 
 *Posted 6 September 2020*
 
-![The Egyptian Museum](/assets/travelbig/museums-of-cairo-01.jpg)
-
-*The Egyptian Museum*
-
 Behold! Objects from the Egyptian Museum, the Museum of Islamic Art, and the Coptic Museum in Cairo, Egypt's chaotic, bustling capital. I can't help it, I'm a museum junkie.
 
-The Egyptian Museum Holy smokes, this place is a mess. Often described as one of the most distinguished collections of antiquities in the world, this museum is the encapsulation of "quantity over quality". It is a sprawling warehouse of dusty, poorly labelled artefacts from across the absurd span of Ancient Egyptian history. Many of its treasures are genuinely wonderful to
+*The Egyptian Museum* 
 
-![Museums of Cairo (2020) — photo 2](/assets/travelbig/museums-of-cairo-02.jpg)
+![The Egyptian Museum](/assets/travelbig/museums-of-cairo-01.jpg)
 
-behold (Tutankhamun's room is a highlight, despite the guards constantly screaming at boomers to stop taking photos, and I thought the royal mummies were worth the extra ticket), but as soon as you venture beyond the main wings you'll find yourself lost amidst rundown display cabinets filled with scrolls, coffins, amulets, tablets, sarcophagi, jewellery, and the like.
+Holy smokes, this place is a mess. Often described as one of the most distinguished collections of antiquities in the world, this museum is the encapsulation of "quantity over quality". It is a sprawling warehouse of dusty, poorly labelled artefacts from across the absurd span of Ancient Egyptian history. Many of its treasures are genuinely wonderful to behold (Tutankhamun's room is a highlight, despite the guards constantly screaming at boomers to stop taking photos, and I thought the royal mummies were worth the extra ticket), but as soon as you venture beyond the main wings you'll find yourself lost amidst rundown display cabinets filled with scrolls, coffins, amulets, tablets, sarcophagi, jewellery, and the like.
 
 Good stamina is a must because if you aren't battling through the noisy tour groups, or navigating messy construction areas, you are trying to wrap your head around whether this or that relic is from the New Kingdom or the Third Intermediate or the Middle Kingdom --- or whether you actually care at all!
 
-![Museums of Cairo (2020) — photo 3](/assets/travelbig/museums-of-cairo-03.jpg)
-
 So what did I personally learn from this neglected stockroom? I learnt they were obsessed with symmetry, with flatness, with the serenity of the face. Power was everything and submission to it was everything else. Death constantly preyed on their minds, as did bounteous harvests and feasts of plenty. Before anyone else, they had mastered the art of shaping stone as though it was an afterthought. Their writing system was both sacred and a toil. Endurance was their one true god. Their entire civilisation was devoted to creating objects that would last a thousand dynasties. Even when they were ancient, they knew their ancestors were more ancient still.
-
-![Museums of Cairo (2020) — photo 4](/assets/travelbig/museums-of-cairo-04.jpg)
 
 Please note: the woeful state of the Egyptian Museum will hopefully not continue. A brand new archaeological museum is scheduled to open in Giza later this year and will, for all intents and purposes, replace the current site. So it's likely that I was one of the final 'seasons' of tourists to have faced the disastrous, old-school Cairo museum experience. Lucky me.
 
+*The Museum of Islamic Art*
+
 ![Museums of Cairo (2020) — photo 5](/assets/travelbig/museums-of-cairo-05.jpg)
 
-The Museum of Islamic Art According to the Wikipedia page, which was undoubtedly edited by someone working there, it is "considered one of the greatest in the world". Yeah, it's pretty great (although the Islamic Arts Museum Malaysia gives it a run for its money). It certainly made me want to see more Persian stuff. And I felt like I could've stared at some of those geometrical designs for hours on end.
-
-![Museums of Cairo (2020) — photo 6](/assets/travelbig/museums-of-cairo-06.jpg)
+According to the Wikipedia page, which was undoubtedly edited by someone working there, it is "considered one of the greatest in the world". Yeah, it's pretty great (although the Islamic Arts Museum Malaysia gives it a run for its money). It certainly made me want to see more Persian stuff. And I felt like I could've stared at some of those geometrical designs for hours on end.
 
 After visiting the Giza Pyramids and the Egyptian Museum, this place was an oasis. Clean, quiet, fascinating, and totally hassle-free. Best of all, I received a free guided tour by a Cairo University student who was volunteering at the museum for course credits.
 
-Check this one out, art history nerds. There were, like, no other visitors in the entire building. My guess is that the museum fell off everyone's radar after it was heavily damaged by a car bomb in 2014 that was targeting the Cairo police headquarters across the road, shutting the place down for a couple of years. But it's been completely renovated and
+Check this one out, art history nerds. There were, like, no other visitors in the entire building. My guess is that the museum fell off everyone's radar after it was heavily damaged by a car bomb in 2014 that was targeting the Cairo police headquarters across the road, shutting the place down for a couple of years. But it's been completely renovated and --- judging from the large numbers of heavily armed policemen in the locale --- in slightly safer airs at present
 
-![Museums of Cairo (2020) — photo 7](/assets/travelbig/museums-of-cairo-07.jpg)
-
---- judging from the large numbers of heavily armed policemen in the locale --- in slightly safer airs at present
+*The Coptic Museum*
 
 ![Museums of Cairo (2020) — photo 8](/assets/travelbig/museums-of-cairo-08.jpg)
 
-The Coptic Museum It's a "comfy" museum that showcases a cross-section of Egypt's Christian art across the centuries. Why do I say comfy? Because of how adorkable early Coptic paintings were. Not the most clever analysis, I know, but look at those big, childish eyes and bold, crayon-like streaks. I love it.
+It's a "comfy" museum that showcases a cross-section of Egypt's Christian art across the centuries. Why do I say comfy? Because of how adorkable early Coptic paintings were. Not the most clever analysis, I know, but look at those big, childish eyes and bold, crayon-like streaks. I love it.
 
-The most significant thing in the Coptic Museum is perhaps something that isn't a painting or a sculpture: the "Gnostic Gospels", a set of 4th-century manuscripts hidden in a clay pot that two Egyptian farmers accidentally found in 1945 while digging for fertiliser. You remember The Da Vinci Code, right? These manuscripts are where that novel got many of its kooky ideas from and where your weird New Age aunty probably got some of hers. They're full of the more fun, mystical, and esoteric ideas that early Christian sects developed before they got stamped out for heresy
-
-![Museums of Cairo (2020) — photo 9](/assets/travelbig/museums-of-cairo-09.jpg)
+The most significant thing in the Coptic Museum is perhaps something that isn't a painting or a sculpture: the "Gnostic Gospels", a set of 4th-century manuscripts hidden in a clay pot that two Egyptian farmers accidentally found in 1945 while digging for fertiliser. You remember The Da Vinci Code, right? These manuscripts are where that novel got many of its kooky ideas from and where your weird New Age aunty probably got some of hers. They're full of the more fun, mystical, and esoteric ideas that early Christian sects developed before they got stamped out for heresy.
