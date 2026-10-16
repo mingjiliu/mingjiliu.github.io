@@ -1,5 +1,5 @@
 ---
-title: "Travel posts, pre-2020"
+title: "Miscellaneous travel thoughts, pre-2020"
 date: 2019-12-18
 ---
 
