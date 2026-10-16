@@ -3,13 +3,13 @@ title: "Ming's Wanderings (complete set of posts)"
 date: 2023-09-30
 ---
 
-*Text from my old travel blog, [Ming's Wanderings](https://mingjiwanderings.weebly.com/){:target="_blank" rel="noopener"}, written between 2020 and 2023. Posts are ordered chronologically, most recent first. Original posting date is noted under each.*
+*Text from my old travel blog, [Ming's Wanderings](https://mingjiwanderings.weebly.com/){:target="_blank" rel="noopener"}, written between 2020 and 2023. Edited for clarity and for fun. Posts are ordered chronologically, most recent first. Original posting date is noted under each.*
 
 ## Glasgow (August 2023)
 
 *Posted 30 September 2023*
 
-What the heck am I doing in Glasgow?
+What the heck am I doing in Glasgow? I ate a spot of haggis, I rested in a cemetery, I got drunk at a Wetherspoons.
 
 ![Glasgow (August 2023) — photo 1](/assets/travelbig/glasgow-01.jpg)
 
@@ -17,7 +17,7 @@ What the heck am I doing in Glasgow?
 
 *Posted 10 June 2023*
 
-Just some pictures I took while I was resting up for a few days in the lakeside city of Pokhara after my tiring trek around the Annapurna Circuit. I ate pastries and drank hippie fruit juices, I stomped up to see the Peace Pagoda, I went to a short yoga retreat, and I thought and thought and thought about my life. And that's all folks!
+Resting up for a few days in the lakeside city of Pokhara after my tiring trek around the Annapurna Circuit. I ate pastries and drank hippie fruit juices, I stomped up to see the Peace Pagoda, I went to a short yoga retreat, and I thought and thought and thought about my life. And that's all folks!
 
 "I didn't expect it to be so touristy... and strange," admitted a person I was travelling with at the time. "It reminds me of Wanaka", she said, having lived there in New Zealand for a while. I had to calmly agree.
 
@@ -48,8 +48,6 @@ As with your Tulum tour, this tour ends with a visit to a cenote. This one is mo
 You end your days in the Yucatán Peninsula on the island of Cozumel. You drink cocktails, you scuba dive the coral reefs, and you bicycle up and down its lazy streets. Such pleasure. You think you are happy. You think your life is like a balloon, that your heart, your mind, your soul are like spheres of helium, sealed and secure and ascendant after such a successful journey to Mexico.
 
 But you don't realise that you are utterly mistaken. You don't realise that when you return to Australia your life is going to change forever. That you're going to break something both within and without. That things are never going to be the same again.
-
-![Yucatán Peninsula (November 2022) — photo 1](/assets/travelbig/yucatan-peninsula-01.jpg)
 
 ## Guanajuato (October 2022)
 
@@ -82,18 +80,11 @@ But O! Guanajuato, I do jest, how can I dislike you? It's the photographer's, th
 *Posted 13 August 2022*
 
 Van Diemen's Land. Battery point. Rising up on the same mattress in different years; cool and brisk and subdued as the haft-end of the earth ought to be.
-
-Here be gull, that be sea-star, this be fish conjoined to chip. Sun's been stretched, as is the blue, thin -- thin dashed -- -- like fading boat trails in the upper atmosphere.
-
+Here be gull, that be sea-star, this be fish conjoined to chip. Sun's been stretched, as is the blue, thin — — thin dashed — — like fading boat trails in the upper atmosphere.
 A market. A Saturday Salamanca in the heady, overpriced overcast. Clatter, oyster shell. Tremble, tarpaulin. A perfect landing; cleaner than beach stone.
-
 Cleaner than every footnote this land ever uttered, ever rasped or guttered. Look forward, land, march and march from colonies of blood. (forget, forget)
-
 Mount Wellington. A day hike, an aural hike of scramble and scritch and swish and snap, up kunanyi, struggle and up: scrunch hunch and crunch! Crunch!
-
-to end in sublime laziness, or decadence, with cheese atop the dolerite pipes, nipaluna -- with Hobart at my feet -- -- crisp and wide and longing like the spade-end of the world.
-
-![Hobart, Tasmania — photo 1](/assets/travelbig/hobart-tasmania-01.jpg)
+to end in sublime laziness, or decadence, with cheese atop the dolerite pipes, nipaluna — — with Hobart at my feet — — crisp and wide and longing like the spade-end of the world.
 
 ## MONA -- The Museum of Old and New Art
 
@@ -139,8 +130,6 @@ You should like art. You should like weird art. MONA has weird art. You should l
 
 ![Photos from my October and November 2022 trip to Mexico...](/assets/travelbig/museo-nacional-de-antropologia-01.jpg)
 
-*Photos from my October and November 2022 trip to Mexico...*
-
 Anthropology is cancelled! I hate it! I'm done. The Museo Nacional De Antropología was simply too huge to explore in a single day. Want to casually learn about the Aztecs, Mayans, and Olmecs (not to mention numerous other Mesoamerican civilisations) in a couple of hours?
 
 Forget it. Either your brain or your feet will break first. I was even openly relieved that half of the (very lovely) ethnography galleries dedicated to modern-day Mexican Indigenous groups were closed for renovation. Terrible, I know.
@@ -167,13 +156,17 @@ However, as I strolled around beautiful Puebla, I noticed tension in people's fa
 
 Stop it. Turn to something else. Here are some churchy snaps from Puebla.
 
+![Puebla and Cholula (2022) — photo 2](/assets/travelbig/puebla-and-cholula-02.jpg)
+
 Enough of sniffing out omens. I came to Puebla for its beautiful architecture, delectable cuisine, and inspired religious sights. In fact, I'm confident that no atheist under the holy light of the heavens enjoys visiting churches as much as I do!
 
 And the highlight of highlights of my ecclesiastical efforts was visiting the extraordinarily baroque and intricately gold-leafed Chapel of the Virgen del Rosario.
 
 But not even this decadence beyond decadence could hide it. Not even blemishless gold could gild over the fact that something felt off, however imperceptible. Something was disturbed.
 
-Hush now. Show some photos of Cholula.
+Hush now. Show a photo of Cholula.
+
+![Puebla and Cholula (2022) — photo 1](/assets/travelbig/puebla-and-cholula-01.jpg)
 
 Next to the city of Puebla (and, arguably, one could think of it as effectively part of Puebla) is the city of Cholula. It is best known for "Tlachihualtepetl", the Great Pyramid of Cholula, which --- though largely hidden by the hilltop --- is technically the largest pyramid by volume that exists on the planet. All this dead stone from a dead civilisation dedicated to a dead god. It certainly left a heaviness despite the loveliness of the weather. It left a shadow on the earth. Darkening and growing.
 
@@ -189,8 +182,6 @@ Here it is... on the dusty trail to a clearly signposted hell... Like the alcoho
 
 "Quiere usted la salvación de Méjico?" suddenly asked a radio from somewhere behind the bar. "Quiere usted que Cristo sea nuestro Rey?" "No."
 
-![Puebla and Cholula (2022) — photo 1](/assets/travelbig/puebla-and-cholula-01.jpg)
-
 ## San Miguel de Allende (2022)
 
 *Posted 1 January 2023*
@@ -201,19 +192,11 @@ Obligatory food note. While in the city, I enjoyed a very hearty chile relleno -
 
 Anyway, that's literally all I have on San Miguel de Allende! Nice to visit but glad I only stayed for a day.
 
-![El Mirador, giving a panoramic view of San Miguel de Allende.](/assets/travelbig/san-miguel-de-allende-01.jpg)
-
-*El Mirador, giving a panoramic view of San Miguel de Allende.*
+![A view of San Miguel de Allende.](/assets/travelbig/san-miguel-de-allende-01.jpg)
 
 ## The journey begins.
 
 *Posted 16 June 2020*
-
-And to kick off this blog, here are a few travel-related quotes from some of my favourite writers...
-
-![The journey begins. — photo 1](/assets/travelbig/the-journey-begins-01.jpg)
-
-*******
 
 Why was I travelling? To look, to walk around, to ask, to listen, to sniff, to think, to write. --- Ryszard Kapuscinsk
 
@@ -226,8 +209,6 @@ joining the throng of sparrows a little wren --- Kobayashi Issa
 ![Aswan, Egypt](/assets/travelbig/the-journey-begins-03.jpg)
 
 *Aswan, Egypt*
-
-![The journey begins. — photo 4](/assets/travelbig/the-journey-begins-04.jpg)
 
 My father held tight to my hand as if he were afraid that I would slip away. In fact I had the wish to leave him, run, move, cross the street, be struck by the brilliant scales of the sea. At that tremendous moment, full of light and sound, I pretended I was alone in the newness of the city, new myself with all life ahead, exposed to the mutable fury of things but surely triumphant... --- Elena Ferrante
 
@@ -248,22 +229,12 @@ When they make the circle wide, it's time to swim out on your own and fill the e
 *Tainan City, Taiwan*
 
 I went to China, I went to Prague; I died, and was born in the spring; I found you, and loved you, again.
-
-![The journey begins. — photo 8](/assets/travelbig/the-journey-begins-08.jpg)
-
 Later the darkness fell and the solid moon like a white pond rose. But I wasn't in any hurry.
-
 Likely I visited all the shimmering, heart-stabbing questions without answers before I climbed down. --- Mary Oliver
-
-![Forward>>](/assets/travelbig/the-journey-begins-09.jpg)
-
-*Forward>>*
 
 ## Agra (2020)
 
 *Posted 8 November 2020*
-
-![Agra (2020) — photo 1](/assets/travelbig/agra-01.jpg)
 
 ### The Taj Mahal and so much more
 
@@ -277,35 +248,27 @@ Practically every travel guide recommends that you don't stay in Agra for too lo
 
 I never thought I'd say this... but thank you Uzbekistan. If you had not created the warrior chieftain who ravaged his way across the Indian subcontinent in the 1500s and founded the Mughal Dynasty, where else would we get cool things like Agra Fort?
 
-![Agra (2020) — photo 2](/assets/travelbig/agra-02.jpg)
-
 It is a mighty walled compound built from red sandstone over earlier forts by none other than Akbar the Great. "It's a trap!" his enemies may or may not have said when Akbar's forces ambushed them. Anyway, the fort was a pleasure to explore, both at a macro and micro level. Huge stonking walls. Intricate Indo-Persian floral designs.
 
-![Agra (2020) — photo 3](/assets/travelbig/agra-03.jpg)
-
 Significant parts of it are unfortunately inaccessible or in ruins. But you can't blame just the British for its desolation (although they did their fair share). Other powers like the Marathas also had a good crack. And the Mughals themselves did some destructive renovation. Akbar's grandson, Shah Jahan (of Taj Mahal fame), replaced many of his grandfather's opulent buildings with his own marble creations. Other than his late wife, the emperor's greatest love was marble. He probably would've paved the whole world with it if given the chance.
-
-![Agra (2020) — photo 4](/assets/travelbig/agra-04.jpg)
 
 Looking out across the bend of the Yamuna River from atop Agra Fort, you realise just how insanely huge the Taj Mahal is. It appears otherworldly in a way photos can't quite capture. A spectral wonder looming over smoggy gardens and pastoral land. And I'm not kidding about the last part --- you can see small herds of cows grazing away on the riverbank directly opposite the Taj. It's certainly a contrast.
 
 P.S. All the punks who graffitied this city's historical monuments deserve to be thrown off Agra Fort's bastions into its (empty, waterless) moat below. Disgraceful!
 
+![Agra (2020) — photo 1](/assets/travelbig/agra-01.jpg)
+
 ### Taj Mahal
 
 It is genuinely spectacular. Of course I gasped! Of course I sighed! It is a world wonder that Indians have every right to be proud of. On the advice of a friend, I went at midday after the fog had lifted and found the crowds surprisingly manageable.
 
-![Agra (2020) — photo 5](/assets/travelbig/agra-05.jpg)
-
 The Taj is an architectural titan that dwarfs everything before it. Dear I say it, perhaps it's too frighteningly huge to be a tasteful display of the Padishah's eternal love for his deceased wife? "No one can compete with the magnificence of my feelings!" the Taj Mahal proclaims. I think it stumbles into the same problem as Michelangelo's David --- it turns vulnerable human experiences that should humble and unite us into Goliath-on-a-pedestal.
-
-![Agra (2020) — photo 6](/assets/travelbig/agra-06.jpg)
 
 And now quickly moving away from rank amateur art criticism to amateur tourist criticism... While in the inner mausoleum, I couldn't help but notice that some visitors were placing money in front of the tombs of Shah Jahan and Mumtaz Mahal. A bit weird due to the whole 'no idolatry' in Islam thing, as well as the fact that what tourists get to see is only their false tombs.
 
-![Agra (2020) — photo 7](/assets/travelbig/agra-07.jpg)
-
 Lastly, I'd like to share my favourite Taj-related story. As is to be expected, people project whatever they want onto the Taj Mahal. In 1994, Chanel landed in hot water with the Muslim community after one of their fashion designers created a low-cut dress with Arabic written on it. Turns out what he thought were lines from a love poem inspired by the Taj Mahal were, in fact, Koranic verses. Whoops. Apologies were made, the press dubbed the incident the "Satanic Breasts", and the dresses were subsequently burnt.
+
+![Agra (2020) — photo 7](/assets/travelbig/agra-07.jpg)
 
 ### Itimad-ud-daulah
 
@@ -313,21 +276,17 @@ And if Agra Fort is the appetiser and the Taj Mahal is the main course, might I 
 
 It's a gorgeous and relatively small structure from the 1600s, housing the tomb of an important Persian official to the Mughal Empire. Walled with white marble and encrusted with semi-precious stones, it's often considered a prototype for the Taj. To quote a better writer than me: "The Mughals began like titans and finished like jewellers."
 
-![Agra (2020) — photo 8](/assets/travelbig/agra-08.jpg)
-
 Now, you may be wondering why the Mughals built so many nice tombs. Luckily, I have an answer for you: It's all to do with economics!
 
 Alex Tabarrok, economist and co-author of the Marginal Revolution "...the Mughal Emperor didn't blog, wrote a wonderful piece on this topic: give perpetual grants of land. On death, all land that had been granted to the noble reverted back to the Emperor, effectively a 100% estate tax... Since land could not be handed down to the next generation, there was very little incentive for the Mughal nobility to build palaces or the kind of ancestral homes that are common in Europe. The one exception to the rule, however, was for tombs. Tombs would not revert back to the Emperor. Hence the many Mughal tombs" .
 
 So there you go. Tax economics. Hope you're satisfied.
 
+![Agra (2020) — photo 8](/assets/travelbig/agra-08.jpg)
+
 ### Some final observations
 
-PETHA: A kind of semi-translucent soft candy made from sugar, sugar, and even more sugar. Agra's signature dessert. I'm sorry to report that I
-
-![Agra (2020) — photo 9](/assets/travelbig/agra-09.jpg)
-
-didn't enjoy it. It's the only Indian sweet I've had so far where this has been the case. Like eating the offspring of a moist sugar cube and a lump of gelatine.
+PETHA: A kind of semi-translucent soft candy made from sugar, sugar, and even more sugar. Agra's signature dessert. I'm sorry to report that I didn't enjoy it. It's the only Indian sweet I've had so far where this has been the case. Like eating the offspring of a moist sugar cube and a lump of gelatin.
 
 JAMA MASJID: Battled my way through a very crowded, very dirty, very impoverished market to reach one of the largest and most visually striking mosques in India (pictured). At the masjid, a random kid ran up to me and demanded twenty rupees for 'looking after' my shoes. But he did help me with my pronunciation of "as-salamu alaykum" so maybe it was a fair exchange...?
 
@@ -335,17 +294,9 @@ SHEROES HANGOUT: Visited Sheroes Hangout, a famous cafe in Agra staffed by femal
 
 DOG ATTACK: That's right. I got chased by a fucking dog when I walked down the wrong alleyway towards a historical monument. I'm told this is a quintessential Indian experience. Can't recommend it though. I swore like a lunatic and bolted into the middle of a busy road. If the dog had bitten me, that would have almost certainly ended my trip. Rabies injections over multiple days don't sound like my idea of fun. And this was on the same day I went to the Taj Mahal! This goddamn country, man. Extreme highs followed by extreme lows, hour by hour.
 
-![The back end of Jama Masjid](/assets/travelbig/agra-10.jpg)
-
-*The back end of Jama Masjid*
-
 ## Amritsar, Punjab (2020)
 
 *Posted 2 May 2021*
-
-![The Harmandir Sahib, the 'abode of God'](/assets/travelbig/amritsar-punjab-01.jpg)
-
-*The Harmandir Sahib, the 'abode of God'*
 
 At last, after two months of travelling across India, I arrived with great anticipation in the city of Amritsar, in the northern state of Punjab. I was very, very excited to be here for a number of reasons, as you'll soon see why.
 
@@ -373,11 +324,7 @@ Is it the best meal I've had in India? Probably not. But it is certainly one of 
 
 A weird border ceremony...
 
-Amritsar is also close to the India-Pakistan border where it is possible to witness something truly bizarre: the Wagah-Attari border ceremony. If
-
-![Amritsar, Punjab (2020) — photo 4](/assets/travelbig/amritsar-punjab-04.jpg)
-
-there was one good thing that came out of the 1947 Partition of India (hint: there wasn't) then it's this.
+Amritsar is also close to the India-Pakistan border where it is possible to witness something truly bizarre: the Wagah-Attari border ceremony. If there was one good thing that came out of the 1947 Partition of India (hint: there wasn't) then it's this.
 
 What should be a straightforward daily flag-lowering ceremony conducted by the border security forces of India and Pakistan, performed to mark the evening closure of one of the few land border crossings between the two rival nations, is instead transformed into a sublimely surreal, hyper-choreographed dance contest. Both sides pick their tallest (and most immaculately facial haired) soldiers, make them don peacock tail-like hats, and have them stomp as hard and kick as high as they can against each other.
 
@@ -391,7 +338,7 @@ Some more snaps of Amritsar...
 
 The most shocking thing about it is that the city centre around the Golden Temple is a modern pedestrian mall. As in a clean pedestrian zone with storefronts and everything. In India. No mopeds or rogue trucks or half-dug up streets or cows chewing out of rubbish piles. I couldn't believe it!
 
-The other photos are of the very lovely Durgiana Temple, a Hindu temple dedicated to the warrior form of the goddess Parvati, which was deliberately built in the style of the Sikh Golden Temple. Some nice inter-faith architectural homagery going on there.
+The other photo is of the very lovely Durgiana Temple, a Hindu temple dedicated to the warrior form of the goddess Parvati, which was deliberately built in the style of the Sikh Golden Temple. Some nice inter-faith architectural homagery going on there.
 
 ![Amritsar, Punjab (2020) — photo 6](/assets/travelbig/amritsar-punjab-06.jpg)
 
@@ -399,23 +346,17 @@ Now for some less pleasant remarks...
 
 Amritsar is also a town bedevilled by tragedy. It was (and very much remains) at the frontlines of the disastrous 1947 partition of India. It's also the site of the 1919 Jallianwala Bagh massacre, where troops under the command of a British officer fired on unarmed protestors, killing hundreds. But while both these incidents get considerable attention in Amritsar (with memorials and museums and whatnot), there is one event that has received little publicly visible acknowledgement here and, due to its political sensitivity, potentially never will. I saw some poorly translated and deliberately obfuscating references to it on some signs in the Golden Temple and that was about it.
 
-![Amritsar, Punjab (2020) — photo 7](/assets/travelbig/amritsar-punjab-07.jpg)
-
 I am referring, of course, to Operation Blue Star. This was a highly controversial 1984 military operation launched by Prime Minister Indira Gandhi to root out Sikh militants holed up in the Golden Temple. The temple was heavily damaged, scores of civilians were killed, and it led to Indira Gandhi's assassination at the hands of her own Sikh bodyguards. Anti-Sikh riots ensued throughout the country afterwards. All in all, it was a hellish moment in recent history that took place at one of the most beautiful and extraordinary holy spaces in India.
-
-Next post: something much happier.
 
 ## Ankara (2020)
 
 *Posted 22 October 2020*
 
-![Ankara (2020) — photo 1](/assets/travelbig/ankara-01.jpg)
-
 Anıtkabir. The mausoleum of Mustafa Kemal Atatürk, the founder of the modern Turkish Republic, at the capital city of Ankara. To say that he is revered by some is an understatement. He is (as his honorary surname spells out) the "Father of Turks", the revolutionary moderniser, and the nation's defender during the Gallipoli campaign. And having lived under the secular state cult of the Anzac narrative in both New Zealand and Australia, I begrudgingly felt I had to visit his final resting place.
 
-I didn't plan on being in Ankara, of course. But the growing pandemic panic made it a convenient place to bail out of the country (and just in time, too --- I managed to catch a flight to London the day before Turkey suspended all air routes with the UK).
-
 ![Ankara (2020) — photo 2](/assets/travelbig/ankara-02.jpg)
+
+I didn't plan on being in Ankara, of course. But the growing pandemic panic made it a convenient place to bail out of the country (and just in time, too --- I managed to catch a flight to London the day before Turkey suspended all air routes with the UK).
 
 So what did I think of Ankara? Hmm. I'd call my brief time there troubled, icy, and educational. Troubled because I spent much of it holed up in my hostel, chain drinking instant coffee and bumming smokes, letting the hourly news updates fuel my anxiety. Icy because I was acutely aware that the panic that had seized continental Europe had finally washed over Turkey (I even had trouble checking into my room due to virus fears). And educational because, in between the conspiratorial mutterings about COVID-19 and doubts around the Turkish government's official infection numbers, I was privy to lengthy discussions among the hostel guests about the legacy of Kemalism, the current political and economic health of Turkey, and the impact and infamy of the Erdogan regime.
 
@@ -425,13 +366,9 @@ Being able to listen to all this seemed like a... strange privilege? It's not of
 
 *Posted 1 January 2021*
 
-![Aswan (2020) — photo 1](/assets/travelbig/aswan-01.jpg)
-
 ### Life on the Nile...
 
 When I was in Egypt at the start of 2020, I was exclusively travelling by train up and down the course of the Nile. The view out the window is, at times, utterly striking. From one side, you can see rich agricultural lands, palm-lined islands, lazy feluccas on the water, and dense urban development. From the other, all you see is uninhabitable desolation. Egypt is a country beset on all sides by wastelands, desperately hugging a single, riverine lifeline. Banks of prosperity sharply demarcated by arid nothingness, with no gradients between the two. This is a country that stuns you with the notion of geography as destiny.
-
-![Aswan (2020) — photo 2](/assets/travelbig/aswan-02.jpg)
 
 The train took me to Aswan --- a small, laid-back city in the deep south of Egypt. Some of my best days in Egypt was spent here. I joined a group of couch surfers and their hosts in Aswan to go swimming in the Nile, followed up by a gorgeous sunset view from atop a desert escarpment.
 
