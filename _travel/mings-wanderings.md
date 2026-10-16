@@ -23,8 +23,6 @@ Resting up for a few days in the lakeside city of Pokhara after my tiring trek a
 
 "I didn't expect it to be so touristy... and strange," admitted a person I was travelling with at the time. "It reminds me of Wanaka", she said, having lived there in New Zealand for a while. I had to calmly agree.
 
-![Pokhara (April, 2023) — photo 1](/assets/travelbig/pokhara-01.jpg)
-
 ## Yucatán Peninsula (November 2022)
 
 *Posted 7 March 2023*
@@ -82,10 +80,15 @@ But O! Guanajuato, I do jest, how can I dislike you? It's the photographer's, th
 *Posted 13 August 2022*
 
 Van Diemen's Land. Battery point. Rising up on the same mattress in different years; cool and brisk and subdued as the haft-end of the earth ought to be.
+
 Here be gull, that be sea-star, this be fish conjoined to chip. Sun's been stretched, as is the blue, thin — — thin dashed — — like fading boat trails in the upper atmosphere.
+
 A market. A Saturday Salamanca in the heady, overpriced overcast. Clatter, oyster shell. Tremble, tarpaulin. A perfect landing; cleaner than beach stone.
+
 Cleaner than every footnote this land ever uttered, ever rasped or guttered. Look forward, land, march and march from colonies of blood. (forget, forget)
+
 Mount Wellington. A day hike, an aural hike of scramble and scritch and swish and snap, up kunanyi, struggle and up: scrunch hunch and crunch! Crunch!
+
 to end in sublime laziness, or decadence, with cheese atop the dolerite pipes, nipaluna — — with Hobart at my feet — — crisp and wide and longing like the spade-end of the world.
 
 ## MONA -- The Museum of Old and New Art
@@ -100,7 +103,7 @@ I like art. I like weird art. MONA has weird art. I like MONA.
 
 MONA is in Hobart. Hobart is in Tasmania. Tasmania is in Australia. They have gambling in Australia. Some people made lots of money by gambling. David Walsh made lots of money by gambling. David Walsh is from Hobart in Tasmania. David Walsh used his money to make MONA in Hobart in Tasmania.
 
-You can take a ferry to get to MONA. You can sit on sheep on the ferry. Sheep are called Ovis aries. There are lots of pretty views on the way there. You can have a wine on the ferry. I had an overpriced glass of wine. Wine comes from the flowering plant genus Vitis .
+You can take a ferry to get to MONA. You can sit on sheep on the ferry. Sheep are called Ovis aries. There are lots of pretty views on the way there. You can have a wine on the ferry. I had an overpriced glass of wine. Wine comes from the flowering plant genus Vitis.
 
 I saw a travelling exhibition on my first visit. The travelling exhibit showcased outsider art. Outsider art is sometimes called It is made by outsider artists. Outsider artists are self-taught. They are outside the art brut. conventional art world. They just want to make art. Outsider art can sometimes be fantastic.
 
@@ -204,31 +207,31 @@ Why was I travelling? To look, to walk around, to ask, to listen, to sniff, to t
 
 ![Kyoto, Japan](/assets/travelbig/the-journey-begins-02.jpg)
 
-*Kyoto, Japan*
+<small>*Kyoto, Japan*<small>
 
 joining the throng of sparrows a little wren --- Kobayashi Issa
 
 ![Aswan, Egypt](/assets/travelbig/the-journey-begins-03.jpg)
 
-*Aswan, Egypt*
+<small>*Aswan, Egypt*<small>
 
 My father held tight to my hand as if he were afraid that I would slip away. In fact I had the wish to leave him, run, move, cross the street, be struck by the brilliant scales of the sea. At that tremendous moment, full of light and sound, I pretended I was alone in the newness of the city, new myself with all life ahead, exposed to the mutable fury of things but surely triumphant... --- Elena Ferrante
 
 ![Mumbai, India](/assets/travelbig/the-journey-begins-05.jpg)
 
-*Mumbai, India*
+<small>*Mumbai, India*<small>
 
 There open up, deep inside a city, reflected streets, streets which are doubles, make believe streets. One's imagination, bewitched and misled, create illusory maps of the apparently familiar districts, maps in which streets have their proper places and usual names but are provided with new and fictitious configurations by the inexhaustible inventiveness of the night. --- Bruno Schultz
 
 ![Darwin, Australia](/assets/travelbig/the-journey-begins-06.jpg)
 
-*Darwin, Australia*
+<small>*Darwin, Australia*<small>
 
 When they make the circle wide, it's time to swim out on your own and fill the element with signatures on your own frequency, echo soundings, searches, probes, allurements, elver-gleams in the dark of the whole sea. --- Seamus Heaney
 
 ![Tainan City, Taiwan](/assets/travelbig/the-journey-begins-07.jpg)
 
-*Tainan City, Taiwan*
+<small>*Tainan City, Taiwan*<small>
 
 I went to China, I went to Prague; I died, and was born in the spring; I found you, and loved you, again.
 Later the darkness fell and the solid moon like a white pond rose. But I wasn't in any hurry.
