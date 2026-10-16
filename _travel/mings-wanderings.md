@@ -59,7 +59,7 @@ I mean... just look at this town! It's genuinely a gorgeous place and vastly sup
 
 I didn't know until I arrived, but the town was hosting a festival dedicated to Cervantes (the 'Don Quixote' guy). There were musicians everywhere and at night the local university students dressed up in traditional outfits and stomped around the back alleys playing regional folk songs as part of a walking tour. It was dreamy.
 
-Obligatory food notes!
+### Obligatory food notes!
 
 Enchiladas mineras. Guanajuato's answer to enchiladas. Hearty, protein-packed and carb-rich fuel for real men after a hard day down in the mines (which is its actual traditional origins). Verdict: I dig it. No pun intended. Gordita. Masa stuffed with anything you want, really. Mexican street food at its most primal. Verdict: it means "chubby" in Spanish. Heh. Tacos al vapor. Oily, steamed tacos. Verdict: worth a try, but I prefer regular tacos and regular food poisoning risks. Chilaquiles. Scraps of fried corn tortillas in sloppy sauce. Verdict: good for hangovers, jet lag, and general late morning hunger pangs. At least, that's what a friend told me. Guacamaya. An epic torta from Léon composed of pork rinds, avocado, and very spicy salsa. Verdict: loved it, hurt my mouth to eat it, loved it. I also, on a whim, strolled into a hole-in-the-wall cantina that exclusively served the local hombres. I drank beer, some sort of tequila-like liquid out of a plastic jug, spoke bad Spanish, and witnessed a man peeing into a urinal that was in the corner. It was a wild experience.
 
@@ -79,17 +79,35 @@ But O! Guanajuato, I do jest, how can I dislike you? It's the photographer's, th
 
 *Posted 13 August 2022*
 
-Van Diemen's Land. Battery point. Rising up on the same mattress in different years; cool and brisk and subdued as the haft-end of the earth ought to be.
+Van Diemen's Land. Battery point. <br>
+Rising up on the same mattress in different years; <br>
+cool and brisk and subdued <br>
+as the haft-end of the earth ought to be.
 
-Here be gull, that be sea-star, this be fish conjoined to chip. Sun's been stretched, as is the blue, thin — — thin dashed — — like fading boat trails in the upper atmosphere.
+Here be gull, that be sea-star, <br>
+this be fish conjoined to chip. <br>
+Sun's been stretched, as is the blue, <br>
+thin — — thin dashed — — like fading boat trails in the upper atmosphere.
 
-A market. A Saturday Salamanca in the heady, overpriced overcast. Clatter, oyster shell. Tremble, tarpaulin. A perfect landing; cleaner than beach stone.
+A market. A Saturday Salamanca in the heady, overpriced overcast. <br>
+Clatter, oyster shell. Tremble, tarpaulin. <br>
+A perfect landing; <br>
+cleaner than beach stone.
 
-Cleaner than every footnote this land ever uttered, ever rasped or guttered. Look forward, land, march and march from colonies of blood. (forget, forget)
+Cleaner than every footnote this land ever uttered, <br>
+ever rasped or guttered. <br>
+Look forward, land, <br>
+march and march from colonies of blood. (forget, forget)
 
-Mount Wellington. A day hike, an aural hike of scramble and scritch and swish and snap, up kunanyi, struggle and up: scrunch hunch and crunch! Crunch!
+Mount Wellington. A day hike, <br>
+an aural hike of scramble and scritch and swish and snap, <br>
+up kunanyi, struggle and up: <br>
+scrunch hunch and crunch! Crunch!
 
-to end in sublime laziness, or decadence, with cheese atop the dolerite pipes, nipaluna — — with Hobart at my feet — — crisp and wide and longing like the spade-end of the world.
+to end in sublime laziness, or decadence, <br>
+with cheese atop the dolerite pipes, <br>
+nipaluna — — with Hobart at my feet — — <br>
+crisp and wide and longing like the spade-end of the world.
 
 ## MONA -- The Museum of Old and New Art
 
@@ -185,7 +203,7 @@ And lastly. A cold vision on my personal Day of the Dead.
 
 Here it is... on the dusty trail to a clearly signposted hell... Like the alcoholic British consul in Malcolm Lowry's novel 'Under the Volcano', I too can sense the weight of Popocatépetl. I stand at the Iglesia de Nuestra Señora de los Remedios parish church in Cholula on the morning of November 2nd. There is a touch of sadness on my forehead. An unidentifiable grief shivers through me. Am I standing on the edge of something terrible? But unlike Lowry's protagonist, no one is willing to save me. And even if someone did come, I would refuse it.
 
-"Quiere usted la salvación de Méjico?" suddenly asked a radio from somewhere behind the bar. "Quiere usted que Cristo sea nuestro Rey?" "No."
+> "Quiere usted la salvación de Méjico?" suddenly asked a radio from somewhere behind the bar. "Quiere usted que Cristo sea nuestro Rey?" "No."
 
 ## San Miguel de Allende (2022)
 
@@ -203,39 +221,64 @@ Anyway, that's literally all I have on San Miguel de Allende! Nice to visit but 
 
 *Posted 16 June 2020*
 
-Why was I travelling? To look, to walk around, to ask, to listen, to sniff, to think, to write. --- Ryszard Kapuscinsk
+> Why was I travelling? To look, to walk around, to ask, to listen, to sniff, to think, to write.
+> 
+> --- Ryszard Kapuscinsk
 
 ![Kyoto, Japan](/assets/travelbig/the-journey-begins-02.jpg)
 
 <small>*Kyoto, Japan*<small>
 
-joining the throng of sparrows a little wren --- Kobayashi Issa
+> joining the throng of sparrows
+> a little wren
+> 
+> --- Kobayashi Issa
 
 ![Aswan, Egypt](/assets/travelbig/the-journey-begins-03.jpg)
 
 <small>*Aswan, Egypt*<small>
 
-My father held tight to my hand as if he were afraid that I would slip away. In fact I had the wish to leave him, run, move, cross the street, be struck by the brilliant scales of the sea. At that tremendous moment, full of light and sound, I pretended I was alone in the newness of the city, new myself with all life ahead, exposed to the mutable fury of things but surely triumphant... --- Elena Ferrante
+> My father held tight to my hand as if he were afraid that I would slip away. In fact I had the wish to leave him, run, move, cross the street, be struck by the brilliant scales of the sea. At that tremendous moment, full of light and sound, I pretended I was alone in the newness of the city, new myself with all life ahead, exposed to the mutable fury of things but surely triumphant...
+> 
+> --- Elena Ferrante
 
 ![Mumbai, India](/assets/travelbig/the-journey-begins-05.jpg)
 
 <small>*Mumbai, India*<small>
 
-There open up, deep inside a city, reflected streets, streets which are doubles, make believe streets. One's imagination, bewitched and misled, create illusory maps of the apparently familiar districts, maps in which streets have their proper places and usual names but are provided with new and fictitious configurations by the inexhaustible inventiveness of the night. --- Bruno Schultz
+> There open up, deep inside a city, reflected streets, streets which are doubles, make believe streets. One's imagination, bewitched and misled, create illusory maps of the apparently familiar districts, maps in which streets have their proper places and usual names but are provided with new and fictitious configurations by the inexhaustible inventiveness of the night.
+> 
+> --- Bruno Schultz
 
 ![Darwin, Australia](/assets/travelbig/the-journey-begins-06.jpg)
 
 <small>*Darwin, Australia*<small>
 
-When they make the circle wide, it's time to swim out on your own and fill the element with signatures on your own frequency, echo soundings, searches, probes, allurements, elver-gleams in the dark of the whole sea. --- Seamus Heaney
+> When they make the circle wide, it's time to swim
+> out on your own and fill the element
+> with signatures on your own frequency,
+> echo soundings, searches, probes, allurements,
+> elver-gleams in the dark of the whole sea.
+> 
+> --- Seamus Heaney
 
 ![Tainan City, Taiwan](/assets/travelbig/the-journey-begins-07.jpg)
 
 <small>*Tainan City, Taiwan*<small>
 
-I went to China, I went to Prague; I died, and was born in the spring; I found you, and loved you, again.
-Later the darkness fell and the solid moon like a white pond rose. But I wasn't in any hurry.
-Likely I visited all the shimmering, heart-stabbing questions without answers before I climbed down. --- Mary Oliver
+> I went to China,
+> I went to Prague;
+> I died, and was born in the spring;
+> I found you, and loved you, again.
+> Later the darkness fell
+> and the solid moon
+> like a white pond rose.
+> But I wasn't in any hurry.
+> Likely I visited all the shimmering, heart-stabbing
+> questions without answers
+> before I climbed down.
+> 
+> --- Mary Oliver
 
 ## Agra (2020)
 
