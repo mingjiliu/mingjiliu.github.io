@@ -59,9 +59,18 @@ I mean... just look at this town! It's genuinely a gorgeous place and vastly sup
 
 I didn't know until I arrived, but the town was hosting a festival dedicated to Cervantes (the 'Don Quixote' guy). There were musicians everywhere and at night the local university students dressed up in traditional outfits and stomped around the back alleys playing regional folk songs as part of a walking tour. It was dreamy.
 
+![Guanajuato (October 2022) — photo 1](/assets/travelbig/guanajuato-01.jpg)
+
 ### Obligatory food notes!
 
-Enchiladas mineras. Guanajuato's answer to enchiladas. Hearty, protein-packed and carb-rich fuel for real men after a hard day down in the mines (which is its actual traditional origins). Verdict: I dig it. No pun intended. Gordita. Masa stuffed with anything you want, really. Mexican street food at its most primal. Verdict: it means "chubby" in Spanish. Heh. Tacos al vapor. Oily, steamed tacos. Verdict: worth a try, but I prefer regular tacos and regular food poisoning risks. Chilaquiles. Scraps of fried corn tortillas in sloppy sauce. Verdict: good for hangovers, jet lag, and general late morning hunger pangs. At least, that's what a friend told me. Guacamaya. An epic torta from Léon composed of pork rinds, avocado, and very spicy salsa. Verdict: loved it, hurt my mouth to eat it, loved it. I also, on a whim, strolled into a hole-in-the-wall cantina that exclusively served the local hombres. I drank beer, some sort of tequila-like liquid out of a plastic jug, spoke bad Spanish, and witnessed a man peeing into a urinal that was in the corner. It was a wild experience.
+- Enchiladas mineras. Guanajuato's answer to enchiladas. Hearty, protein-packed and carb-rich fuel for real men after a hard day down in the mines (which is its actual traditional origins). Verdict: I dig it. No pun intended.
+- Gordita. Masa stuffed with anything you want, really. Mexican street food at its most primal. Verdict: it means "chubby" in Spanish. Heh.
+- Tacos al vapor. Oily, steamed tacos. Verdict: worth a try, but I prefer regular tacos and regular food poisoning risks.
+- Chilaquiles. Scraps of fried corn tortillas in sloppy sauce. Verdict: good for hangovers, jet lag, and general late morning hunger pangs. At least, that's what a friend told me.
+- Guacamaya. An epic torta from Léon composed of pork rinds, avocado, and very spicy salsa. Verdict: loved it, hurt my mouth to eat it, loved it.
+- I also, on a whim, strolled into a hole-in-the-wall cantina that exclusively served the local hombres. I drank beer, some sort of tequila-like liquid out of a plastic jug, spoke bad Spanish, and witnessed a man peeing into a urinal that was in the corner. It was a wild experience.
+
+### Momento mori
 
 One of the highlights of Guanajuato is the mummy museum. It contains corpses that were removed from the local cemetery because their families couldn't keep up with the graveyard rent. And since the local climate preserved their bodies so well, their final resting place ended up being a glass cabinet for morbid visitors like yours truly. They even had a mummified foetus and a woman who had been accidentally buried alive. Grisly stuff.
 
@@ -72,8 +81,6 @@ The takeaway? Momento mori, I guess. Recall that even Caesar, during his triumph
 There was one thing I didn't like about Guanajuato, mind you. Bloody church bells booming away at seven in the morning. Many communities in Latin America are turning away from their Catholic roots towards evangelical Christianity and this will likely result in all shades of societal and economic disruptions. But all I care about is the following --- will this demographic trend stop the damn bells?
 
 But O! Guanajuato, I do jest, how can I dislike you? It's the photographer's, the roamer's, el explorador's dream...
-
-![Guanajuato (October 2022) — photo 1](/assets/travelbig/guanajuato-01.jpg)
 
 ## Hobart, Tasmania
 
@@ -195,9 +202,11 @@ Next to the city of Puebla (and, arguably, one could think of it as effectively 
 
 No. Ignore the portent. Write some obligatory food notes:
 
-Pan de Muertos: A sweet bread made specifically for Day of the Dead. You've seen the damn Pixar movie. Verdict: Great for those on the Other Side. And for those with a crippling sweet tooth on This Side. Mole poblano: A thick, spicy, and only mildly sweet chile and chocolate sauce. A Puebla specialty. Verdict: The greatest. I'll never see chocolate on savoury the same way ever again.
-
-Pasita: Another Puebla specialty. A raisin liqueur shot with a bit of cheese dunked in it (yes, cheese). Verdict: Touristy as fuck. Nevertheless, the liqueur is quality medicine. Various Puebla sweets: Made from sweet potato, condensed milk, and various dentist-unfriendly ingredients. Verdict: Above average. In my mind, Indian confectionery remains king! But don't trust me. I'm a degenerate. I'll chew sugar cubes if nobody's watching. Chapulines: Spiced and roasted grasshoppers! Verdict: While I wholeheartedly endorse entomophagy, these didn't taste of much.
+- Pan de Muertos: A sweet bread made specifically for Day of the Dead. You've seen the damn Pixar movie. Verdict: Great for those on the Other Side. And for those with a crippling sweet tooth on This Side.
+- Mole poblano: A thick, spicy, and only mildly sweet chile and chocolate sauce. A Puebla specialty. Verdict: The greatest. I'll never see chocolate on savoury the same way ever again.
+- Pasita: Another Puebla specialty. A raisin liqueur shot with a bit of cheese dunked in it (yes, cheese). Verdict: Touristy as fuck. Nevertheless, the liqueur is quality medicine.
+- Various Puebla sweets: Made from sweet potato, condensed milk, and various dentist-unfriendly ingredients. Verdict: Above average. In my mind, Indian confectionery remains king! But don't trust me. I'm a degenerate. I'll chew sugar cubes if nobody's watching.
+- Chapulines: Spiced and roasted grasshoppers! Verdict: While I wholeheartedly endorse entomophagy, these didn't taste of much.
 
 And lastly. A cold vision on my personal Day of the Dead.
 
@@ -1105,7 +1114,7 @@ Salaam Bombay! This post provides some assorted remarks on my visit to Mumbai, I
 
 Here is yours truly at the Gateway of India. It was completed in 1924 to commemorate the arrival of King George V, the first British monarch to visit India, in 1911. Originally a symbol of British conquest and power, it has now become perhaps the most famous tourist icon of Mumbai.
 
-![Gateway of India.](/assets/travelbig/mumbai-011.jpg)
+![Gateway of India.](/assets/travelbig/mumbai-gateway.jpg)
 
 Oh my. The relentless photography touts! The pigeons! The postcard and fridge magnet sellers! And don't forget the useless security checkpoint that was installed after the 2008 Mumbai terror attacks. O save us, British Raj! Come back and rule/ransack again! (Or actually, don't.)
 
