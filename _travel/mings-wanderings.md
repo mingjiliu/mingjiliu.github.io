@@ -238,7 +238,7 @@ Anyway, that's literally all I have on San Miguel de Allende! Nice to visit but 
 
 <small>*Kyoto, Japan*<small>
 
-> joining the throng of sparrows
+> joining the throng of sparrows<br>
 > a little wren
 > 
 > --- Kobayashi Issa
@@ -263,10 +263,10 @@ Anyway, that's literally all I have on San Miguel de Allende! Nice to visit but 
 
 <small>*Darwin, Australia*<small>
 
-> When they make the circle wide, it's time to swim
-> out on your own and fill the element
-> with signatures on your own frequency,
-> echo soundings, searches, probes, allurements,
+> When they make the circle wide, it's time to swim<br>
+> out on your own and fill the element<br>
+> with signatures on your own frequency,<br>
+> echo soundings, searches, probes, allurements,<br>
 > elver-gleams in the dark of the whole sea.
 > 
 > --- Seamus Heaney
@@ -275,16 +275,16 @@ Anyway, that's literally all I have on San Miguel de Allende! Nice to visit but 
 
 <small>*Tainan City, Taiwan*<small>
 
-> I went to China,
-> I went to Prague;
-> I died, and was born in the spring;
-> I found you, and loved you, again.
-> Later the darkness fell
-> and the solid moon
-> like a white pond rose.
-> But I wasn't in any hurry.
-> Likely I visited all the shimmering, heart-stabbing
-> questions without answers
+> I went to China,<br>
+> I went to Prague;<br>
+> I died, and was born in the spring;<br>
+> I found you, and loved you, again.<br>
+> Later the darkness fell<br>
+> and the solid moon<br>
+> like a white pond rose.<br>
+> But I wasn't in any hurry.<br>
+> Likely I visited all the shimmering, heart-stabbing<br>
+> questions without answers<br>
 > before I climbed down.
 > 
 > --- Mary Oliver
