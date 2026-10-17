@@ -5,7 +5,7 @@ date: 2023-09-30
 
 *Text from my old travel blog, [Ming's Wanderings](https://mingjiwanderings.weebly.com/){:target="_blank" rel="noopener"}, written between 2020 and 2023. Edited for clarity and for fun. Posts are ordered chronologically, most recent first. Original posting date is noted under each.*
 
-*This is part 2 of 3.*
+*Part 2 of 3.*
 
 ## Museums of India (2020)
 
