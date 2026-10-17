@@ -184,7 +184,7 @@ I arrived in Puebla by bus from Mexico City on the 1st of November. It was sultr
 
 However, as I strolled around beautiful Puebla, I noticed tension in people's faces. I mean it. There was a tightness on its streets. It didn't feel good. What was causing this quivering mood? The general weariness of holidaymakers? Are the crowds getting irritated by the crowds? Or was the thinning between the borders of this life and the beyond, despite the celebratory attitudes that surround Día de Muertos, affecting everyone?
 
-Stop it. Turn to something else. Here are some churchy snaps from Puebla.
+Stop it. Turn to something else. Here is a churchy snap from Puebla.
 
 ![Puebla and Cholula (2022) — photo 2](/assets/travelbig/puebla-and-cholula-02.jpg)
 
@@ -218,7 +218,7 @@ Here it is... on the dusty trail to a clearly signposted hell... Like the alcoho
 
 *Posted 1 January 2023*
 
-Trudging along the relaxed, sunny, red-ochre-and-burnt-yellow American retirement village of San Miguel de Allende... Lazily bouncing from church to cafe to art gallery to church to cafe to art gallery... Here are some photos of my lovely, hot, and dusty one day visit.
+Trudging along the relaxed, sunny, red-ochre-and-burnt-yellow American retirement village of San Miguel de Allende... Lazily bouncing from church to cafe to art gallery to church to cafe to art gallery... Here's a photo of my lovely, hot, and dusty one day visit.
 
 Obligatory food note. While in the city, I enjoyed a very hearty chile relleno - that is, roast pepper stuffed with cheese. My verdict: Can't go wrong with this, I reckon. Even better, I had it slopped on my plate at a local fonda (i.e., a tiny, family-run restaurant).
 
@@ -651,7 +651,7 @@ I ended the day with one of the most spectacular sunset landscapes I've ever wit
 
 ![Hampi (2020) — photo 3](/assets/travelbig/hampi-03.jpg)
 
-DAY 2: I spent a full day cycling and hiking to sightseeing destinations around Hampi. It's certainly hard to know which pictures to select! See below for photos of Hemakuta Hill, Laksmi Narasimha Temple, Badavilinga Temple, Underground Shiva Temple, Hazara Rama Temple, the Royal Enclosure, Malyawanta Hill, the Saasivekaalu Ganesha, among others.
+DAY 2: I spent a full day cycling and hiking to sightseeing destinations around Hampi. It's certainly hard to know if I recorded everything down correctly! I ticked off Hemakuta Hill, Laksmi Narasimha Temple, Badavilinga Temple, Underground Shiva Temple, Hazara Rama Temple, the Royal Enclosure, Malyawanta Hill, the Saasivekaalu Ganesha, among others.
 
 During my explorations, I bumped into a lot of domestic tourists who wanted my selfie and to know where I was from, especially given my appearance. Unfortunately, a complex story (Chinese heritage, New Zealand citizenship, Australian residency, etc.) doesn't cut it! I eventually caved and just lied and said I was from China whenever people asked.
 
@@ -719,7 +719,7 @@ Delhi is a city both obsessed and apathetic about security... Everywhere you go 
 
 Delhi is a rude city... I've had to snap at people and raise my voice just to get things done here. I think I became a bit too aggressive towards the end of my stay. Some of it is simply big-city brusqueness, but I reckon a better explanation is that everyone is just pissed they have to live in Delhi of all places. Mumbai is nicer, Chennai is hilariously messy, but Delhi is in a league of its own.
 
-Delhi has some absolute marvels tucked within the grit... The Qutb Minar complex (the subject of these photos) is a sensational place, filled with tombs and ruins of the Delhi Sultanate. Just check out that soaring, 73-metre tall sandstone minaret! Equally fascinating (for me, at least) are the elaborate Indo-Islamic designs and the bold, contrasting use of white marble and red sandstone in the complex. For some reason, seeing this building mixture made me crave both dairy milk and white chocolate at the same time.
+Delhi has some absolute marvels tucked within the grit... The Qutb Minar complex is a sensational place, filled with tombs and ruins of the Delhi Sultanate. Just check out that soaring, 73-metre tall sandstone minaret! Equally fascinating (for me, at least) are the elaborate Indo-Islamic designs and the bold, contrasting use of white marble and red sandstone in the complex. For some reason, seeing this building mixture made me crave both dairy milk and white chocolate at the same time.
 
 ![Humayun's Tomb](/assets/travelbig/impressions-of-delhi-08.jpg)
 
@@ -803,13 +803,19 @@ Let's start with breakfast. Might I recommend an epic full-spread Turkish breakf
 
 Is this the greatest breakfast I've ever had? Yes. Absolutely yes.
 
-On other days, however, you'll need to fuel yourself in Istanbul with its irresistible street food. Depicted in the photos below are:
+On other days, however, you'll need to fuel yourself in Istanbul with its irresistible street food:
 
-Simit --- a giant Turkish bagel. Uh, that's it. If you ask for it to be stuffed with Nutella you will regret everything and nothing. Islak burger --- a beloved Istanbul late-night snack. Islak means 'wet' in Turkish. It's cheap, moist, greasy and disgusting... unless you happen to be drunk. Then it's very, very delicious. Doner kebab --- wow. I bet none of you know of this extremely rare and exotic dish. Why am I even sharing a photo? Way too obscure for you people to appreciate. Balik ekmek --- a fish sandwich. It's a whole grilled fish (with bones and whatnot) whacked between bread. Ta-da!
+- Simit --- a giant Turkish bagel. Uh, that's it. If you ask for it to be stuffed with Nutella you will regret everything and nothing.
+- Islak burger --- a beloved Istanbul late-night snack. Islak means 'wet' in Turkish. It's cheap, moist, greasy and disgusting... unless you happen to be drunk. Then it's very, very delicious.
+- Doner kebab --- wow. I bet none of you know of this extremely rare and exotic dish. Why am I even sharing this? Way too obscure for you people to appreciate.
+- Balik ekmek --- a fish sandwich. It's a whole grilled fish (with bones and whatnot) whacked between bread. Ta-da!
 
-But save room for some fancier dinners and lunches as well. In the photographs below we have:
+But save room for some fancier dinners and lunches as well. We have:
 
-Lahmacun. A thin, herby pizza thingy. I had mine with walnut and pomegranate which was weird but nice. Best paired with: ayran, a placid yoghurt-like drink that's popular in this part of the world. Manti. A wonderful Turkish spiced meat dumpling thingo. Mine was deep-fried and popped on top of a yoghurt and eggplant mash. Best paired with: Bomonti, a pretty decent local beer. Moussaka. An eggplant and minced meat casserole... thing. Whatever it is, it was recommended to me and turned out to be fantastic. Best paired with: a large basket of free bread at a working-class restaurant I found off the Istanbul tourist trail. Baklava. Yes, not an actual meal, but I had to skip dinner after trying this glorious plate. Dental cavities are surely the Ottoman Empire's most damaging legacy. Best paired with: tea without sugar thanks.
+- Lahmacun. A thin, herby pizza thingy. I had mine with walnut and pomegranate which was weird but nice. Best paired with: ayran, a placid yoghurt-like drink that's popular in this part of the world.
+- Manti. A wonderful Turkish spiced meat dumpling thingo. Mine was deep-fried and popped on top of a yoghurt and eggplant mash. Best paired with: Bomonti, a pretty decent local beer.
+- Moussaka. An eggplant and minced meat casserole... thing. Whatever it is, it was recommended to me and turned out to be fantastic. Best paired with: a large basket of free bread at a working-class restaurant I found off the Istanbul tourist trail.
+- Baklava. Yes, not an actual meal, but I had to skip dinner after trying this glorious plate. Dental cavities are surely the Ottoman Empire's most damaging legacy. Best paired with: tea without sugar thanks.
 
 And at the end of the night, you'll surely crave dessert. Alas! Istanbul is a cruel and difficult place for people who just need an ice cream as quickly as possible. Below is a video I took of the famous dondurma vendor's act of teasing their customers who merely want a scoop of cold sugary goodness.
 
@@ -825,7 +831,7 @@ You won't need a guidebook. Like all cities, I have my own sense of time. I am a
 
 ### Welcome to Jaipur: the so-called 'Pink City'
 
-Some snaps of Jaipur, the capital of Rajasthan. This was my final stop in this great and diverse Indian state. It was a place I had greatly anticipated exploring. But, as I was warned by some fellow travellers during my trip, I began to feel the "Jaipur grind" after a few days.
+Some words on Jaipur, the capital of Rajasthan. This was my final stop in this great and diverse Indian state. It was a place I had greatly anticipated exploring. But, as I was warned by some fellow travellers during my trip, I began to feel the "Jaipur grind" after a few days.
 
 Expectations have not fully met reality and past experience. It's a busy, sprawling, impersonal city and once you knock off the main attractions (which seem plentiful, but can be easily visited in a short span of time) it can feel as though you're at a loss of what to do next...
 
@@ -1011,7 +1017,7 @@ Located away from all the tourists milling inside the Great Hypostyle Hall is th
 
 Let the sound of birds wash over you. Let it restore you like a sigh. This world can still be peaceful sometimes.
 
-### Photos of Luxor Temple, after dark...
+### Luxor Temple, after dark...
 
 This ancient complex sits on the Nile's east bank, surrounded by busy shops, cafes, and restaurants. It's been kicking around since 1400 BC and may or may not have served as the coronation site of new pharaohs. The temple was partially converted into a Christian church by the Romans, was occupied by Arab villagers in medieval times, and now has an active mosque in the middle of it. In other words, oodles of history.
 
@@ -1051,7 +1057,7 @@ Hatshepsut, you may be interested to know, was a woman. She was (to the best of 
 
 Or as the ancient locals used to call it back in the day: "The Great and Majestic Necropolis of the Millions of Years of the Pharaoh, Life, Strength, Health in The West of Thebes". Catchy.
 
-Photographed in this section is KV2, the tourist-swamped resting place of Ramesses IV; KV6, the pleasantly uncrowded burial site of Ramesses IX; and KV8, the sparse and claustrophobically deep tomb of Merneptah.
+Down and down I sank into the bowels of KV2, the tourist-swamped resting place of Ramesses IV; KV6, the pleasantly uncrowded burial site of Ramesses IX; and KV8, the sparse and claustrophobically deep tomb of Merneptah.
 
 This was my katabasis, my descent into the underworld. There are over sixty chthonic tombs (only around a third of which belong to actual kings) from the 16th to 11th century BC spread throughout this area. Many of them are opulently coloured and meticulously decorated. A number of them plunge ridiculously deep into the bowels of the earth.
 
@@ -1131,6 +1137,8 @@ But Mumbai can also be confronting for the uninitiated. I've seen plenty of roug
 One delightful discovery was the Mumbai "local" (i.e. the Mumbai Suburban Railway), one of the busiest and most infamously overcrowded commuter rail systems in the world. These are big, chunky industrial trains with completely open doors and windows for cheap ventilation. And they are dangerous! Official statistics put the number of deaths from trespassing the tracks and falling off the train between January and June 2019 at over 1,000 people. And that was apparently an improvement over previous years...
 
 I also got lucky and managed to accidentally snap a pic of one of Mumbai's famous dabbawalas in action (the man in white with a cap) on one of the trains. Dabbawalas make up a complicated bicycle-and-rail lunchbox delivery system that has been feeding Mumbai workers since the 1890s. Old school Indian Ubereats.
+
+![dabbawalas.](/assets/travelbig/mumbai-uber.JPG)
 
 Another amazing aspect of Mumbai I was able to witness was the Dhohi Ghat --- the world's largest open-air laundromat. When I first saw it, I just stood there in wonder for ten minutes watching its microcosm of life and labour go by. I thought about all the countless inner worlds on this planet that I'll never experience.
 
