@@ -87,7 +87,7 @@ as the haft-end of the earth ought to be.
 Here be gull, that be sea-star, <br>
 this be fish conjoined to chip. <br>
 Sun's been stretched, as is the blue, <br>
-thin — — thin dashed — — like fading boat trails in the upper atmosphere.
+thin — thin dashed — like fading boat trails in the upper atmosphere.
 
 A market. A Saturday Salamanca in the heady, overpriced overcast. <br>
 Clatter, oyster shell. Tremble, tarpaulin. <br>
@@ -106,7 +106,7 @@ scrunch hunch and crunch! Crunch!
 
 to end in sublime laziness, or decadence, <br>
 with cheese atop the dolerite pipes, <br>
-nipaluna — — with Hobart at my feet — — <br>
+nipaluna — with Hobart at my feet — <br>
 crisp and wide and longing like the spade-end of the world.
 
 ## MONA -- The Museum of Old and New Art
@@ -348,7 +348,7 @@ DOG ATTACK: That's right. I got chased by a fucking dog when I walked down the w
 
 At last, after two months of travelling across India, I arrived with great anticipation in the city of Amritsar, in the northern state of Punjab. I was very, very excited to be here for a number of reasons, as you'll soon see why.
 
-The Golden Temple, the holiest place in all of Sikhism...
+### The Golden Temple, the holiest place in all of Sikhism...
 
 The main drawcard of Amritsar is undoubtedly the Golden Temple, the most spiritually significant temple (or gurdwara) in the Sikh religion. It is significant because it once housed the Adi Granth, the central religious scripture of Sikhism, when it was completed in the 17th century. The temple dazzling marble and gold foil structure surrounded by a man-made pool (called a sarovar), and completely open to all visitors day and night, irrespective of their background.
 
@@ -360,7 +360,7 @@ Despite having been continuously rebuilt over the centuries due to religious per
 
 ![Amritsar, Punjab (2020) — photo 3](/assets/travelbig/amritsar-punjab-03.jpg)
 
-And a meal at the largest soup kitchen in the world...
+### And a meal at the largest soup kitchen in the world...
 
 It may not look like much --- a simple, hot vegetarian meal consisting of some rotis, daal, a vegetable dish, and a rice pudding called kheer --- but this is a meal I have wanted to experience for a long time...
 
@@ -370,7 +370,7 @@ This langar is run entirely by volunteers, open 24/7, and serves tens of thousan
 
 Is it the best meal I've had in India? Probably not. But it is certainly one of the most powerful meals I've ever received.
 
-A weird border ceremony...
+### A weird border ceremony...
 
 Amritsar is also close to the India-Pakistan border where it is possible to witness something truly bizarre: the Wagah-Attari border ceremony. If there was one good thing that came out of the 1947 Partition of India (hint: there wasn't) then it's this.
 
@@ -382,7 +382,7 @@ Wacky. Colourful. Militaristic. Campy. While the Pakistan side had a more mellow
 
 The fact of the matter is that you will not learn anything about the often tense and deadly relationship between these two countries from watching this ceremony. I'm not sure you will learn anything at all. Just sit back and accept that humanity is capable of some very puzzlingly things.
 
-Some more snaps of Amritsar...
+### Some more of Amritsar...
 
 The most shocking thing about it is that the city centre around the Golden Temple is a modern pedestrian mall. As in a clean pedestrian zone with storefronts and everything. In India. No mopeds or rogue trucks or half-dug up streets or cows chewing out of rubbish piles. I couldn't believe it!
 
@@ -390,7 +390,7 @@ The other photo is of the very lovely Durgiana Temple, a Hindu temple dedicated 
 
 ![Amritsar, Punjab (2020) — photo 6](/assets/travelbig/amritsar-punjab-06.jpg)
 
-Now for some less pleasant remarks...
+### Now for some less pleasant remarks...
 
 Amritsar is also a town bedevilled by tragedy. It was (and very much remains) at the frontlines of the disastrous 1947 partition of India. It's also the site of the 1919 Jallianwala Bagh massacre, where troops under the command of a British officer fired on unarmed protestors, killing hundreds. But while both these incidents get considerable attention in Amritsar (with memorials and museums and whatnot), there is one event that has received little publicly visible acknowledgement here and, due to its political sensitivity, potentially never will. I saw some poorly translated and deliberately obfuscating references to it on some signs in the Golden Temple and that was about it.
 
@@ -458,25 +458,23 @@ Bloody hell, there should be a traveller's game in Egypt where you drink a shot 
 
 *Posted 1 May 2022*
 
-*Welcome to Cairo, Egypt's eclectic capital!*
+Welcome to Cairo, Egypt's eclectic capital! In early 2020, after roaming around the sub-continent for almost two months, I made an exodus out of India and a flight into Egypt. This was my first time in Africa and the Middle East - and hopefully not my last! Anyway, here were some of the things I checked out...
 
-In early 2020, after roaming around the sub-continent for almost two months, I made an exodus out of India and a flight into Egypt. This was my first time in Africa and the Middle East - and hopefully not my last! Anyway, here were some of the things I checked out...
-
-*Tahrir Square*
+### Tahrir Square
 
 Hurrah. My first morning in Cairo and I was standing in Tahrir Square, heart of the 2011 Egyptian revolution. Except it currently seems to be under renovation? Something to do with a controversial decision to plonk some pharaonic antiquities in the middle of it. Rather odd symbolism given the forward-looking vision this place represented not that long ago.
 
 Egypt's current political quagmire is something I don't know enough about. But like the good political science major that I am, just give me some cheap local coffee, a shisha pipe, and a stack of old Economist magazines and I'll claim to have figured it out in no time!
 
-![Khan el-Khalili](/assets/travelbig/cairo-03.jpg)
+### Khan el-Khalili
 
-*Khan el-Khalili*
+![Khan el-Khalili](/assets/travelbig/cairo-03.jpg)
 
 A photo of the most Instagrammable spot in Khan el-Khalili, a famous open-air bazaar in the middle of Islamic Cairo. Not that I'd fall for its wily, hashtaggy, picture-perfect charms or anything. Whoops.
 
 I also whittled away the hours with fellow world travellers at El Fishawy, quite possibly the most famous coffeehouse in all of Egypt. Crammed into a narrow thoroughfare in the bazaar, this place is quite the frenzied experience. Street vendors hassle you every minute. Clumsy shoppers threaten to knock over your hookah. The cafe staff seem to be juggling too many tasks at once. And yet, despite the pandemonium, there's music and laughter and a theatrical, smoke-drunk energy to it all that makes this place unforgettable.
 
-*Coptic Cairo*
+### Coptic Cairo
 
 Coptic Cairo is a hushed and compact corner of Egypt's capital unlike anywhere else in this mad city. As a visitor, it would be remiss to only notice the country's mosques and pyramids --- this country also has a very distinctive Coptic Christian minority, making up around 10 per cent of the population.
 
@@ -484,13 +482,13 @@ To be honest, I don't know much about Coptic Christianity or any form of Christi
 
 I visited the famous Hanging Church, the Saints Sergius and Bacchus Church, and the beautiful Church of St. George (which is actually a Greek Orthodox church).
 
-*The Citadel of Cairo*
+### The Citadel of Cairo
 
 This is a medieval fortification built by none other than the legendary Crusader-stomping, warrior-gentleman Saladin. Although the citadel itself is not particularly thrilling (it's a bunch of stone walls on a hill), it provides an excellent view of bustling, dusty Cairo and houses the beautiful Mohamed Ali Mosque.
 
 This magnificent mosque, commissioned in the mid-1800s by Muhammad Ali Pasha, the founder of modern Egypt, happily rivals many grand European churches. I mean, just look at that incredible ceiling! Undoubtedly a masjid for the ages.
 
-*The Mosque of Ibn Tulun*
+### The Mosque of Ibn Tulun
 
 Commissioned by the founder of the Tulunid dynasty, this is a handsomely austere 9th-century mosque. Sun-starked and shadow-cut, it looks like the parched and lonely background of a Giorgio de Chirico painting.
 
@@ -498,7 +496,7 @@ You can also climb its minaret and view Cairo's cityscape in its dense, concrete
 
 ![And even more of Islamic Cairo](/assets/travelbig/cairo-07.jpg)
 
-*And even more of Islamic Cairo*
+### And even more of Islamic Cairo
 
 Fragmented, sideways views of the Mosque-Madrassa of Sultan Hassan and the Al-Rifa'i Mosque. Two huge, skyward-yearning mosques standing right against each other at the foot of Cairo Citadel.
 
@@ -506,13 +504,17 @@ Fragmented, sideways views of the Mosque-Madrassa of Sultan Hassan and the Al-Ri
 
 It's almost impossible to suggest their volumes and textures through photographs: the gloominess of the lofty ceilings, the rich gravity of the wall patterns, the siesta-like drowsiness of an expansive courtyard... Photos are doomed to failure in places like this.
 
-*Egyptian food*
+### Egyptian food
 
 Traditional Egyptian food? Yalla! Let's talk about it:
 
-Mulukhiyah and stuffed pigeon. Mulukhiyyah is a salty, slimy, and deliciously fragrant soup made from a vegetable called jute mallow. I can highly recommend it. As for the stuffed pigeon, yikes... It came with two different kinds of rice and the pigeon itself was stuffed with, well, even more rice. That's too much goddamn rice, even for me! Ful or ful medames. An Egyptian staple comprising stewed fava beans, some salad, and a whole lot of bread. This is Nile River peasant fuel at its finest and, except for the egg topping I specifically requested, entirely vegan. I've been a bit surprised to discover Egyptian cuisine is not as meat-heavy as I originally assumed. Koshari. The national dish. Macaroni mixed with rice, lentils, tomato paste, chickpeas, and fried onions. And that's it. Again, it's effectively carbohydrate-intensive, vegan peasant fuel.
+Mulukhiyah and stuffed pigeon. Mulukhiyyah is a salty, slimy, and deliciously fragrant soup made from a vegetable called jute mallow. I can highly recommend it. As for the stuffed pigeon, yikes... It came with two different kinds of rice and the pigeon itself was stuffed with, well, even more rice. That's too much goddamn rice, even for me! 
 
-*And to conclude, assorted views of Cairo and its urban surrounds*
+Ful or ful medames. An Egyptian staple comprising stewed fava beans, some salad, and a whole lot of bread. This is Nile River peasant fuel at its finest and, except for the egg topping I specifically requested, entirely vegan. I've been a bit surprised to discover Egyptian cuisine is not as meat-heavy as I originally assumed. 
+
+Koshari. The national dish. Macaroni mixed with rice, lentils, tomato paste, chickpeas, and fried onions. And that's it. Again, it's effectively carbohydrate-intensive, vegan peasant fuel.
+
+### And to conclude, assorted views of Cairo and its urban surrounds
 
 Many people dislike the relentless, messy hustle of Egypt's capital (preferring, instead, to blitz through it on their way to the Pyramids and calmer, saner domains). But I took my time with this city and was ultimately won over by its eccentricities.
 
@@ -522,7 +524,7 @@ So farewell Cairo. Au revoir and bshoof-ak ba'deen! Time for me to finally head 
 
 ![On the overnight train to Aswan in the south of Egypt...](/assets/travelbig/cairo-10.jpg)
 
-*On the overnight train to Aswan in the south of Egypt...*
+<small> *On the overnight train to Aswan in the south of Egypt...* <small>
 
 ## Cappadocia (2020)
 
@@ -530,7 +532,7 @@ So farewell Cairo. Au revoir and bshoof-ak ba'deen! Time for me to finally head 
 
 ![Hot air balloons of Cappadocia.](/assets/travelbig/cappadocia-01.jpg)
 
-*Hot air balloons of Cappadocia.*
+<small> *Hot air balloons of Cappadocia.* <small>
 
 ### The otherworldly landscape of Central Anatolia
 
@@ -584,7 +586,7 @@ The good news is, I was able to fly out of Egypt and into Istanbul -- a little m
 
 ![Yep. It was probably aliens.](/assets/travelbig/giza-and-alexandria-01.jpg)
 
-*Yep. It was probably aliens.*
+<small> *Yep. It was probably aliens.* <small>
 
 ### Giza --- home of the pyramids
 
@@ -680,7 +682,7 @@ That's the way things are here. There is beauty, there is boredom, there is back
 
 ![Delhi in the morning](/assets/travelbig/impressions-of-delhi-01.jpg)
 
-*Delhi in the morning*
+<small> *Delhi in the morning* <small>
 
 Delhi is the whole subcontinent flowing into one place... It's the only place in India where I've had people directly speaking Hindi to me. Makes sense. I've seen a lot of people with East Asian features from northeastern states (e.g. Assam and Manipur) and neighbouring countries like Nepal living and working here.
 
@@ -688,7 +690,7 @@ Delhi is a lot to breathe in... Aside from Beijing, this city has some of the wo
 
 ![Jama Masjid](/assets/travelbig/impressions-of-delhi-03.jpg)
 
-*Jama Masjid*
+<small> *Jama Masjid* <small>
 
 Delhi is grungy density at its finest... Old Delhi (where a colossal Mughal-era mosque, Jama Masjid, is located) is rundown and crowded to the point of perverse aesthetic perfection. Close by is Paharganj, a nightmare ghetto of cheap hotels and semi-broken neon signs. I stayed there and I loved it and hated it in equal measure.
 
@@ -702,7 +704,7 @@ The National War Memorial: constructed in 2014 under the Modi administration, it
 
 ![Qutb Minar](/assets/travelbig/impressions-of-delhi-05.jpg)
 
-*Qutb Minar*
+<small> *Qutb Minar* <small>
 
 Delhi is a city both obsessed and apathetic about security... Everywhere you go in the heart of the city, policemen and soldiers toting Cold War-era surplus firearms. Every time you take the (beautifully modern and efficient) metro system, your bags are screened and you are frisked by officers. Of course, no one seems to give a shit --- they just go through the motions. A great example is the metal detectors in all the hotel entrances. People come, people go, the detectors sometimes beep and sometimes don't, and no one bats an eye.
 
@@ -712,7 +714,7 @@ Delhi has some absolute marvels tucked within the grit... The Qutb Minar complex
 
 ![Humayun's Tomb](/assets/travelbig/impressions-of-delhi-08.jpg)
 
-*Humayun's Tomb*
+<small> *Humayun's Tomb* <small>
 
 Delhi is a testament to North India's Islamic legacy... City of djinns, indeed. Although current issues in India surrounding Muslim identity and Hindu nationalism can be politely called a 'fraught clusterfuck' (I'll never forget the awkward exchange I had with an Uber driver in Jaipur where he praised the Chinese government's Xinjiang internment camps), Islam's artistic impact on the country is enthralling. Look no further than Humayun's Tomb Complex --- home to the grandiose resting place of the second Mughal Empire, as well as other paradisiacal garden-tombs.
 
@@ -720,7 +722,7 @@ Delhi is the reason 'Delhi belly' is a thing... Alas, my luck ran out at the ver
 
 ![Flag of India at Central Park, Connaught Place](/assets/travelbig/impressions-of-delhi-10.jpg)
 
-*Flag of India at Central Park, Connaught Place*
+<small> *Flag of India at Central Park, Connaught Place* <small>
 
 Delhi is the best place to become a 'made man' in the land of madcap travel... After I flew out of Delhi and into Cairo, I could only listen with mild amusement to people bemoaning the traffic, the hassling, the noise, and the dirtiness. My god. If only they knew the things I have experienced on the mean streets of Delhi. I'm not sure if anything can faze me anymore.
 
@@ -728,7 +730,7 @@ Delhi is business and loitering, adeptness and incompetence... It is Connaught P
 
 ![Gandhi Smriti](/assets/travelbig/impressions-of-delhi-12.jpg)
 
-*Gandhi Smriti*
+<small> *Gandhi Smriti* <small>
 
 Delhi is the dream of a softer tomorrow... It is visiting Gandhi Smriti, seeing where Mahatma Gandhi spent the final days of life, reminding myself of what he stood for, and then following in his footsteps to the spot where he was assassinated.
 
@@ -752,7 +754,7 @@ They say I am between the East and the West. An identity crisis! Whose? Mine or 
 
 ![The Dolmabahçe Palace](/assets/travelbig/istanbul-01.jpg)
 
-*The Dolmabahçe Palace*
+### The Dolmabahçe Palace
 
 This was the governmental nucleus of the Ottoman Empire for much of the 19th and early 20th centuries. But you won't find the unique, medieval aesthetics of the caliphate at the height of its power anywhere here --- Dolmabahçe was very much built to mimic the style of European royal abodes during that period. So much so that one could argue the palace demonstrates just how keen the Ottomans were to stave off secular decline and keep up with their more modern European neighbours.
 
@@ -760,7 +762,7 @@ It's a mashup of Baroque, Rococo, and Neoclassical elements. Or so I am told. Al
 
 ![The Topkapı Palace](/assets/travelbig/istanbul-02.jpg)
 
-*The Topkapı Palace*
+### The Topkapı Palace
 
 The dazzlingly lovely headquarters of the Ottoman sultans for many centuries, built only a few years after the Fall of Constantinople, and the doom of the Byzantine Empire, in 1453 at the hands of Mehmed the Conqueror.
 
@@ -768,7 +770,7 @@ I believe that if you want to understand where Europeans got their Orientalist n
 
 ![The Hagia Sofia](/assets/travelbig/istanbul-03.jpg)
 
-*The Hagia Sofia*
+### The Hagia Sofia
 
 Why yes, it's everyone's favourite piece of Byzantine architecture!
 
@@ -778,13 +780,13 @@ So is the Hagia Sophia a cathedral? Is it a mosque? Or is it a historical museum
 
 Hooray for compromise... or so I thought. But then in July 2020, only a few months after I visited it, Turkish President Recep Tayyip Erdoğan redesignated the site as a mosque, triggering much domestic and international controversy.
 
-*And some other nearby attractions...*
+### And some other nearby attractions...
 
 Close to the Hagia Sophia, I was also able to visit the twilight underworld of the Cisterna Basilica, the solemnly splendid Tomb of the Sultans, and the palatial Süleymaniye Mosque in the mizzle.
 
 On these various visits, I spend a lot of time craning my head up at the Ottoman domed ceiling. I'm sure the future neck pain I'll have was a worthy price to pay for being able to peer directly upwards at such decorative beauty.
 
-*And finally, the fantastic food of Turkey...*
+### And finally, the fantastic food of Turkey...
 
 ![Istanbul breakfast](/assets/travelbig/istanbul-05.jpg)
 
@@ -810,7 +812,7 @@ You won't need a guidebook. Like all cities, I have my own sense of time. I am a
 
 ![Elephant congestion, Rajasthan edition.](/assets/travelbig/jaipur-01.jpg)
 
-*Elephant congestion, Rajasthan edition.*
+<small> *Elephant congestion, Rajasthan edition.* <small>
 
 ### Welcome to Jaipur: the so-called 'Pink City'
 
@@ -940,7 +942,7 @@ Change is the only constant. Change that, I imagine, is happening too quickly fo
 
 This is Jodhpur, Rajasthan. The Blue City. The Sun City. Gateway to the Thar Desert. And just look at that thing looming above us! A gigantic fort dominating the skyline of the entire city. Holy moly, it's like I'm in a fantasy novel. It's genuinely breathtaking.
 
-Mehrangarh Fort --- "The Sun Fort"
+### Mehrangarh Fort --- "The Sun Fort"
 
 ![Jodhpur (2020) — photo 1](/assets/travelbig/jodhpur-01.jpg)
 
@@ -954,11 +956,15 @@ Royal treasures from the Mehrangarh Fort museum collection The Sun Fort also pro
 
 ![Jodhpur (2020) — photo 3](/assets/travelbig/jodhpur-03.jpg)
 
-Blue, soothing Jodhpur Some chill, blue views of Jodhpur, Rajasthan. Forget about Chefchaouen in Morocco! Here's an alternative travel destination for your azure-cerulean-sky-blue-Instagram fix.
+### Blue, soothing Jodhpur Some chill, blue views of Jodhpur, Rajasthan. 
+
+Forget about Chefchaouen in Morocco! Here's an alternative travel destination for your azure-cerulean-sky-blue-Instagram fix. 
 
 Jodhpur has a lot going for it (the food in the main market area is cheap and great) but it's also one of the grungiest places I've been to so far in India. The trash problem seems worse. The stray dogs seem meaner. The scooters are a little more aggressive. Many streets are redolent of fecal matter and burnt rubbish, and open defecation (a perennial public health challenge in India) is more visible here than elsewhere. I'm not bothered very much by this kind of stuff anymore, but keep it in mind if you're planning a visit!
 
-Additional Jodhpur highlights (1) The epic Toorji Ka Jhalra (Toorji's Step Well) where the tourists come to take photos and the locals come to smoke ganja. Indian stepwells are the best.
+### Additional Jodhpur highlights 
+
+(1) The epic Toorji Ka Jhalra (Toorji's Step Well) where the tourists come to take photos and the locals come to smoke ganja. Indian stepwells are the best.
 
 (2) Jaswant Thada, the marble cenotaph and cremation grounds of the Jodhpur royal family. Dubbed the "Taj Mahal of Rajasthan" and you can see why.
 
@@ -966,7 +972,7 @@ Additional Jodhpur highlights (1) The epic Toorji Ka Jhalra (Toorji's Step Well)
 
 (4) The Mandore Gardens, located on the city outskirts. The former ancient capital of the Jodhpur State, the gardens contain the stunningly sculpted cenotaphs of various dead and forgotten maharajas. It was also completely free to enter when I visited --- a rarity for such a peaceful, well-preserved heritage site in India.
 
-An addendum...
+### An addendum...
 
 Black cowboy hats seem to be all the rage for Indian male tourists in their own country. There are 'English Wine Shops' and 'German Bakeries'. Packets of instant noodles populate the shelves in little hole-in-wall convenience stores. Every shop seems to have the same bland Arial font for their storefront retail signs. As I walk past bored shopkeepers, they call out to me and try to guess my nationality. "Konichiwa!'" they say, "Ni hao!" Some even think I'm Nepali or from the North-eastern states of India based on my tanned backpacker's complexion.
 
@@ -1131,10 +1137,10 @@ Speaking of food, Mumbai street food is a wonder. Friendly roadside vendors sell
 
 ![Sev puri, a crispy deep-fried bread loaded with diced potatoes, onions, and chutneys.](/assets/travelbig/mumbai-01.jpg)
 
-Sev puri, a crispy deep-fried bread loaded with diced potatoes, onions, and chutneys. 
-Pani puri, the same kind of bread but hollowed out and filled with flavoured water, chutney, chilli, and masala. 
-Pav bhaji, a thick vegetable curry with cheap greasy bread rolls. 
-Falooda, made of rose syrup, vermicelli, sweet milk; served with ice cream and other bits of decadence.
+- Sev puri, a crispy deep-fried bread loaded with diced potatoes, onions, and chutneys. 
+- Pani puri, the same kind of bread but hollowed out and filled with flavoured water, chutney, chilli, and masala. 
+- Pav bhaji, a thick vegetable curry with cheap greasy bread rolls. 
+- Falooda, made of rose syrup, vermicelli, sweet milk; served with ice cream and other bits of decadence.
 
 Don't sell yourself short and avoid all the street food in India! If it's a busy place, serving food out fast, and the stuff is fresh and vegetarian then I reckon your chances of avoiding the ol' 'Delhi belly' are good. But never forget it's still a game of chance. Caveat vorator! (Eater beware!)
 
@@ -1162,7 +1168,7 @@ Another filter coffee, please. I need another hit before catching my overnight t
 
 Behold! Objects from the Egyptian Museum, the Museum of Islamic Art, and the Coptic Museum in Cairo, Egypt's chaotic, bustling capital. I can't help it, I'm a museum junkie.
 
-*The Egyptian Museum* 
+### The Egyptian Museum
 
 ![The Egyptian Museum](/assets/travelbig/museums-of-cairo-01.jpg)
 
@@ -1174,7 +1180,7 @@ So what did I personally learn from this neglected stockroom? I learnt they were
 
 Please note: the woeful state of the Egyptian Museum will hopefully not continue. A brand new archaeological museum is scheduled to open in Giza later this year and will, for all intents and purposes, replace the current site. So it's likely that I was one of the final 'seasons' of tourists to have faced the disastrous, old-school Cairo museum experience. Lucky me.
 
-*The Museum of Islamic Art*
+### The Museum of Islamic Art
 
 ![Museums of Cairo (2020) — photo 5](/assets/travelbig/museums-of-cairo-05.jpg)
 
@@ -1184,7 +1190,7 @@ After visiting the Giza Pyramids and the Egyptian Museum, this place was an oasi
 
 Check this one out, art history nerds. There were, like, no other visitors in the entire building. My guess is that the museum fell off everyone's radar after it was heavily damaged by a car bomb in 2014 that was targeting the Cairo police headquarters across the road, shutting the place down for a couple of years. But it's been completely renovated and --- judging from the large numbers of heavily armed policemen in the locale --- in slightly safer airs at present
 
-*The Coptic Museum*
+### The Coptic Museum
 
 ![Museums of Cairo (2020) — photo 8](/assets/travelbig/museums-of-cairo-08.jpg)
 
