@@ -1114,7 +1114,7 @@ Salaam Bombay! This post provides some assorted remarks on my visit to Mumbai, I
 
 Here is yours truly at the Gateway of India. It was completed in 1924 to commemorate the arrival of King George V, the first British monarch to visit India, in 1911. Originally a symbol of British conquest and power, it has now become perhaps the most famous tourist icon of Mumbai.
 
-![Gateway of India.](/assets/travelbig/mumbai-gateway.jpg)
+![Gateway of India.](/assets/travelbig/mumbai-gateway.JPG)
 
 Oh my. The relentless photography touts! The pigeons! The postcard and fridge magnet sellers! And don't forget the useless security checkpoint that was installed after the 2008 Mumbai terror attacks. O save us, British Raj! Come back and rule/ransack again! (Or actually, don't.)
 
