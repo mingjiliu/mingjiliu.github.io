@@ -345,7 +345,7 @@ So there you go. Tax economics. Hope you're satisfied.
 
 PETHA: A kind of semi-translucent soft candy made from sugar, sugar, and even more sugar. Agra's signature dessert. I'm sorry to report that I didn't enjoy it. It's the only Indian sweet I've had so far where this has been the case. Like eating the offspring of a moist sugar cube and a lump of gelatin.
 
-JAMA MASJID: Battled my way through a very crowded, very dirty, very impoverished market to reach one of the largest and most visually striking mosques in India (pictured). At the masjid, a random kid ran up to me and demanded twenty rupees for 'looking after' my shoes. But he did help me with my pronunciation of "as-salamu alaykum" so maybe it was a fair exchange...?
+JAMA MASJID: Battled my way through a very crowded, very dirty, very impoverished market to reach one of the largest and most visually striking mosques in India. At the masjid, a random kid ran up to me and demanded twenty rupees for 'looking after' my shoes. But he did help me with my pronunciation of "as-salamu alaykum" so maybe it was a fair exchange...?
 
 SHEROES HANGOUT: Visited Sheroes Hangout, a famous cafe in Agra staffed by female survivors of acid attacks. Just don't do what I did and get all flustered at the counter upon realising that it runs on a pay-what-you-want system. I'm still grappling with the anxiety that I might've paid below the shadow price. Please, if you're ever in Agra, do visit them and be confident in your donation!
 
