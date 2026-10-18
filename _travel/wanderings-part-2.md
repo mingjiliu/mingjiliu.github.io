@@ -152,7 +152,7 @@ Cowabunga dudes! Check out my new sunnies! 200 rupees, no UV protection, probabl
 
 While I was in Udaipur, an odd realisation dawned on me: I'm privileged enough to travel in high and low circles, to move up and down the pecking ladder of the countries I visit, to shift between both luxurious and needful spaces. That may sound extremely vague (and it is!) so I'll try and offer examples. On one of my days here, I went on a boat cruise around Lake Pichola and stopped at Jagmandir, a former island palace and current luxury hotel, and had an obscenely expensive coffee (still cheaper than a Melbourne latte, mind you). Yet earlier that morning, my breakfast consisted of a deep-fried sandwich and a glass of chai at a roadside stall for thirty rupees (a bit over 60 Australian cents). I stood there with my chai watching the world go by in the company of middle-aged men who would probably be lucky to earn in a single day what I casually slapped down on that island hotel coffee.
 
-Similarly, I've had indulgent dinners at rooftop restaurants (pictured: laal maans, a spicy mutton curry specialty of Rajasthan) on the same day I've had a street food lunch for literal pennies. I've had expensive Mumbai cocktails and I may or may not have come across a two rupee cannabis concoction called bhola.
+Similarly, I've had indulgent dinners at rooftop restaurants (I was exceptionally decadent with the laal maans, a spicy mutton curry specialty of Rajasthan) on the same day I've had a street food lunch for literal pennies. I've had expensive Mumbai cocktails and I may or may not have come across a two rupee cannabis concoction called bhola.
 
 I've toured boutique hotels (with marvellous hand-painted pink and blue dining rooms) and I've stayed in spartan accommodation with almost no hot water, where I've learnt how to have bucket showers, crudely hand wash my clothes, sweep the floor with grass brooms, and drink "Indian style" from shared metal cups (i.e. no touching the rim with your lips).
 
@@ -768,7 +768,7 @@ Bizarrely enough, Fiji is also the only Pacific small island nations to have a n
 
 One last economics point: Fiji has massive untapped fishing wealth. How will it deal with growing foreign interest in this resource? The territorial waters it has to govern is massive, given how small the country is. Think about how Fiji can enforce property rights and maintain bargaining power.
 
-![Fiji (2018) — photo 6](/assets/travelbig/fiji-06.jpg)
+![Fiji (2018) — photo 6](/assets/travelbig/fiji-06.jpeg)
 
 <small> *Completed my scuba diving certification out in the Yasawa Islands!* </small>
 
