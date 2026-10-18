@@ -307,7 +307,7 @@ Close to the town is Shifen Waterfall , a scenic if modestly sized cascade. Neve
 
 Jiufen (which translates to "nine portions") is perhaps the most famous of these three towns. It is a bustling, lantern-filled town in the fog-shrouded mountains filled with trinket shops and delicious street food vendors. It proudly claims to be the real-life place that inspired the setting of Miyazaki's "Spirited Away". Nope! A quick internet search reveals that's just a popular myth, one that Miyazaki himself has debunked.
 
-Oh well... It's still a neat little place to explore and support the Taiwanese economy, of course.
+Oh well... It's still a neat little place to explore and support the Taiwanese economy, at least.
 
 ## Kaohsiung (2019)
 
