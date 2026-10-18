@@ -307,9 +307,7 @@ Close to the town is Shifen Waterfall , a scenic if modestly sized cascade. Neve
 
 Jiufen (which translates to "nine portions") is perhaps the most famous of these three towns. It is a bustling, lantern-filled town in the fog-shrouded mountains filled with trinket shops and delicious street food vendors. It proudly claims to be the real-life place that inspired the setting of Miyazaki's "Spirited Away". Nope! A quick internet search reveals that's just a popular myth, one that Miyazaki himself has debunked.
 
-![Jiufen, Houtong, and Shifen (2019) — photo 5](/assets/travelbig/jiufen-houtong-and-shifen-05.jpg)
-
-Oh well... It's still a neat little place to explore and take photographs, of course.
+Oh well... It's still a neat little place to explore and support the Taiwanese economy, of course.
 
 ## Kaohsiung (2019)
 
@@ -390,10 +388,6 @@ And yes! Rottnest Island is as beautiful as you've heard it to be...
 But with that said, I have a more substantive comment to make about Rottnest Island:
 
 I did not know about the island's brutal history until I visited the small and unassuming Rottnest Island Museum. Between 1838 and 1932, around 3,700 Aboriginal men and boys were imprisoned on the island. One in ten died of influenza or measles and the island was dubbed the "Black Man's Grave" by the local papers. Indeed, as you cycle around the island, it is easy to see what a harsh environment it must've been for them, with very little natural shelter or resources to speak of. No one apparently talks about this. A friend I visited in Perth confirmed that this is an uncomfortable and unspoken aspect of the city's favourite holiday destination.
-
-!['Greetings from Rottnest' by Sally Morgan (1988)](/assets/travelbig/observations-of-perth-12.jpg)
-
-<small> *'Greetings from Rottnest' by Sally Morgan (1988)* </small>
 
 Conclusion. I thought Perth was genuinely an interesting place to visit. Lots of history. Lots of art. Stunning weather. Agreeable coffee. Not a "perfect" Australian holiday destination, but that's kind of the point. Hunting for perfectibility is uninspiring. There is plenty to see and do in Perth over a long weekend and (most crucially) reflect on and write about at the trip's end.
 
