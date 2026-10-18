@@ -812,7 +812,7 @@ A note on crocodiles in the 'Top End': they are absolutely something to be taken
 
 ![Nawurlandja lookout](/assets/travelbig/kakadu-and-litchfield-08.jpg)
 
-Pictured above: photos of our stopover at Nawurlandja lookout. It was a bloody hot day for a hike, but it offered a sweeping view across the national park and out towards Burrungkuy (Nourlangie Rock) which is renowned for its Aboriginal rock art.
+Pictured above: a photo of our stopover at Nawurlandja lookout. It was a bloody hot day for a hike, but it offered a sweeping view across the national park and out towards Burrungkuy (Nourlangie Rock) which is renowned for its Aboriginal rock art.
 
 Speaking of Aboriginal art, Kakadu's reputation as a place of global cultural significance is well-earned. Some of the rock art in the area are up to 20,000 years old(!) and they provide a profound testament to the continuing Aboriginal presence in Australia. Even if many tourists come to this part of the 'Top End' for its natural wonders, its cultural heritage must be appreciated.
 
@@ -848,7 +848,9 @@ I appreciated the novelty. For a while. It kept my most festering feelings at ba
 
 I was on a knife's edge concerning solitude and loneliness. I craved solitude, but if the stars weren't carefully aligned in my skull, that lovely, tender solitude would skip and tumble into its evil double: a ditch of despairing loneliness, self-loathing, and misanthropy. I was not pleased to be alive and no amount of rumination could push me out of this equilibrium. Balance... where was my sacred and wretched balance?
 
-Haedong Yonggungsa Temple... Yes... The photos vaguely remind me. Either before or after Christmas (I can't recall, my memory formation wasn't great during my Busanian hours and minutes), I came to this popular seaside temple. Unfortunately, I was just going through the touristic motions. Pushing through without pause. Pushing through with pulse. So, obviously, I didn't feel impressed at the time and only these photos so many years later have faintly stirred something in me.
+Haedong Yonggungsa Temple... Yes... These words vaguely remind me. Either before or after Christmas (I can't recall, my memory formation wasn't great during my Busanian hours and minutes), I came to this popular seaside temple. Unfortunately, I was just going through the touristic motions. Pushing through without pause. Pushing through with pulse. So, obviously, I didn't feel impressed at the time and only this writing exercise so many years later have faintly stirred something in me.
+
+![Busan (2017) — photo 2](/assets/travelbig/busan-02.jpg)
 
 It's a Buddhist site dating back to the Goryeo Dynasty of the 14th century, with a name that means Korean Dragon Palace Temple . According to legend, a sea god appeared in the dreams of an acclaimed religious teacher during a brutal famine and told him that if he built this temple, all their hardships would dissolve away, like salt in the ocean.
 
@@ -860,7 +862,9 @@ I find writing posts like these an effective approach to tidying up difficult ep
 
 It is probably a soft and futile hope.
 
-I look at my photos from in and around the Jagalchi fish market and can (almost) hark back my visceral disgust at seeing tanks of squirming 'penis fish', a species of marine worm consumed in some parts of East Asia. When I look at pictures of food I've ordered, I can conjure the loveliness of dwaji gukbap, a sought- (almost) after Busan specialty composed of bone broth, pork, miso, soy sauce, rice wine, and many side dishes.
+![Busan (2017) — photo 3](/assets/travelbig/busan-03.jpg)
+
+I look at my old pictures from in and around the Jagalchi fish market and can (almost) hark back my visceral disgust at seeing tanks of squirming 'penis fish', a species of marine worm consumed in some parts of East Asia. When I look at pictures of food I've ordered, I can conjure the loveliness of dwaji gukbap, a sought-(almost)-after Busan specialty composed of bone broth, pork, miso, soy sauce, rice wine, and many side dishes.
 
 For as long as I could remember, I've struggled to figure out what goals and values I was supposed to cultivate... I felt like I was asleep for much of my life, and that, around the time of my Korea trip, I was slowly stirring into consciousness again and examining everything in orbit - my career, my hobbies, my personality - and reacting with a grinding despondency. But this post isn't about how I resolved this struggle. There's nearly nothing here. Just pixels and colour values.
 
@@ -871,6 +875,8 @@ Anyway, here's a photo of Haeundae Beach on a crisp winter's day, an urban beach
 Last on the list of attractions featured in this post is Busan's Gamcheon Culture Village. It presents itself as a slummy, labyrinthian Korean favela that's been squeezed through a deranged pastel children's book filter. Its origins were indeed one of hilly poverty. The village was built by the city administration during the 1920s and 30s as a way to relocate poor working families into an area secluded from the port, yet proximate enough to provide labour. What tourists see these days is the result of a 2009 effort by artists, students, and locals to regenerate the town with the power of gaudy paint cans.
 
 And that's kind of what it's all about, isn't it? Trying to cobble something together, even when its origins are suspect. Trying to dredge up something impoverished from the inner world and present it to the outer one. I will never set foot in Busan again after my psychological trials there, but these sentences you are reading right now are something I've finally made of it.
+
+![Busan (2017) — photo 4](/assets/travelbig/busan-04.jpg)
 
 ## Gyeongju, South Korea (2017)
 
@@ -896,6 +902,8 @@ It didn't take long on my first day of exploration to stumble across the ancient
 
 One of the most interesting tombs in the park (something I didn't realise at the time when I photographed it) is the Tomb of King Michu, aka the "Tomb of the Bamboo Chief". According to legend, King Michu was able to send a ghost army from beyond the grave to save Silla when external forces threatened it. After the ghosts killed the kingdom's enemies, they disappeared, leaving behind only the bamboo leaves that had infested the enemy corpses. A rather macabre, botanical calling card.
 
+![Gyeongju (2017) — photo 1](/assets/travelbig/gyeongju-01.jpg)
+
 ### Cheomseongdae
 
 Another site I didn't fully understand at the time was Cheomseongdae Observatory, a 7th-century observatory tower. Located a short distance southeast from Tumuli Park, it is the oldest surviving astronomical observatory in East Asia and quite possibly in the whole world.
@@ -918,6 +926,8 @@ The ancient capital also once had numerous luxurious palace sites. Donggung Pala
 
 After the fall of Silla, the site was abandoned and largely forgotten. It was finally restored to an inkling of its former glory in the 1970s under the Korean dictator President Park Chung-hee (many people forget that South Korea was not a continuous democracy until the 1980s). There was a political agenda behind it, obviously --- President Park was keen on restoring and promoting historical sites, such as those in Gyeongju, as a means of inspiring cultural unity in the consciousness of the people.
 
+![Gyeongju (2017) — photo 2](/assets/travelbig/gyeongju-02.jpg)
+
 ### Bulguksa
 
 The following day I took a bus out of the city centre and up the slopes of nearby Mount Toham to visit Bulguksa Temple, one of the largest Buddhist temples in South Korea. Built in the early 500s, it represents the flourishing and installation of Buddhism as the Silla state religion.
@@ -929,6 +939,8 @@ Bulguksa is one of the head temples the Jogye Order of traditional Korean Buddhi
 Within the temple complex are two well-known stone pagodas: the Dabotap Pagoda and Seokgatap Pagoda, which stand opposite each other. Dagotap is meant to be feminine, dark, cold, and representative of the messy complexity of the physical world. In contrast, Seokgatap is intended to be masculine, bright, hot, and simplistic, symbolising the elegance of spiritual ascent.
 
 Dagotap Seokgatap On the temple site, there is also a lucky golden pig that you are supposed to touch it for good luck. And in one part of Bulguksa, there is a courtyard full of stacked stones. The explanation goes that visitors can make (very Instagrammable) wishes by placing stones on the top of each other. If your stack doesn't tumble down, then your wish will come true. So don't go around knocking these over, unless you want to ruin everyone's hopes and dreams...
+
+![Gyeongju (2017) — photo 3](/assets/travelbig/gyeongju-03.jpg)
 
 ### Seokguram
 
@@ -960,7 +972,7 @@ Anyway, I found a well-reviewed local restaurant and ordered my bibimbap. And. I
 
 ![I'm hungry just looking at this photo.](/assets/travelbig/jeonju-south-korea-03.jpg)
 
-*I'm hungry just looking at this photo.*
+<small>*I'm hungry just looking at this photo.*</small>
 
 Now, I'm certainly no sociologist, but I thought I'd share a cultural tidbit: due to the country's collectivist culture, dining alone is seen as a bit of a taboo. Well, "taboo" is probably not the right way to put it. To the best of my outsider's understanding, eating is a deeply social activity in Korea and would-be solo diners are often afraid of being seen by themselves in public as loners and outcasts. Many restaurants, or so I've been told, do not even cater to lone patrons.
 
