@@ -162,8 +162,6 @@ I wonder what this makes me. Moving up and down, high and low. Splashing out and
 
 ### 6. Other visits and bits and pieces
 
-![Udaipur (2020) — photo 10](/assets/travelbig/udaipur-10.jpg)
-
 And here are my final set of Udaipur thoughts before I shift to writing about bigger and better things:
 
 - I recommend a view of the city in the late afternoon from the Monsoon Palace, a 19th-century royal hilltop residence. The view is great, the palace is mediocre, and the government taxi ride up the hill is terrifyingly good fun — a very packed vehicle racing up a winding road as fast as it can while loudly honking around blind corners. Scenic adrenaline.
@@ -186,7 +184,9 @@ What more can I say? Udaipur. City of Lakes. It's a nice place. Next stop: Even 
 
 So after exploring one corner of Uttar Pradesh, I made my way to other. All the way to Varanasi! It is, without a doubt, the holiest city of the Hindu religion in India and, if the claims are to be believed, one of the oldest continuously inhabited cities on the planet.
 
-1. A sunrise boat ride on the Ganges Taking a sunrise boat trip on the Ganga was truly one of the most memorable early morning experiences I've ever had. To make matters better, I was hanging out with Indian visitors who were able to haggle for the local price, not the exorbitant foreigner one. It's wonderful to travel a country with domestic tourists and experience how Indians explore their own country.
+### A sunrise boat ride on the Ganges
+  
+Taking a sunrise boat trip on the Ganga was truly one of the most memorable early morning experiences I've ever had. To make matters better, I was hanging out with Indian visitors who were able to haggle for the local price, not the exorbitant foreigner one. It's wonderful to travel a country with domestic tourists and experience how Indians explore their own country.
 
 ![Varanasi (2020) — photo 1](/assets/travelbig/varanasi-01.jpg)
 
@@ -196,13 +196,17 @@ And as many of you know, it is also one of the most dangerously polluted rivers 
 
 Life and death. Energy and slumber. Purification and pollution. What a wild place.
 
-2. The Ganga Aarti at Dashashwamedh Ghat The must-see Ganga Aarti is a devotional ritual to the Goddess Ganga, the personification of the Ganges, conducted every single evening at dusk by Hindu priests on the river bank.
+### The Ganga Aarti at Dashashwamedh Ghat 
+
+The must-see Ganga Aarti is a devotional ritual to the Goddess Ganga, the personification of the Ganges, conducted every single evening at dusk by Hindu priests on the river bank.
 
 ![Varanasi (2020) — photo 3](/assets/travelbig/varanasi-03.jpg)
 
 The crowds were huge. The spectacle was highly choreographed. It managed to be both a deeply spiritual event for believers and a light-and-sound extravaganza for foreigners at the same time. There was fire. There was clapping. Hands flew up into the air and, regardless of whether everyone in attendance understood it or not, we were all shouting "Jai!" ("Victory!") by the end. I was certainly thrilled.
 
-3. A day trip to Sarnath Sarnath, an archeological site ten kilometres north of Varanasi and one of the four most important pilgrimage sites associated with the life of Gautama Buddha. Buddhists believe it was here that he gave his first sermon after attaining enlightenment.
+### A day trip to Sarnath Sarnath
+
+An archeological site ten kilometres north of Varanasi and one of the four most important pilgrimage sites associated with the life of Gautama Buddha. Buddhists believe it was here that he gave his first sermon after attaining enlightenment.
 
 And check out that massive stupa at the heart of it all! That's the Dhamek Stupa, which supposedly marks the exact spot where the Buddha first preached. Some real Big Dharma Energy right there.
 
@@ -214,7 +218,7 @@ Sadhu! Sadhu! Sadhu!
 
 The Lion Capital of Ashoka at Sarnath Museum depicting four Asiatic lions. Sculptures such as this were placed atop great pillars in the Iron Age Maurya Empire. This particular sculpture has been adopted as the National Emblem of India.
 
-4. Foods of Varanasi
+### Foods of Varanasi
 
 I like food. Varanasi has food. It also has streets. Which have food. I like Varanasi street food.
 
@@ -223,7 +227,9 @@ I like food. Varanasi has food. It also has streets. Which have food. I like Var
 - Litti chokha --- hard wheat balls stuffed with roasted chickpea flour, served with eggplant, tomato, and potato mash.
 - Lassi and thandai --- cold and creamy dairy-based drinks, often packed with a wild assortment of fruits, nuts, and spices. And because of the city's close association with Shiva, cannabinoid varieties are casually available everywhere.
 
-5. A city of death Varanasi is a city of death. That is a fact. People come here to die in hospices and corpses arrive here to be cremated at the banks of the Ganges. All in the hopes of escaping the tormenting cycles of rebirth.
+### A city of death 
+
+Varanasi is a city of death. That is a fact. People come here to die in hospices and corpses arrive here to be cremated at the banks of the Ganges. All in the hopes of escaping the tormenting cycles of rebirth.
 
 My photo below is of Manikarnika Ghat, Varanasi's main burning ghat, in a rare moment at dawn when there were no cremations. I passed through this site three times by foot (completely fine, as long as you don't take photos), each visit less daunting than the last. On my first visit, I was guided through inferno by my own third-rate Virgil --- a scammer-cum-guide who I tipped modestly. It was worth it, I think. The huge log piles. The open-air fires. The choking wood smoke. The barely tolerable heat. The endless sound of conflagration and axes hacking at logs. It's hard to explain.
 
@@ -235,7 +241,9 @@ I also spent time at Harishchandra Ghat, a smaller burning ghat to the south. He
 
 Truth be told, I became a bit clinical about all of it towards the end. But I'd like to think I gained a little wisdom from my visit. As for now, life (and its eternal counterpart) goes on.
 
-6. Concluding with Varanasi Varanasi. Benares. Banaras. Kashi. Call it whatever you want. It's a city of the ages that collects names, temples, pilgrims, holy men, mystics, scammers, druggies, and backpackers from all over the globe. White, dreadlocked hippies stoned out of their minds mingle with face-masked Chinese tour groups. What a place.
+### Concluding with Varanasi 
+
+Varanasi. Benares. Banaras. Kashi. Call it whatever you want. It's a city of the ages that collects names, temples, pilgrims, holy men, mystics, scammers, druggies, and backpackers from all over the globe. White, dreadlocked hippies stoned out of their minds mingle with face-masked Chinese tour groups. What a place.
 
 What to see? What to photograph? Everything and nothing. Because Varanasi is all about motion --- the motions of people, animals, rituals, flags, sunrises and sunsets. There is no obvious cynosure, no apparent focal point for your attention. Life drums on here and your awareness dances with it.
 
@@ -385,13 +393,13 @@ I did not know about the island's brutal history until I visited the small and u
 
 !['Greetings from Rottnest' by Sally Morgan (1988)](/assets/travelbig/observations-of-perth-12.jpg)
 
-</small> *'Greetings from Rottnest' by Sally Morgan (1988)* </small>
+<small> *'Greetings from Rottnest' by Sally Morgan (1988)* </small>
 
 Conclusion. I thought Perth was genuinely an interesting place to visit. Lots of history. Lots of art. Stunning weather. Agreeable coffee. Not a "perfect" Australian holiday destination, but that's kind of the point. Hunting for perfectibility is uninspiring. There is plenty to see and do in Perth over a long weekend and (most crucially) reflect on and write about at the trip's end.
 
 !['Greetings from Rottnest' by Sally Morgan (1988)](/assets/travelbig/observations-of-perth-13.jpg)
 
-</small> *Oh, and here's an obligatory quokka selfie* </small>
+<small> *Oh, and here's an obligatory quokka selfie* </small>
 
 ## Penang (2019)
 
@@ -471,7 +479,7 @@ Time to make your choice. Get up and order some chicken skewers. It's better tha
 
 ![Jing'an temple in downtown Shanghai](/assets/travelbig/shanghai-01.jpg)
 
-</small> *Jing'an temple in downtown Shanghai* </small>
+<small> *Jing'an temple in downtown Shanghai* </small>
 
 ### The showpiece city of China
 
@@ -483,7 +491,7 @@ Unlike many other urban centres in the Yangtze River Delta region, where economi
 
 ![A misty view of Pudong from The Bund](/assets/travelbig/shanghai-04.jpg)
 
-</small> *A misty view of Pudong from The Bund* </small>
+<small> *A misty view of Pudong from The Bund* </small>
 
 Overall, I found Shanghai fairly walkable, which I like in my cities. Also, it's hard to become even remotely lost with so much English everywhere.
 
@@ -513,7 +521,7 @@ And did it matter that my Standard Mandarin is spotty? This was something I was 
 
 ![The Oriental Pearl Radio and Television Tower](/assets/travelbig/shanghai-16.jpg)
 
-</small> *The Oriental Pearl Radio and Television Tower* </small>
+<small> *The Oriental Pearl Radio and Television Tower* </small>
 
 ## Tainan (2019)
 
@@ -523,7 +531,7 @@ Thoughts from the historic capital on Taiwan's western coast...
 
 ![The Anping Old Fort, a historic Dutch fortress](/assets/travelbig/tainan-01.jpg)
 
-</small> *The Anping Old Fort, a historic Dutch fortress* </small>
+<small> *The Anping Old Fort, a historic Dutch fortress* </small>
 
 I took the train up from Kaohsiung City for a day trip here. Although it is famous as a culinary destination, I sadly didn't have much of an appetite on my visit and, instead, spent most of it just wandering around its historic attractions. Tainan is dotted with old Dutch colonial sites, as well as Japanese colonial-era buildings. In that sense, the history of Tainan is the history of Taiwan itself.
 
@@ -570,7 +578,7 @@ After a few days in Chennai I went down south to the coastal town of Mamallapura
 
 ![The Shore Temple, built in the early 8th century](/assets/travelbig/tamil-nadu-india-06.jpg)
 
-</small> *The Shore Temple, built in the early 8th century* </small>
+<small> *The Shore Temple, built in the early 8th century* </small>
 
 The whole place felt somewhat orderly, with few tours or beggars or overtly scammy sorts. My sense is that the place is struggling a bit with tourist volumes and --- more importantly --- the town underwent a frenzied beautification job when Narendra Modi and Xi Jinping met here during an informal summit in October.
 
@@ -712,7 +720,7 @@ But that was 2013 and now it's 2018 and I'm ready to brave the seas once more...
 
 ![Sunset over the Timor Sea at Mindl Beach](/assets/travelbig/darwin-01.jpg)
 
-</small> *Sunset over the Timor Sea at Mindl Beach* </small>
+<small> *Sunset over the Timor Sea at Mindl Beach* </small>
 
 Fact #1: Contrary to popular belief, the famous British naturalist Charles Darwin never visited the city. Instead, Darwin was founded in 1869 by his cousin, Gary Darwin, a beagle breeder who discovered the harbour after making a 2,100 nautical mile wrong turn at the Strait of Malacca.
 
@@ -726,7 +734,7 @@ Fact #5: When walking through the George Brown Darwin Botanic Gardens, you may n
 
 ![Darwin (2018) — photo 4](/assets/travelbig/darwin-04.jpg)
 
-</small> *The taxidermied body of 'Sweetheart', a 5.1-metre long saltwater crocodile that terrorised Darwin boaters in the 1970s* </small>
+<small> *The taxidermied body of 'Sweetheart', a 5.1-metre long saltwater crocodile that terrorised Darwin boaters in the 1970s* </small>
 
 Fact #6: In July of 2017, in an innovative attempt to stimulate the slumping Darwin property market, the Chief Minister of the Northern Territory offered free Royal Australian Air Force (RAAF) F/A-18 Hornets for first-time homebuyers.
 
@@ -762,7 +770,7 @@ One last economics point: Fiji has massive untapped fishing wealth. How will it 
 
 ![Fiji (2018) — photo 6](/assets/travelbig/fiji-06.jpg)
 
-</small> *Completed my scuba diving certification out in the Yasawa Islands!* </small>
+<small> *Completed my scuba diving certification out in the Yasawa Islands!* </small>
 
 "Fiji time" is pretty much the national motto. Things like the daily ferry go according to loose, ambulatory schedules. I'm reminded of a wonderful passage from Ryszard Kapuscinski's The Shadow of the Sun about African vs. European conceptions of time: "The European feels himself to be time's slave, dependent on it, subject to it... Africans comprehend time differently. For looser concept, more open, elastic, them, it is a much subjective... Time appears as a result of our actions, and vanishes when we neglect or ignore it. It is something that springs to life under our influence, but falls into a state of hibernation, even non existence, if we do not direct our energy towards it."
 
@@ -774,7 +782,7 @@ That said, you really have to be careful in knowing the limits of your training.
 
 ![Bula Fiji!](/assets/travelbig/fiji-09.jpg)
 
-</small> *Bula Fiji!* </small>
+<small> *Bula Fiji!* </small>
 
 ## Kakadu and Litchfield (2018)
 
@@ -782,7 +790,7 @@ That said, you really have to be careful in knowing the limits of your training.
 
 ![Sunset over Ubirr, Kakadu National Park](/assets/travelbig/kakadu-and-litchfield-01.jpg) 
 
-</small> *Sunset over Ubirr, Kakadu National Park* </small>
+<small> *Sunset over Ubirr, Kakadu National Park* </small>
 
 In late 2018, I had the opportunity to take a three-day tour of Litchfield and Kakadu National Park in the 'Top End' of Australia: the tropical region of the Northern Territory in and around Darwin. It was quite a little trip. There were around a dozen of us, all different nationalities, packed into a four-wheel-drive van as it sped into the dusty summer wilderness.
 
@@ -822,7 +830,7 @@ It was quite a little trip...
 
 ![Onwards, down the nameless dirt trail!](/assets/travelbig/kakadu-and-litchfield-12.jpg)
 
-</small> *Onwards, down the nameless dirt trail!* </small>
+<small> *Onwards, down the nameless dirt trail!* </small>
 
 ## Busan (2017)
 
@@ -990,10 +998,6 @@ It's frustrating to be sick while on your travels. Believe me, it's happened to 
 
 *Posted 27 October 2020*
 
-## Art galleries of New York (2016)
-
-*Posted 27 October 2020*
-
 MoMA and the MET! Which one is better?
 
 The answer is *obviously* the Museum of Modern Art (MoMA). Compared to the Metropolitan Museum of Art (the Met), MoMA is easier to navigate, has nicer staff (the ones working at the Met struck me as obnoxiously rude at times), and with a higher superb-artwork-to-floorspace ratio. The Met also suffers from what I call 'Louvre Syndrome': its hoard of treasurers are too sprawling and exhausting to peruse in any effective way. That said, both are exceptional art museums, with influential pieces from the world over.
@@ -1040,7 +1044,7 @@ If you have to choose between a visit to either MoMA or the Met, my advice is si
 
 ### Thought of the day: O Edward Hopper, why are you so amazing?
 
-The **Art Institute of Chicago** was one of my must-see stops on my journey from the West Coast to East Coast of America, via the 'Windy City' of Chicago (probably named after its political climate and inter-city rivalries as opposed to its actual weather). What a home to both American and international masterpieces!
+The Art Institute of Chicago was one of my must-see stops on my journey from the West Coast to East Coast of America, via the 'Windy City' of Chicago (probably named after its political climate and inter-city rivalries as opposed to its actual weather). What a home to both American and international masterpieces!
 
 *Paris Street; Rainy Day* by Gustave Caillebotte. *A Sunday Afternoon on the Island of La Grande Jatte* by Georges Seurat. A Vincent van Gogh self-portrait and one of his *Bedroom in Arles* paintings. Jules Breton's *The Song of the Lark*. Jacques-Louis David's *Napoleon*. Ivan Albright's powerfully haunting *That Which I Should Have Done I Did Not Do (The Door)*. And much, much more.
 
