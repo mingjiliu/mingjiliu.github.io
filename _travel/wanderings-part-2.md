@@ -902,7 +902,7 @@ It didn't take long on my first day of exploration to stumble across the ancient
 
 One of the most interesting tombs in the park (something I didn't realise at the time when I photographed it) is the Tomb of King Michu, aka the "Tomb of the Bamboo Chief". According to legend, King Michu was able to send a ghost army from beyond the grave to save Silla when external forces threatened it. After the ghosts killed the kingdom's enemies, they disappeared, leaving behind only the bamboo leaves that had infested the enemy corpses. A rather macabre, botanical calling card.
 
-![Gyeongju (2017) — photo 1](/assets/travelbig/gyeongju-01.jpg)
+![Gyeongju (2017) — photo 1](/assets/travelbig/gyeongju-1.jpg)
 
 ### Cheomseongdae
 
@@ -926,7 +926,7 @@ The ancient capital also once had numerous luxurious palace sites. Donggung Pala
 
 After the fall of Silla, the site was abandoned and largely forgotten. It was finally restored to an inkling of its former glory in the 1970s under the Korean dictator President Park Chung-hee (many people forget that South Korea was not a continuous democracy until the 1980s). There was a political agenda behind it, obviously --- President Park was keen on restoring and promoting historical sites, such as those in Gyeongju, as a means of inspiring cultural unity in the consciousness of the people.
 
-![Gyeongju (2017) — photo 2](/assets/travelbig/gyeongju-02.jpg)
+![Gyeongju (2017) — photo 2](/assets/travelbig/gyeongju-2.jpg)
 
 ### Bulguksa
 
@@ -940,7 +940,7 @@ Within the temple complex are two well-known stone pagodas: the Dabotap Pagoda a
 
 Dagotap Seokgatap On the temple site, there is also a lucky golden pig that you are supposed to touch it for good luck. And in one part of Bulguksa, there is a courtyard full of stacked stones. The explanation goes that visitors can make (very Instagrammable) wishes by placing stones on the top of each other. If your stack doesn't tumble down, then your wish will come true. So don't go around knocking these over, unless you want to ruin everyone's hopes and dreams...
 
-![Gyeongju (2017) — photo 3](/assets/travelbig/gyeongju-03.jpg)
+![Gyeongju (2017) — photo 3](/assets/travelbig/gyeongju-3.jpg)
 
 ### Seokguram
 
