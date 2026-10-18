@@ -1073,8 +1073,9 @@ And it's also weird. Really fucking weird. Some of the paintings on the walls ar
 
 ### And finally, a nighttime visit to Luxor Museum...
 
-"Did I do the right thing, trying to escape into history? Did this ambition make any sense? After all, we encounter in historical accounts the very same things such as we thought we could flee in our time... we are never in the presence of unmediated history, but of history recounted, presented, history as it appeared to someone, as he or she believes it to have been. This has been the nature of the enterprise always, and the folly may be to believe one can resist it."
---- Ryszard Kapuscinski
+> "Did I do the right thing, trying to escape into history? Did this ambition make any sense? After all, we encounter in historical accounts the very same things such as we thought we could flee in our time... we are never in the presence of unmediated history, but of history recounted, presented, history as it appeared to someone, as he or she believes it to have been. This has been the nature of the enterprise always, and the folly may be to believe one can resist it."
+>
+> --- Ryszard Kapuscinski
 
 ![Luxor (2020) — photo 15](/assets/travelbig/luxor-15.jpg)
 
