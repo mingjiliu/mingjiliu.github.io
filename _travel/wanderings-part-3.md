@@ -11,93 +11,75 @@ date: 2023-09-30
 
 *Posted 5 February 2022*
 
-During my first visit to the US, instead of flying like a normal person, I took Amtrak's California Zephyr from the San Francisco Bay Area to Chicago.
+During my first visit to the US, instead of flying like a normal person, I took Amtrak's California Zephyr from the San Francisco Bay Area to Chicago. This was an incredible (and incredibly affordable) three-day trip across the North American continent. I saw scenic vistas of seven states, met a colourful array of fellow travellers, and even had breakfast one morning with an Amish family. Few people would call a long train ride a highlight of an American summer holiday, but I had a blast!
 
-This was an incredible (and incredibly affordable) three-day trip across the North American continent. I saw scenic vistas of seven states, met a colourful array of fellow travellers, and even had breakfast one morning with an Amish family. Few people would call a long train ride a highlight of an American summer holiday, but I had a blast!
+Boarding the California Zephyr from Emeryville in the Bay Area...
 
 ![Boarding the California Zephyr from Emeryville in the Bay Area.](/assets/travelbig/the-california-zephyr-01.jpg)
 
-*Boarding the California Zephyr from Emeryville in the Bay Area.*
+A valley around the American River...
 
-A valley around the American River. Donner Lake, near the site of the infamous Donner Party.
+![american river.](/assets/travelbig/the-california-zephyr-02.jpg)
 
-![Relaxing in the lounge car.](/assets/travelbig/the-california-zephyr-02.jpg)
+Donner Lake, near the site of the infamous Donner Party...
 
-*Relaxing in the lounge car.*
+![donner lake.](/assets/travelbig/the-california-zephyr-03.jpg)
 
-Somewhere in the Sierra Nevada... Afternoon in Nevada.
+Somewhere in the Sierra Nevada... 
 
-![And sunset over Nevada as well.](/assets/travelbig/the-california-zephyr-03.jpg)
+![sierra nevada](/assets/travelbig/the-california-zephyr-04.jpg)
 
-*And sunset over Nevada as well.*
+And sunset over Nevada as well...
 
-![Good morning Utah!](/assets/travelbig/the-california-zephyr-04.jpg)
+![And sunset over Nevada as well.](/assets/travelbig/the-california-zephyr-05.jpg)
 
-*Good morning Utah!*
+The arid Utah desertscape. There are dinosaur bones out there somewhere...
 
-The arid desertscape. There are dinosaur bones out there somewhere...
+![utah](/assets/travelbig/the-california-zephyr-06.jpg)
 
-![G'day Colorado!](/assets/travelbig/the-california-zephyr-05.jpg)
+And the Colorado River, of course...
 
-*G'day Colorado!*
+![colorado river](/assets/travelbig/the-california-zephyr-07.jpg)
 
-![The Colorado River, of course.](/assets/travelbig/the-california-zephyr-06.jpg)
+(Not pictured: rafters mooning us from the river.)
 
-*The Colorado River, of course.*
-
-Not pictured: rafters mooning us from the river. Chugging alongside great scenery...
-
-The hot, dry heartland. The iconic freight-hauling locomotives.
-
-![Glenwood Springs.](/assets/travelbig/the-california-zephyr-07.jpg)
-
-*Glenwood Springs.*
+![Glenwood Springs.](/assets/travelbig/the-california-zephyr-08.jpg)
 
 The stunning Glenwood Canyon. I wish I'd made a stop here to explore further...
 
-![A California Zephyr heading west.](/assets/travelbig/the-california-zephyr-08.jpg)
+![glenwood canyon](/assets/travelbig/the-california-zephyr-09.jpg)
 
-*A California Zephyr heading west.*
+The hot, dry heartland. A California Zephyr heads west.
 
-![Where am I? I'm not even sure, but it's beautiful alright.](/assets/travelbig/the-california-zephyr-09.jpg)
+![Where am I? I'm not even sure, but it's beautiful alright.](/assets/travelbig/the-california-zephyr-10.jpg)
 
-*Where am I? I'm not even sure, but it's beautiful alright.*
+A rainy day in the Rocky Mountains...
 
-![A rainy day in the Rocky Mountains.](/assets/travelbig/the-california-zephyr-10.jpg)
+![Look at all that gloomy mountain weather...](/assets/travelbig/the-california-zephyr-11a.jpg)
 
-*A rainy day in the Rocky Mountains.*
+Behold! The High Plains!
 
-![Look at all that gloomy mountain weather...](/assets/travelbig/the-california-zephyr-11.jpg)
+![high plains](/assets/travelbig/the-california-zephyr-11b.jpg)
 
-*Look at all that gloomy mountain weather...*
+Corn! Iowa!
 
-![Behold! The High Plains!](/assets/travelbig/the-california-zephyr-12.jpg)
+![corn](/assets/travelbig/the-california-zephyr-12.jpg)
 
-*Behold! The High Plains!*
-
-![Corn! Iowa!](/assets/travelbig/the-california-zephyr-13.jpg)
-
-*Corn! Iowa!*
+Crossing the Mississippi River...
 
 ![Crossing the Mississippi River.](/assets/travelbig/the-california-zephyr-14.jpg)
 
-*Crossing the Mississippi River.*
+And at last, I arrive in Chicago...
 
 ![And at last, I arrive in Chicago...](/assets/travelbig/the-california-zephyr-15.jpg)
-
-*And at last, I arrive in Chicago...*
 
 ## The Grand Canyon and Las Vegas (2016)
 
 *Posted 1 February 2022*
 
-![The Grand Canyon and Las Vegas (2016) — photo 1](/assets/travelbig/the-grand-canyon-and-las-vegas-01.jpg)
-
 Part of the Grand Canyon seen from my flight into Vegas On the final leg of my visit to the United States, I went to Las Vegas in Nevada to do two things: visit the Grand Canyon and to go down to a firing range and experience for the first time what it's like to shoot a gun. And I am proud to say that I accomplished both these missions.
 
 ### On the highway into Grand Canyon National Park...
-
-![The Grand Canyon and Las Vegas (2016) — photo 2](/assets/travelbig/the-grand-canyon-and-las-vegas-02.jpg)
 
 Ah, the mildly memorable highway from Vegas into Arizona! The rocky, sun-grim landscape. The scraggly, spike-fisted Joshua trees. And a brief stop by the engineering marvel that is the Hoover Dam on the border between Nevada and Arizona.
 
@@ -107,45 +89,30 @@ As for the final destination, all I can frankly say is that the Grand Canyon is 
 
 I could tell you that it is nearly 450 km long, nearly 30 km wide and hits a depth of over 1.8 km. But those figures don't mean much to me. Instead, I stood there imagining what it would've been like for the first person to see it as a giant wound in the earth. She was a child perhaps. Perhaps the ancestor from tribes that have lived continuously in this area for countless generations. I can imagine her finding herself on the edge of the sky itself. Tiptoeing on a precipice, where the earth in front simply fell away like rain.
 
-![The Grand Canyon and Las Vegas (2016) — photo 3](/assets/travelbig/the-grand-canyon-and-las-vegas-03.jpg)
-
 Then hundreds of years later, some European interloper mapping passage down the Colorado River would ink its contours and dub it 'Grand'. But that word doesn't begin to capture the dizzying power, the sheer canyons of imagination that this place can conjure up.
 
 ![A giant hole in the ground.](/assets/travelbig/the-grand-canyon-and-las-vegas-04.jpg)
 
-*A giant hole in the ground.*
-
 ### And the city of American excess...
-
-![A crummy Disneyland for adults. Maybe.](/assets/travelbig/the-grand-canyon-and-las-vegas-05.jpg)
-
-*A crummy Disneyland for adults. Maybe.*
 
 Anyway, I also hung out around Las Vegas for a while, ate American fast food, tried the buffet at Caesars' Palace, and got bored at the gross slot machines. It's an amusement city for easily entertained adults with its flamingos, fake Eiffel Tower, fake Venetian canals, fake everything. A weird, plasticky, and not even properly sleazy gambling mecca.
 
-I did take some videos of amusing, free attractions in Vegas though...
+A crummy Disneyland for adults. Maybe. 
 
-![The Grand Canyon and Las Vegas (2016) — photo 6](/assets/travelbig/the-grand-canyon-and-las-vegas-06.jpg)
-
-Video #1: The artificial volcano in front of The Mirage, a Polynesian-themed casino resort. It erupts away nightly with music and pyrotechnics.
-
-The Fountains of Bellagio which is hard to miss with its Video 2#: meticulously choreographed music and lights water show.
-
-3#: Video a Street Experience, notorious Fremont The touristy pedestrian mall located a respectable distance away from the main Las Vegas Strip. I recommend it for anyone after something a little grittier and grimier. And something a little more bewildering.
-
-![The Grand Canyon and Las Vegas (2016) — photo 7](/assets/travelbig/the-grand-canyon-and-las-vegas-07.jpg)
+Other highlights(?) include:
+- The artificial volcano in front of The Mirage, a Polynesian-themed casino resort. It erupts away nightly with music and pyrotechnics.
+- The Fountains of Bellagio, hard to miss with its meticulously choreographed music and lights water show.
+- A "Street Experience" in notorious Fremont, the touristy pedestrian mall located a respectable distance away from the main Las Vegas Strip. I recommend it for anyone after something a little grittier and grimier. And something a little more bewildering.
 
 But don't assume my negative vibes here are reflective of my thoughts on the United States as a whole! Oh, America (i.e. Home of the Brave, Land of the Free), you've provided an amazing journey... you've made me feel like I've soared atop a bald eagle, pistol duelled Alexander Hamilton, stolen Colonel Sanders' secret fried chicken recipe, and shared a Bud Light with the last of the buffalo.
 
 But alas, as the sun sets over the red, white, and blue, I must depart the city of Vegas for a mildly saner one. Anyway, I'm done! I'm out! This particular place is not for me.
 
+![The Grand Canyon and Las Vegas (2016) — photo 7](/assets/travelbig/the-grand-canyon-and-las-vegas-07.jpg)
+
 ## The Waikato, New Zealand (2016)
 
 *Posted 1 October 2020*
-
-![The Waikato River](/assets/travelbig/the-waikato-new-zealand-01.jpg)
-
-*The Waikato River*
 
 ### Welcome to the upper North Island
 
@@ -155,43 +122,25 @@ Hear the bellbird? See the fantail? Even the ferns and mosses are whispering som
 
 My first stop: Whakarewarewa Forest on the outskirts of Rotorua, known for its coastal redwoods. These are Californian Redwoods and are, therefore, quite obviously, not native to the country. The trees were originally planted back in the 1900s as a commercial forestry trial and have since transformed into a pleasant recreational forest.
 
-Afterwards, I wandered around Rotorua proper and took a soak in the local hot thermal springs. Rotorua (alias: 'Roto-Vegas', 'Rotten-rua',
-
-![The Waikato, New Zealand (2016) — photo 2](/assets/travelbig/the-waikato-new-zealand-02.jpg)
-
-'Sulphur City') is known for its strong geothermal activity, which fills the air with pungent hydrogen sulphide emissions. Translation? The city often has the fragrance of rotten eggs about it. Lovely!
-
-![The Government Gardens, Rotorua](/assets/travelbig/the-waikato-new-zealand-03.jpg)
-
-*The Government Gardens, Rotorua*
+Afterwards, I wandered around Rotorua proper and took a soak in the local hot thermal springs. Rotorua (alias: 'Roto-Vegas', 'Rotten-rua', 'Sulphur City') is known for its strong geothermal activity, which fills the air with pungent hydrogen sulphide emissions. Translation? The city often has the fragrance of rotten eggs about it. Lovely!
 
 My visit to Rotorua also meant a visit to Whakarewarewa Geothermal Valley. It is a world of hot pools, stinking gases, boiling mud, and -- of course -- roaring geysers. The local Māori have lived here for centuries, drawing on the valley's geothermal potency for heating and cooking.
 
 Occasionally, when the geothermal agony of the underworld can be contained no longer, the boiling crucible beneath the valley explodes through rock pores. This can be seen at sites such as Pohutu Geyser where a jet of silica and scorching water will launch towards the sky (30m, in all) before drizzling back down the geyser's ghostly white terraces.
 
-![The Waikato, New Zealand (2016) — photo 4](/assets/travelbig/the-waikato-new-zealand-04.jpg)
+![geyser](/assets/travelbig/the-waikato-new-zealand-05.jpg)
 
-Pohutu and Prince of Wales Feathers Geysers erupting After Rotorua, I spent a day at Lake Taupo, the largest lake in New Zealand. Fact: that was created when is a caldera lake the a supervolcanic erupted over 26,000 years ago. It is hard for the human mind to imagine the explosion that would've punched a hole this big in the ground all those eons ago.
+After Rotorua, I spent a day at Lake Taupo, the largest lake in New Zealand. Fact: that was created when is a caldera lake the a supervolcanic erupted over 26,000 years ago. It is hard for the human mind to imagine the explosion that would've punched a hole this big in the ground all those eons ago.
 
-![Lake Taupo](/assets/travelbig/the-waikato-new-zealand-05.jpg)
+I also had the opportunity to briefly hike alongside the Waikato River (which means Flowing Water in Māori). It is the longest river in the country, snaking indolently from Lake Taupo, through to Hamilton, and finally into the Tasman Sea. The Waikato region is a food bowl for the country even before European settlement and the river was historically used by local tribes to transport produce far and wide.
 
-*Lake Taupo*
-
-I also had the opportunity to briefly hike alongside the Waikato River in Māori). It is the longest river in the (which means Flowing Water country, snaking indolently from Lake Taupo, through to Hamilton, and finally into the Tasman Sea. The Waikato region is a food bowl for the country even before European settlement and the river was historically used by local tribes to transport produce far and wide.
-
-And in the pictures below is Huka Falls near Taupo. As the languid Waikato River is forced through a narrow trench of volcanic rock, it emerges as a thundering cascade of crystal white. Or to put it less lyrically: around 200,000 litres of water surge down Huka Falls every second!
+And in the pictures below is Huka Falls near Taupo. As the languid Waikato River is forced through a narrow trench of volcanic rock, it emerges as a thundering cascade of crystal white. Or to put it less lyrically: around 200,000 litres of water surge down Huka Falls every second.
 
 ![The Huka Falls](/assets/travelbig/the-waikato-new-zealand-06.jpg)
-
-*The Huka Falls*
 
 Another point of interest: Craters of the Moon, north of Taupo. Ghostly steam vents are scattered across this geothermal landscape. Its soil radiates an eerie heat. And the sulphurous smell can be at times, uh, very musky. It is an otherworldy place to stroll around.
 
 ![Craters of the Moon](/assets/travelbig/the-waikato-new-zealand-07.jpg)
-
-*Craters of the Moon*
-
-![The Waikato, New Zealand (2016) — photo 8](/assets/travelbig/the-waikato-new-zealand-08.jpg)
 
 Lastly, I concluded with a simple trip to Hamilton Gardens. It is one of the Waikato's most popular visitor attractions and features 21 gardens the aesthetics and floral compositions of different cultures and civilisations. There's an interpretation of a Chinese Scholar's Garden, a Japanese Garden, an Indian Mughal Garden, an Italian Renaissance Garden, among others.
 
@@ -201,7 +150,7 @@ While not extremely dramatic, Hamilton Gardens provided an adequate coda to my b
 
 *Posted 5 February 2022*
 
-Photos from my day trip to California's famed Yosemite National Park, situated in the picturesque Sierra Nevada mountains...
+A photo from my day trip to California's famed Yosemite National Park, situated in the picturesque Sierra Nevada mountains...
 
 ![Yosemite National Park (2016) — photo 1](/assets/travelbig/yosemite-national-park-01.jpg)
 
@@ -209,9 +158,7 @@ Photos from my day trip to California's famed Yosemite National Park, situated i
 
 *Posted 30 September 2020*
 
-![Aoraki National Park (2015) — photo 1](/assets/travelbig/aoraki-national-park-01.jpg)
-
-Pictures on the road to Aoraki/Mount Cook, the highest mountain in New Zealand...
+A picture on the road to Aoraki/Mount Cook, the highest mountain in New Zealand...
 
 ![Aoraki National Park (2015) — photo 2](/assets/travelbig/aoraki-national-park-02.jpg)
 
@@ -225,43 +172,27 @@ Pictures on the road to Aoraki/Mount Cook, the highest mountain in New Zealand..
 
 85 km north of Bangkok is a little archaeological gem known as the **Ayutthaya Historical Park**, once the capital of a fabulous Siamese kingdom and now a UNESCO World Heritage Site. Like most tourists, a friend and I visited the site as a day-trip destination from chaotic Bangkok. The train ride there from Bangkok's Hualamphong Train Station was surprisingly clean, undramatic and very, very affordable.
 
-![Ayutthaya Historical Park (2015) — photo 2](/assets/travelbig/ayutthaya-historical-park-02.jpg)
-
 While these days Ayutthaya is a dusty little city, sweltering in the sticky Thai sun, it was at one point one of the finest cities on the planet. It is estimated that by the year 1700, its population had reached 1 million, making it one of, if not the, largest city of its time. European travellers spoke of it as a resplendent place with fine palaces, trading vessels, and canals reminiscent of Venice. This all ended in 1767 when the Burmese invaded the kingdom and the great city, after over four centuries of existence, was almost entirely razed to the ground.
-
-![Ayutthaya Historical Park (2015) — photo 3](/assets/travelbig/ayutthaya-historical-park-03.jpg)
 
 But enough about the sad grind of history. How best to explore this place? By bicycle, of course! Firstly, you need to take a short trip by ferry across the river to the old capital. The historic park is, in a sort of idyllic way, located on an island surrounded by three rivers. After that, it doesn't take much effort to find a cheap bicycle rental to zip from temple to temple. Just be careful with the rough and tumble Thai traffic! My friend and I certainly found it a bit of a hair-raising experience at times.
 
-![The famous head of Buddha at Wat Mahathat](/assets/travelbig/ayutthaya-historical-park-04.jpg)
-
-*The famous head of Buddha at Wat Mahathat*
-
-One of the most noteworthy sites in the historic park is **Wat Mahathat**. Called 'The Temple of the Great Relic', it was at one point in the forgotten past the most important monasteries of the Ayutthaya Historic City and a major venue for royal ceremonies and celebrations. These days, the former temple grounds are most famous among foreign visitors for a statue of Buddha that has been photogenically enveloped in tree roots. See above, obviously.
+One of the most noteworthy sites in the historic park is Wat Mahathat. Called 'The Temple of the Great Relic', it was at one point in the forgotten past the most important monasteries of the Ayutthaya Historic City and a major venue for royal ceremonies and celebrations. These days, the former temple grounds are most famous among foreign visitors for a statue of Buddha that has been photogenically enveloped in tree roots. See below, obviously.
 
 ![Ayutthaya Historical Park (2015) — photo 5](/assets/travelbig/ayutthaya-historical-park-05.jpg)
 
 Oh, marvellous and crumbling ruins! How I love them! Be it in Asia or Europe or anywhere else on the globe, there's something about the shattered remains of bygone civilisations that will forever intrigue me. The potential for every stone to tell a story. The tilting and decaying towers, the bricks older than memory, a row of headless Buddhas. Faith, endurance, destruction.
 
-![Ayutthaya Historical Park (2015) — photo 6](/assets/travelbig/ayutthaya-historical-park-06.jpg)
-
-**Wat Phra Si Sanphet** is another fascinating archaeological spot on the city island. Dating back to around the mid-15th century, the temple was once located within the royal palace grounds. Because of this, it had no resident monks and was used exclusively by the Ayutthaya royal family for their ceremonies and for storing royal relics.
+Wat Phra Si Sanphet is another fascinating archaeological spot on the city island. Dating back to around the mid-15th century, the temple was once located within the royal palace grounds. Because of this, it had no resident monks and was used exclusively by the Ayutthaya royal family for their ceremonies and for storing royal relics.
 
 The most striking thing about Wat Phra Si Sanphet is its three large and pale bell-shaped 'chedis' or stupas. These three chedis were once believed to have enshrined the ashes of three kings as well as relics of the Buddha. Who knows? Maybe they are still sealed away somewhere deep inside them.
 
-![Ayutthaya Historical Park (2015) — photo 7](/assets/travelbig/ayutthaya-historical-park-07.jpg)
-
 And, like in many other touristy parts of Thailand, in Ayutthaya, you'll come across the chance to feed, pet, and ride captive elephants. I'm sure I don't need to say this, but don't forget to *not support* the local Thai elephant industry. It ain't a pleasant business.
 
-![Ayutthaya Historical Park (2015) — photo 8](/assets/travelbig/ayutthaya-historical-park-08.jpg)
+One of our final stops on the island was at Wihan Phra Mongkhon Bophit. Unlike its more fragmentary surrounding locales, this is a beautiful and bustling modern temple. Just look at that stunning gold-and-red roof structure.
 
-One of our final stops on the island was at **Wihan Phra Mongkhon Bophit.** Unlike its more fragmentary surrounding locales, this is a beautiful and bustling modern temple. Just look at that stunning gold-and-red roof structure.
+A wihan, also called a vihara, is a dedicated building in which an image of the Buddha is enshrined. Its big claim to fame? It houses one of the largest bronze Buddhas in Thailand. According to a nearby sign, the statue is almost 17 metres tall. Trust me, it's more impressive than my photograph lets on.
 
-![Ayutthaya Historical Park (2015) — photo 9](/assets/travelbig/ayutthaya-historical-park-09.jpg)
-
-A wihan, also called a vihara, is a dedicated building in which an image of the Buddha is enshrined. Its big claim to fame? It houses one of the largest bronze Buddhas in Thailand. According to a nearby sign, the statue is almost 17 metres tall. Trust me, it's more impressive than my photography skills let on.
-
-![Ayutthaya Historical Park (2015) — photo 10](/assets/travelbig/ayutthaya-historical-park-10.jpg)
+![Ayutthaya Historical Park (2015) — photo 6](/assets/travelbig/ayutthaya-historical-park-06.jpg)
 
 And that concludes all I have to say about Ayutthaya. It was a short trip (we sadly weren't able to knock out all the suggested highlights in the historic area) but it was a memorable one. While we could only glimpse a fraction of its former glory, what we did see stirred my imagination. The surviving, eroded remnants of many yesterdays ago are crying out. What are they saying? What are they trying to convey? Each of us has to listen and interpret on our own.
 
@@ -271,11 +202,11 @@ And that concludes all I have to say about Ayutthaya. It was a short trip (we sa
 
 ### Meditations on a trip to Cambodia
 
-"To be a mass tourist... is to spoil, by way of sheer ontology, the very unspoiledness you are there to experience, It is to impose yourself on places that in all non-economic ways would be better, realer, without you. It is... to confront a dimension of yourself that is as inescapable as it is painful: As a tourist, you become economically significant but existentially loathsome, an insect on a dead thing." - David Foster Wallace the hundred temples scattered across Cambodia's Angkor Of Archaeological Park, none are more iconic than Angkor Wat. Built in
+> "To be a mass tourist... is to spoil, by way of sheer ontology, the very unspoiledness you are there to experience, It is to impose yourself on places that in all non-economic ways would be better, realer, without you. It is... to confront a dimension of yourself that is as inescapable as it is painful: As a tourist, you become economically significant but existentially loathsome, an insect on a dead thing."
+>
+> -- David Foster Wallace 
 
-![Reflections on tourism in Angkor (2015) — photo 1](/assets/travelbig/reflections-on-tourism-in-angkor-01.jpg)
-
-the 12th century in dedication to the Supreme God Vishnu, Angkor Wat is the holy jewel of the Khmer Empire and is heralded as the largest religious monument in the world. It is a delirious marriage of theology and architecture. Its moat represents the Ocean of Milk from which the universe was born, its bas-reliefs depict the great battles of Hindu epics, and its central tower represents Mount Meru, the nexus of all creation. It is a wonder of stone and time.
+Of the hundred temples scattered across Cambodia's Angkor Of Archaeological Park, none are more iconic than Angkor Wat. Built in the 12th century in dedication to the Supreme God Vishnu, Angkor Wat is the holy jewel of the Khmer Empire and is heralded as the largest religious monument in the world. It is a delirious marriage of theology and architecture. Its moat represents the Ocean of Milk from which the universe was born, its bas-reliefs depict the great battles of Hindu epics, and its central tower represents Mount Meru, the nexus of all creation. It is a wonder of stone and time.
 
 But even excluding Angkor Wat, the Archaeological Park is a menagerie of long-lost treasures. One moment, you are gazing up at the crumbling, smiling faces of the Bayon, the next you are stumbling through the jungle temples of Ta Prohm and Preah Khan, where tree roots have fused like shadows into the stonework. One hour, you are cycling between the dusty red sandstone carcasses of Pre Rup and East Mebon, the next you are crossing a walkway towards the island of Neak Pean, over haunting swampland.
 
@@ -283,19 +214,13 @@ Yet despite being surrounded by wonder, it is hard to ignore that grinding feeli
 
 And once the realisation fully sinks into your chest, it's all over. You realise that it's you. You are both the trapped and the trapper. You are truly in the thick of it, in the deep end. You are just another insect in the global locust swarm of mass tourism. There is no escaping it.
 
-![Reflections on tourism in Angkor (2015) — photo 2](/assets/travelbig/reflections-on-tourism-in-angkor-02.jpg)
-
 Indeed, we all come in great hordes via tour bus, tuk-tuk, and bicycle. We come for that perfect photo of sunrise over Angkor Wat, for an (ethically dubious) elephant ride around the Bayon, for that silly selfie on top of the Terrace of the Leper King. Even the orange-robed monks that visit Angkor shake the authenticity of the experience, as they also reveal themselves to be mere tourists, whipping out smartphones and waving selfie sticks. As David Foster Wallace puts it so starkly: As tourists, we are all insects on a dead thing. We come, we go, and Angkor remains a lifeless, breathless empire.
 
 But another thought also emerges. A thought that is reserved for those seeking a story that speaks not of a cadaverous empire, but of a modern nation-state. The thought is simply that perhaps it is contemporary Cambodia, and not just these ancient Khmer ruins, that is also a dead or dying thing?
 
 Cambodia's recent history is a wretched one, that much is certain. Pol Pot. The Khmer Rouge. Year Zero. Three million Cambodians murdered by a deranged agrarian socialist experiment, or tortured and executed in the Killing Fields. To this day, the country remains one of the poorest in South-East Asia. While the country's prospects are beginning to improve, over a third of the population is still living in poverty. To complicate matters, Cambodia's current leader, Prime Minister Hun Sen, is by all accounts a strongman who has solidified power through corruption, cronyism and political violence.
 
-To this day, the country remains one of the poorest in South-East Asia. While the country's prospects are beginning to improve, over a third of the population is still living in poverty. To complicate matters, Cambodia's current leader, Prime Minister Hun Sen, is by all accounts a
-
-![Reflections on tourism in Angkor (2015) — photo 3](/assets/travelbig/reflections-on-tourism-in-angkor-03.jpg)
-
-strongman who has solidified power through corruption, cronyism and political violence.
+To this day, the country remains one of the poorest in South-East Asia. While the country's prospects are beginning to improve, over a third of the population is still living in poverty. To complicate matters, Cambodia's current leader, Prime Minister Hun Sen, is by all accounts a strongman who has solidified power through corruption, cronyism and political violence.
 
 In visiting Angkor, you can observe many of the challenges the country faces. You can see Cambodia's weak education system in the children who run up to you, asking you to buy their postcards. You can see the country's difficulties with unexploded ordinances in the disabled musicians who play at temple entrances. The beauty of stone ruins juxtaposed with the bluntness of social reality. It's quite the contrast.
 
@@ -305,11 +230,13 @@ Perhaps in places like Cambodia at least, David Foster Wallace gets it backwards
 
 ### Kamakura and Yokohama (2012)
 
-![Reflections on tourism in Angkor (2015) — photo 4](/assets/travelbig/reflections-on-tourism-in-angkor-04.jpg)
-
 *9/26/2020*
 
-The Great Buddha of Kamakura, a enormous 13th century bronze statue During my summer university stay in Tokyo back in 2012, I took a few memorable jaunts out of the city. One was to Kamakura, a seaside city to the south of the capital, as part of a class trip and the another to Yokohama, also to the south and the second-largest city in the country.
+The Great Buddha of Kamakura, a enormous 13th century bronze statue:
+
+![Reflections on tourism in Angkor (2015) — photo 4](/assets/travelbig/reflections-on-tourism-in-angkor-04.jpg)
+
+During my summer university stay in Tokyo back in 2012, I took a few memorable jaunts out of the city. One was to Kamakura, a seaside city to the south of the capital, as part of a class trip and the another to Yokohama, also to the south and the second-largest city in the country.
 
 ### Kamakura
 
