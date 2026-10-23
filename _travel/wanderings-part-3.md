@@ -232,45 +232,35 @@ Perhaps in places like Cambodia at least, David Foster Wallace gets it backwards
 
 *9/26/2020*
 
-The Great Buddha of Kamakura, a enormous 13th century bronze statue:
-
-![Reflections on tourism in Angkor (2015) — photo 4](/assets/travelbig/reflections-on-tourism-in-angkor-04.jpg)
-
 During my summer university stay in Tokyo back in 2012, I took a few memorable jaunts out of the city. One was to Kamakura, a seaside city to the south of the capital, as part of a class trip and the another to Yokohama, also to the south and the second-largest city in the country.
 
 ### Kamakura
 
+The Great Buddha of Kamakura, a enormous 13th century bronze statue:
+
+![kamakura (2015) — photo 4](/assets/travelbig/kamakura-04.jpg)
+
 Our visit to Kamakura was mainly focussed on Kōtoku-in, a famous Buddhist temple. I'm sure I say something similar to this about the religious sites I've explored around the world, but I feel that Japanese temples are truly something unique in terms of their ambience and ability to blend in with the natural world.
 
-![Reflections on tourism in Angkor (2015) — photo 5](/assets/travelbig/reflections-on-tourism-in-angkor-05.jpg)
-
 One thing in particular I love about Japanese temples and shrines are the colourful decorative sake barrels on display. They are known and are empty barrels meant to honour the gods -- the as kazaridaru traditional idea being that delicious, delicious Japanese rice wine is meant to connect the people to the deities themselves.
-
-![Reflections on tourism in Angkor (2015) — photo 6](/assets/travelbig/reflections-on-tourism-in-angkor-06.jpg)
 
 Kōtoku-is temple of the Jōdo-shū or "The Pure Land School" of Buddhism which was introduced to Japan in the 12th century and continues to be one of the most widely practised forms of Buddhism in the country.
 
 The literal and spiritual focal point of the temple is the Great Buddha. Excluding the platform, this magnificent bronze statue sits at a height of over 13 metres and weighs over 120 tonnes. It's also unusual for being an open-air buddha. This is because a tsunami washed away the original building housing it in 1498 and the statue was the only thing that endured. It's remained out and open to the elements ever since.
 
-Fun fact: close to the Great Buddha are a pair of huge traditional Japanese straw sandals that are nearly two metres long and weigh around 45 kilograms. These sandals were first woven and donated by a
+Fun fact: close to the Great Buddha are a pair of huge traditional Japanese straw sandals that are nearly two metres long and weigh around 45 kilograms. These sandals were first woven and donated by a group of children back in 1951 when the country was still recovering from the ravages of the Second World War. The wish of these children was that "the Great Buddha would don them to walk around Japan, bringing happiness to the people". To this day, children will create and gift a new pair of giant sandals to Kōtoku-in every few years.
 
-![Reflections on tourism in Angkor (2015) — photo 7](/assets/travelbig/reflections-on-tourism-in-angkor-07.jpg)
-
-group of children back in 1951 when the country was still recovering from the ravages of the Second World War. The wish of these children was that "the Great Buddha would don them to walk around Japan, bringing happiness to the people". To this day, children will create and gift a new pair of giant sandals to Kōtoku-in every few years.
+![kamakura — photo 7](/assets/travelbig/kamakura-07.jpg)
 
 ### Yokohama
 
 I visited the coastal city of Yokohama with a friend on Marine Day, a Japanese public holiday that gives thanks to the bounties and riches of the ocean.
 
-![Reflections on tourism in Angkor (2015) — photo 8](/assets/travelbig/reflections-on-tourism-in-angkor-08.jpg)
-
 It was a pleasant outing to an important Japanese port city. Although it is a short train ride from the heart of Tokyo, it is a breezy, relaxed and walkable international city that provides a welcome respite from Tokyo's frenetic energy.
 
-I'll be honest. My trip to Japan permanently changed me. It was my first extended trip abroad on my own (this being back in my poor university student days) and I've never looked back. I got bit by the travel bug hard
+![yokohama](/assets/travelbig/yokohama-09.jpg)
 
-![Reflections on tourism in Angkor (2015) — photo 9](/assets/travelbig/reflections-on-tourism-in-angkor-09.jpg)
-
-and that fiery wanderlust has been with me ever since. I have to travel. I have to keep seeing the world for the rest of my life. Is this a curse? A gift? An integral feature of my personality? Even now, all these years later, it is still difficult for me to coherently express.
+I'll be honest. My trip to Japan permanently changed me. It was my first extended trip abroad on my own (this being back in my poor university student days) and I've never looked back. I got bit by the travel bug hard and that fiery wanderlust has been with me ever since. I have to travel. I have to keep seeing the world for the rest of my life. Is this a curse? A gift? An integral feature of my personality? Even now, all these years later, it is still difficult for me to coherently express.
 
 ## Temple Run: Bangkok edition (2015)
 
@@ -280,41 +270,39 @@ Day One: The Grand Palace, Wat Phra Kaew, Wat Saket, and Wat Suthat. Day Two: Wa
 
 What better way to start the speedrun than taking the passenger ferry down the great and muddy Chao Phraya River?
 
-Damn. I look at these old photos from early 2015 and have to both laugh and cringe a bit at my younger self. How different I used to look! How chubby and sweaty. That unfortunate haircut and inelegant pose. What kind of a small boy, half-man, soft animal I was, both outside and within!
+Damn. I look at these old photos from early 2015 and have to both laugh and cringe a bit at my younger self. How different I used to look! How chubby and sweaty. That unfortunate haircut and inelegant pose. What kind of a small boy, half-man, soft animal I was, both outside and within! Funny what the years can do to my perspectives on things...
 
-Funny what the years can do to my perspectives on things...
+### The Grand Palace and Wat Phra Kaew
 
 ![The Grand Palace and Wat Phra Kaew](/assets/travelbig/temple-run-bangkok-edition-01.jpg)
-
-*The Grand Palace and Wat Phra Kaew*
 
 The Grand Palace: the official residence of the King of Siam. An organic jumble of halls, courtyards, pavilions, gardens, lawns. And an inorganic jumble of tourists, both foreign and Thai. But that aspect of the visit is easy enough to ignore. It's stunning. It's so bloody stunning.
 
 And as for Wat Phra Kaew, situated within the palace complex, it's the most sacred Buddhist temple in all of Thailand. Also commonly known as the Temple of the Emerald Buddha, Wat Phra Kaew houses a green gemstone Gautama that's considered the nation's most sacred image of the Enlightened One.
 
-![Wat Saket](/assets/travelbig/temple-run-bangkok-edition-02.jpg)
+### Wat Saket
 
-*Wat Saket*
+![Wat Saket](/assets/travelbig/temple-run-bangkok-edition-02.jpg)
 
 Wat Saket. The Temple of the Golden Mount. A panoramic view from atop an 80-metre high artificial hill. It was a steep and winding 318-step climb, hence the photo of a damp and dumpy me posing against the hot and smoggy Bangkok cityscape.
 
-![Wat Suthat](/assets/travelbig/temple-run-bangkok-edition-03.jpg)
+### Wat Suthat
 
-*Wat Suthat*
+![Wat Suthat](/assets/travelbig/temple-run-bangkok-edition-03.jpg)
 
 Wat Suthat Thepwararam. Another elegant structure. Endless images of Buddha. The iconic Giant Swing stands in front of the temple, a towering and crimson gate-like structure. Come and enter, it says. Come and look further.
 
-![Wat Pho](/assets/travelbig/temple-run-bangkok-edition-04.jpg)
+### Wat Pho
 
-*Wat Pho*
+![Wat Pho](/assets/travelbig/temple-run-bangkok-edition-04.jpg)
 
 Wat Phra Chetuphon Wimon Mangkhalaram Rajwaramahawihan, to give it its official title. What a great name!
 
 The Temple of the Reclining Buddha. 46-metres long goes its golden repose. There are 108 bronze alms bowls in the temple. Go ahead, grab some coins and drop them in. The sound rings sweetly and good fortune is sure to follow.
 
-![Wat Arun](/assets/travelbig/temple-run-bangkok-edition-05.jpg)
+### Wat Arun
 
-*Wat Arun*
+![Wat Arun](/assets/travelbig/temple-run-bangkok-edition-05.jpg)
 
 Wat Arun Ratchawararam Ratchawaramahawihan. This is probably my favourite temple of the bunch, named for the Hindu god Aruna, charioteer of the Sun God Surya. Encrusted ceramic complexities. Dazzling architectural richness. Its structures spear into the pale, cloudless sky. Hours could be spent here, walking and gazing, gazing and walking.
 
@@ -326,17 +314,11 @@ Climb up this tower of porcelain puzzle pieces. Don't be shy. Climb up it and ta
 
 *Posted 20 September 2020*
 
-![The Twelve Apostles (2015) — photo 1](/assets/travelbig/the-twelve-apostles-01.jpg)
-
 Ah! The relentless hammering and chiselling of the sea along the Great Ocean Road in Victoria, Australia. Highlights along the road such as Loch Ard Gorge, the London Arch, and the celebrated Twelve Apostles (of which there were never twelve in the first place) are just stacks of limestone carved by the harsh waves of time. Who knows when the next stone stack will collapse? Who knows when the next formation will be born, cleaved from the cliff walls?
-
-![The Twelve Apostles (2015) — photo 2](/assets/travelbig/the-twelve-apostles-02.jpg)
 
 ## Dresden (2014)
 
 *Posted 14 October 2020*
-
-The Dresden Frauenkirche, destroyed in the city's bombing during World War II and rebuilt by 2005.
 
 ### Dresden. So it goes.
 
@@ -347,84 +329,58 @@ Once a city of cultural and artistic wonder, Dresden suffered calamitous damage 
 One needs to only briefly stroll around Dresden's Altstadt, or Old Town, to see the consequences of these events. Where there should be tightly packed historical buildings, there are instead yawning gaps in the cityscape. Huge, empty spaces in the city centre are like eerie deletions, like solemn omissions, like gouges out of time and space. And the reconstruction of Dresden's monuments continues to this day.
 
 ![Dresden (2014) — photo 1](/assets/travelbig/dresden-01.jpg)
+<small> *The Dresden Frauenkirche, destroyed in the city's bombing during World War II and rebuilt by 2005.* </small>
 
 What there is to see (and has been mostly reconstructed) is lovely, however... The Albertinum, a modern art museum. Dresden's iconic Frauenkirche, a Lutheran church. The Schlossplatz, or the Palace Square.
 
 ![The restored interior of the Frauenkirche.](/assets/travelbig/dresden-02.jpg)
+<small> *The restored interior of the Frauenkirche.* </small>
 
-*The restored interior of the Frauenkirche.*
-
-The Procession of Princes, an enormous mural of Saxony's royalty and noblemen. The Semper Opera House, which once premiered the works
-
-![Dresden (2014) — photo 3](/assets/travelbig/dresden-03.jpg)
-
-of Wagner and Strauss. A monument to Martin Luther, that titan of the Protestant Reformation, stands stoically for all to witness.
+The Procession of Princes, an enormous mural of Saxony's royalty and noblemen. The Semper Opera House, which once premiered the works of Wagner and Strauss. A monument to Martin Luther, that titan of the Protestant Reformation, stands stoically for all to witness.
 
 Even the communist propaganda mural on the wall of the Kulturpalast, a modernist hall from the era of the German Democratic Republic, speaks of the enduring history of Dresden.
 
 The was once a city called the 'Florence on the Elbe' before it was reduced to rubble. Historians have debated endlessly as to the legitimacy of the Allied bombing campaign in terms of morality and strategy and tactical reasoning. All I can say is that it was an unequivocal tragedy for the civilian population.
 
-![Dresden (2014) — photo 4](/assets/travelbig/dresden-04.jpg)
-
 The American writer Kurt Vonnegut, who himself was a survivor of the bombings when he was a prisoner of war, speaks powerfully from his experience of its aftermath in his novel 'Slaughterhouse-Five':
 
-There was a fire-storm out there. Dresden was one big flame. The one flame ate everything organic, everything that would burn.
-
-It wasn't safe to come out of the shelter until noon the next day. When the Americans and their guards did come out, the sky was black with smoke. The sun was an angry little pinhead. Dresden was like the moon now, nothing but minerals. The stones were hot. Everybody else in the neighborhood was dead. So it goes.
-
-![Dresden (2014) — photo 5](/assets/travelbig/dresden-05.jpg)
+> There was a fire-storm out there. Dresden was one big flame. The one flame ate everything organic, everything that would burn.
+> 
+> It wasn't safe to come out of the shelter until noon the next day. When the Americans and their guards did come out, the sky was black with smoke. The sun was an angry little pinhead. Dresden was like the moon now, nothing but minerals. The stones were hot. Everybody else in the neighborhood was dead. So it goes.
 
 One of the must-visit places in Dresden, I feel, is its Military History Museum. The museum's façade is striking - the architect added a caged arrowhead structure to it, with the idea that it represents the openness and transparency of Germany's modern democratic society, in contrast to the rigidness of the existing building, which represents the severe, authoritarian past.
 
 ![The Bundeswehr Military History Museum](/assets/travelbig/dresden-06.jpg)
-
-*The Bundeswehr Military History Museum*
+<small> *The Bundeswehr Military History Museum*
 
 This museum showcases Germany's complicated relationship with warfare. The permanent exhibition guides visitors through German military history, from the Middle Ages, through to the devastating World Wars, to contemporary times. It is intended to be unbiased and explore human violence as a historical, cultural and anthropological phenomenon -- one which shapes our shared understanding of the past, present, and future.
 
-I also had the opportunity to experience some of Dresden's high culture with a night at the opera. I went along with my exchange friend and one
-
-![Dresden (2014) — photo 7](/assets/travelbig/dresden-07.jpg)
-
-of her German friends to see , a comic opera The Marriage of Figaro composed by Mozart. To be honest, I had zero idea what was going on, but the German friend assured me that it was 'very, very funny'.
+I also had the opportunity to experience some of Dresden's high culture with a night at the opera. I went along with my exchange friend and one of her German friends to see , a comic opera The Marriage of Figaro composed by Mozart. To be honest, I had zero idea what was going on, but the German friend assured me that it was 'very, very funny'.
 
 And I had the chance to enjoy some low, or perhaps 'alternative', culture. For instance, I found Dresden's Neustadt to be a very hip, very lively neighbourhood. My friend also took me to the Elbeflohmarkt, one of the oldest flea markets in the city. Here, I was able to admire piles upon piles of retro junk, East German communist paraphernalia, and potential trash-turned-treasure for sale.
-
-![The Kunsthofpassage Singing Drain Pipes.](/assets/travelbig/dresden-08.jpg)
-
-*The Kunsthofpassage Singing Drain Pipes.*
 
 I think I would like to visit this city again in ten, no, twenty years time...
 
 Perhaps by then the gaps of Dresden's Altstadt will have blossomed out, back into its former stony glory. Perhaps with time the Frauenkirche will no longer resemble the inside of a Hungarian bathhouse. Anything is possible with time enough to heal.
 
 ![The Elbe at sunset.](/assets/travelbig/dresden-09.jpg)
-
-*The Elbe at sunset.*
+<small> *The Elbe at sunset.* </small>
 
 Ah! Imagine that, Elbflorenz reborn!
 
 How I would love to waltz down Dresden's wide streets again. I would trace my fingers along the street art and ride the rumbling trams. I would kick through the dead leaves of Alaunpark and wander through the riverside flea market, before sailing down the Elbe itself to find out where all the pretty Saxony girls are.
 
-![Dresden (2014) — photo 10](/assets/travelbig/dresden-10.jpg)
-
-### Photo essay: Budapest (2014)
+### Budapest (2014)
 
 *Posted 1 December 2020*
 
 ![One of the famous stone lions of the Chain Bridge.](/assets/travelbig/photo-essay-budapest-01.jpg)
 
-*One of the famous stone lions of the Chain Bridge.*
-
 Budapest. Capital of Hungary. Lady of the Danube.
 
 In the miserly sun of a winter's day, it is cold, beautiful, and stony. A city of baroque and neoclassical houses, churches, monuments. A thrumming heart of hills and bridges in the land of Magyars.
 
-![Photo essay: Budapest (2014) — photo 2](/assets/travelbig/photo-essay-budapest-02.jpg)
-
 A quick stroll along the riverfront reveals the Hungarian Parliament Building. A demonic doom fortress, more like. The neo-gothic architecture is undoubtedly incredible – it is just that in a certain light it looks like a monstrous redback spider stalking the banks of the Danube...
-
-![Photo essay: Budapest (2014) — photo 3](/assets/travelbig/photo-essay-budapest-03.jpg)
 
 Strolling across the bridge, from the flat eastern half of inner Budapest to its hillier western portion, you reach the Fisherman's Bastion with its Neo-Romanesque, fairy tale towers located in the Buda Castle area. Here, I will always remember my conversation with an old Hungarian man who was surprised by the colour of my skin when I was a New Zealander, going as far as to rub my cheek briefly in curiosity.
 
@@ -432,81 +388,61 @@ Strolling across the bridge, from the flat eastern half of inner Budapest to its
 
 Located next door is Matthias Church, also known as the Church of the Assumption of the Buda Castle, a Roman Catholic church whose long-lost foundations date back to the 11th century. Whatever had originally stood there was destroyed during the Mongol invasions, its predecessor was severely damaged by the Ottoman invasions of Hungary, as well as bombarded by Allied forces near the end of World War II. But the peaceful decades that followed has been kind to this location, allowing it to heal back to glory.
 
-![Photo essay: Budapest (2014) — photo 5](/assets/travelbig/photo-essay-budapest-05.jpg)
-
 Speaking of the region's history, the name 'Budapest' came about from the 1873 unification of three separate towns in the area called Buda, Óbuda, and Pest.
-
-![Photo essay: Budapest (2014) — photo 6](/assets/travelbig/photo-essay-budapest-06.jpg)
 
 Today, Budapest is a youthful, culturally zestful city but this was a hard-won status. It suffered under not only Nazi Germany, but also under Soviet military occupation during the Cold War era, all the way to 1991. Political change has been largely kind to Budapest.
 
-![Photo essay: Budapest (2014) — photo 7](/assets/travelbig/photo-essay-budapest-07.jpg)
-
 Another highlight: Buda Castle, a historical castle and palace complex that once belonged to the Hungarian kings of yore. It is pleasant to visit, but if the architecture seems a little dry then you should know that your instincts are correct. The palace was gutted in the 1950s since the communist government of Hungary considered it a symbol of the former regime. What visitors now see is largely a 'modernist' creation, reconstructed in the vision of a new post-war order.
 
-![Photo essay: Budapest (2014) — photo 8](/assets/travelbig/photo-essay-budapest-08.jpg)
+![Photo essay: Budapest (2014) — photo 14a](/assets/travelbig/photo-essay-budapest-14a.jpg)
 
-And behold: St. Stephen's Basilica, a neoclassical Roman Catholic basilica named in honour of the first King of Hungary and undoubtedly the most important church structure in Hungary.
-
-![Photo essay: Budapest (2014) — photo 9](/assets/travelbig/photo-essay-budapest-09.jpg)
-
-When I visited it, the sunlight struck its interior in such a delicate way, I felt as though I was walking around in a meditative, dreamlike state. I gazed at its finely painted cupola, at its sanctuary and altar, at its statues and stained glass windows. I floated. I was washed in wordless wool-gathering.
-
-![Photo essay: Budapest (2014) — photo 10](/assets/travelbig/photo-essay-budapest-10.jpg)
-
-Pictured below: the Dohány Street Synagogue, the largest synagogue in Europe and the second-largest on the planet. Also pictured: the striking Anker Palace, an eclectic-style building constructed for a Viennese insurance company in 1908.
+And behold: St. Stephen's Basilica, a neoclassical Roman Catholic basilica named in honour of the first King of Hungary and undoubtedly the most important church structure in Hungary. When I visited it, the sunlight struck its interior in such a delicate way, I felt as though I was walking around in a meditative, dreamlike state. I gazed at its finely painted cupola, at its sanctuary and altar, at its statues and stained glass windows. I floated. I was washed in wordless wool-gathering.
 
 ![Photo essay: Budapest (2014) — photo 11](/assets/travelbig/photo-essay-budapest-11.jpg)
 
+And there's Dohány Street Synagogue, the largest synagogue in Europe and the second-largest on the planet. And over there, the striking Anker Palace, an eclectic-style building constructed for a Viennese insurance company in 1908.
+
 The Hospital in the Rock. Constructed in the caverns under Buda Castle, it served once as a vital medical station during the Siege of Budapest in WW2 and is now a museum that recreates those desperate days.
+
+![Photo essay: Budapest (2014) — photo 12](/assets/travelbig/photo-essay-budapest-12.jpg)
 
 The Budapest Cave Church. A modest if unusual church cut into side of Gellért Hill which overlooks the Danube. Once said to be the abode of a hermetic monk.
 
 The Liberty Statue, also on Gellért Hill. It is a monument to the Hungarians who sacrificed their lives for the independence, freedom, and prosperity of the nation. And may those days become renewed in Hungary soon...
 
-![Photo essay: Budapest (2014) — photo 12](/assets/travelbig/photo-essay-budapest-12.jpg)
+![Photo essay: Budapest (2014) — photo 13](/assets/travelbig/photo-essay-budapest-13.jpg)
 
 After nightfall, Budapest is bathed in golden electricity. It becomes, regardless of whether it is in crisp darkness or torpid fog, a city encased in amber, suspended like a gemstone.
 
-![Photo essay: Budapest (2014) — photo 13](/assets/travelbig/photo-essay-budapest-13.jpg)
-
 See here the bullet hole markers on the side of the Ministry of Agriculture Building. These mark the scars of Hungary's failed 1956 Revolution against Soviet domination. Then see the Soviet War Memorial in Liberty Square. Bizarrely, it is situated in the same square as a statue of US president Ronald Reagan. All hail Ronald of House Reagan, Czar of All America, Conqueror of Grenada, Redeemer of Nicaragua, and Destroyer of Communism!
-
-![Photo essay: Budapest (2014) — photo 14](/assets/travelbig/photo-essay-budapest-14.jpg)
 
 But enough about the politics and the past (for now). When I was in Budapest, I was able to link up with some friends who were also touring Europe and together we visited one of the city's hip and famous ruin bars – alcoholic lubrication establishments located in old, dilapidated and occasionally abandoned buildings.
 
-![Photo essay: Budapest (2014) — photo 15](/assets/travelbig/photo-essay-budapest-15.jpg)
-
 And Budapest, of course, is also nicknamed the Spa City. As such, no touristy visit to the city would be complete without a dip in the Széchenyi Medicinal Bath, the largest medicinal bath in Europe. Drawing on thermal springs, these public baths feature anywhere from pleasant 18°C pools to scalding 38°C hot pots.
 
-![Photo essay: Budapest (2014) — photo 16](/assets/travelbig/photo-essay-budapest-16.jpg)
+![Photo essay: Budapest (2014) — photo 14](/assets/travelbig/photo-essay-budapest-14.jpg)
 
 Nearby is the Heroes' Square, one of the major squares in the city. It is notable for its statue complex, depicting important national leaders as well as the legendary leaders of the seven tribes of the Hungarians that supposedly led their people into Central Europe near the end of the 9th century.
 
-![Photo essay: Budapest (2014) — photo 17](/assets/travelbig/photo-essay-budapest-17.jpg)
-
 And that concludes my remarks on Budapest, the so-called 'Paris of the East' and one of the best European cities to visit. I thought it was better than Prague, in fact (a city with a similar layout consisting of a flat eastern section and a palatial and hilly western quarter, divided by a river). Budapest is certainly a must-visit for any first-timers to this part of the continent.
 
-![Photo essay: Budapest (2014) — photo 18](/assets/travelbig/photo-essay-budapest-18.jpg)
+> *"And although she may have studied with an expert dialectician and grammarian, I can tell that she was born... HUNGARIAN!"*
 
-*"And although she may have studied with an expert dialectician and grammarian, I can tell that she was born... HUNGARIAN!"*
-
-## Photo essay: Roma invicta (2013, 2014)
+## Roma invicta (2013, 2014)
 
 *Posted 1 August 2020*
 
 ![Trevi Fountain at night](/assets/travelbig/photo-essay-roma-invicta-01.jpg)
 
-*Trevi Fountain at night*
+> "I have traveled a great deal in my life, and I should very much have liked to go to Rome, but I felt that I was not really up to the impression the city would have made upon me."
+>
+> -- Carl Jung, *Memories, Dreams, Reflections*
 
-"I have traveled a great deal in my life, and I should very much have liked to go to Rome, but I felt that I was not really up to the impression the city would have made upon me." - Carl Jung, Memories, Dreams, Reflections So wrote Carl Gustav Jung, the famous Swiss psychotherapist and former discipline of Freud, in a partially autobiographical book. For Jung, Rome was where "classical antiquity still lived in all its splendour and ruthlessness". The city was an overpowering place of classical heritage which he feared his mind would be unable to cope with and, indeed, when Jung once attempted to purchase a ticket to Rome in his old age, he was "stricken with a faint" after which "the plans for a trip to Rome were once and for all laid aside"
+So wrote Carl Gustav Jung, the famous Swiss psychotherapist and former discipline of Freud, in a partially autobiographical book. For Jung, Rome was where "classical antiquity still lived in all its splendour and ruthlessness". The city was an overpowering place of classical heritage which he feared his mind would be unable to cope with and, indeed, when Jung once attempted to purchase a ticket to Rome in his old age, he was "stricken with a faint" after which "the plans for a trip to Rome were once and for all laid aside"
 
 It is hard for most people, myself included, to empathise with Jung's mind-state. Every year, millions of visitors descend upon the Italian capital, and --- while many may see it as an intellectual or historical pilgrimage of sorts --- few would have described its incoming presence in such potent, dizzying terms.
 
 What new is there to say about Rome? Very little, I imagine. And the hidden narratives of the Eternal City may well be like Jung's swooning fear: too fraught, too colossal, too ambitious to completely cognise.
-
-![Photo essay: Roma invicta (2013, 2014) — photo 2](/assets/travelbig/photo-essay-roma-invicta-02.jpg)
 
 Piazza della Repubblica and the Fountain of the Naiads. Maybe it was because it was the tourist off-season, or maybe it was because I was lucky, but I found Roman drivers very manageable and not as hectic as people have told me. In fact, it was the pedestrians that seemed to be the bad actors much of the time. Mind you, I've been to plenty of wild traffic places in Asia and elsewhere, so maybe my standards have fallen.
 
@@ -524,25 +460,17 @@ Due to my poor research efforts before arriving in Rome, I was unaware of the ex
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 5](/assets/travelbig/photo-essay-roma-invicta-05.jpg)
 
-Amusingly, the monument has been criticised for its appearance and has been compared to a wedding cake (white and layered), a set of dentures (with toothy columns), and a typewriter (wide and boxy).
-
-The monument also doubles as a war memorial, honouring Italy's dead from the First World War. There is a Tomb of the Unknown Soldier, as well as an eternal flame, under the watchful gaze of a statue of Roma --- the ancient Roman goddess personifying the city itself.
-
-![Photo essay: Roma invicta (2013, 2014) — photo 6](/assets/travelbig/photo-essay-roma-invicta-06.jpg)
+Amusingly, the monument has been criticised for its appearance and has been compared to a wedding cake (white and layered), a set of dentures (with toothy columns), and a typewriter (wide and boxy). The monument also doubles as a war memorial, honouring Italy's dead from the First World War. There is a Tomb of the Unknown Soldier, as well as an eternal flame, under the watchful gaze of a statue of Roma --- the ancient Roman goddess personifying the city itself.
 
 A dreary climate harangued me throughout Europe in December and January. I did not even bother packing an umbrella, thinking that the dampness would eventually clear (or even better, turn to snow). Sadly, this was not to be. Nevertheless, it was moments like these --- such as when I had an awe-inspiring view of the Colosseum straight down the middle of the road --- that made me forget the misery of rainfall and slippery asphalt.
 
-The alluring, yet moody ruins of Rome. Tree stumps of marble. A ribcage of pillars. Mossy foundation stones. All of it ossified, suspended in both time and space, signifying a glorious and dead past that will
+The alluring, yet moody ruins of Rome. Tree stumps of marble. A ribcage of pillars. Mossy foundation stones. All of it ossified, suspended in both time and space, signifying a glorious and dead past that will never truly die as long as people continue to speculate and fantasise about it.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 7](/assets/travelbig/photo-essay-roma-invicta-07.jpg)
-
-never truly die as long as people continue to speculate and fantasise about it.
+![Photo essay: Roma invicta (2013, 2014) — photo 8](/assets/travelbig/photo-essay-roma-invicta-08.jpg)
 
 The Arch of Constantine during restoration work and half-obscured by scaffolding. It was erected in 315 AD in honour of Emperor Constantine's victory at the Battle of the Milvian Bridge, a battle which is traditionally marked as the beginning of his, and the Roman Empire's, conversion to Christianity.
 
 What's interesting about this arch is that it is effectively an ancient Roman hack-job. Almost all the sculptures on this arch were taken from earlier Roman monuments, with the faces of previous emperors crudely recut to look like Constantine's. The arch was, as the English classicist SPQR , "a costly and destructive exercise Mary Beard puts it in her book in nostalgia" that sought to place "the new emperor in the illustrious tradition of the old".
-
-![Photo essay: Roma invicta (2013, 2014) — photo 8](/assets/travelbig/photo-essay-roma-invicta-08.jpg)
 
 The Roman Forum is a sprawl of archaeological treasures. Every cluster of fragments, every clutter of excavated matter tells hundreds upon hundreds of stories.
 
@@ -553,8 +481,9 @@ The Tabularium. The Temple of Antoninus and Faustina. The Arch of Titus. The Col
 *The Temple of Saturn at the foot of Capitoline Hill*
 
 To quote Ezra Pound:
+> "Behold how pride and ruin can befall One who hath set the whole world 'neath her laws, All-conquering, now conquered, because She is Time's prey, and Time conquereth all."
 
-"Behold how pride and ruin can befall One who hath set the whole world 'neath her laws, All-conquering, now conquered, because She is Time's prey, and Time conquereth all." Trevi Fountain. is without a doubt the most famous fountain in all of Europe, if not the entire world. I found its resplendent Baroque imagery and salubrious rush of water quite captivating. And yes --- I did the cheesy touristy thing and threw a coin into the fountain. And no one should feel bad about it either! Apparently, thousands of Euros land in it every day, which is then scooped up to fund food for the poor.
+Trevi Fountain. is without a doubt the most famous fountain in all of Europe, if not the entire world. I found its resplendent Baroque imagery and salubrious rush of water quite captivating. And yes --- I did the cheesy touristy thing and threw a coin into the fountain. And no one should feel bad about it either! Apparently, thousands of Euros land in it every day, which is then scooped up to fund food for the poor.
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 10](/assets/travelbig/photo-essay-roma-invicta-10.jpg)
 
@@ -646,9 +575,7 @@ So farewell, Roma. A fond goodbye to dead stone and bottomless culture, to Itali
 
 Ave atque vale. All roads lead somewhere. Or maybe they lead nowhere. But at least I'm glad I could make a brief detour for Rome
 
-![Photo essay: Roma invicta (2013, 2014) — photo 27](/assets/travelbig/photo-essay-roma-invicta-27.jpg)
-
-## Photo essay: Venice (2014)
+## Venice (2014)
 
 *Posted 2 August 2020*
 
@@ -774,91 +701,85 @@ Midnight on the Charles Bridge. The hawkers, pickpockets, and beggars of Prague 
 
 I stand around on the bridge for a few more minutes, readying myself for something to happen. But nothing does.
 
-"Because I had to fast. I can't do anything else," said the hunger artist. "Just look at you," said the supervisor, "why can't you do anything else?" "Because," said the hunger artist, lifting his head a little and, with his lips pursed as if for a kiss, speaking right into the supervisor's ear so that he wouldn't miss anything, "because I couldn't find a food which I enjoyed. If had found that, believe me, I would not have made a spectacle of myself and would have eaten to my heart's content, like you and everyone else."
+![Prague (2014) — photo 1](/assets/travelbig/prague-01.jpg)
 
---- A Hunger Artist I once posted a review of Milan Kundera's "The Unbearable Lightness of Being" on social media that pissed off a few people. The review simply said this:
+> "Because I had to fast. I can't do anything else," said the hunger artist. "Just look at you," said the supervisor, "why can't you do anything else?" "Because," said the hunger artist, lifting his head a little and, with his lips pursed as if for a kiss, speaking right into the supervisor's ear so that he wouldn't miss anything, "because I couldn't find a food which I enjoyed. If had found that, believe me, I would not have made a spectacle of myself and would have eaten to my heart's content, like you and everyone else."
+>
+> -- A Hunger Artist 
 
-"As far as I can tell, the whole point of the novel is that the Soviet invasion of Czechoslovakia was great since it gave the intelligentsia of Prague lots of time to have sex with each other." I think I still stand by that review.
+I once posted a review of Milan Kundera's "The Unbearable Lightness of Being" on social media that pissed off a few people. The review simply said this: "As far as I can tell, the whole point of the novel is that the Soviet invasion of Czechoslovakia was great since it gave the intelligentsia of Prague lots of time to have sex with each other." I think I still stand by that review.
 
-"Everyone strives after the law," says the man, "so how is it that in these many years no one except me has requested entry?" The gatekeeper sees that the man is already dying and, in order to reach his diminishing sense of hearing, he shouts at him, "Here no one else can gain entry, since this entrance was assigned only to you. I'm going now to close it."
+> "Everyone strives after the law," says the man, "so how is it that in these many years no one except me has requested entry?" The gatekeeper sees that the man is already dying and, in order to reach his diminishing sense of hearing, he shouts at him, "Here no one else can gain entry, since this entrance was assigned only to you. I'm going now to close it."
+>
+> --- Before the Law
 
---- Before the Law Shown above: the infamous window where the defenestration of Prague occurred. It was here in 1618 that two Catholic Imperial governors were tossed out a window by Bohemian Protestants (supposedly landing in a pile of horse manure, which broke their fall), triggering the start of the Thirty Year War, a brutal European conflict that led to the death of a third of the population of the Holy Roman Empire.
+Shown here (allegedly): the infamous window where the defenestration of Prague occurred. It was here in 1618 that two Catholic Imperial governors were tossed out a window by Bohemian Protestants (supposedly landing in a pile of horse manure, which broke their fall), triggering the start of the Thirty Year War, a brutal European conflict that led to the death of a third of the population of the Holy Roman Empire.
 
-While they amused themselves in this way, it struck Mr. and Mrs. Samsa almost at the same moment how their daughter, who was getting more animated all the time, had blossomed recently, in spite of all the troubles which had made her cheeks pale, into a beautiful and voluptuous young woman. Growing more silent and almost unconsciously understanding each other in their glances, they thought that the time was now at hand to seek out a good honest man for her.
+![Prague (2014) — photo 2](/assets/travelbig/prague-02.jpg)
 
---- The Metamorphosis But how? But how what? But how what why? But how what why who? But how what why who when? But how what why who when where?
+> While they amused themselves in this way, it struck Mr. and Mrs. Samsa almost at the same moment how their daughter, who was getting more animated all the time, had blossomed recently, in spite of all the troubles which had made her cheeks pale, into a beautiful and voluptuous young woman. Growing more silent and almost unconsciously understanding each other in their glances, they thought that the time was now at hand to seek out a good honest man for her.
+>
+> -- The Metamorphosis But how? But how what? But how what why? But how what why who? But how what why who when? But how what why who when where?
 
 It was the waiter at Charles Bridge with a digital camera at 2 o'clock because there was a turgid, nippy love triangle under a nearby lamppost.
 
 Turgid (adj.): 1610s, from Latin turgidus meaning "swollen, inflated, distended", and from turgere "meaning to swell", of forgotten origin. Earliest use in prose appears to date back to 1725.
 
-"Giddy up," he says and claps his hands. The carriage is torn away, like a piece of wood in a current. I still hear how the door of my house is breaking down and splitting apart under the groom's onslaught, and then my eyes and ears are filled with a roaring sound which overwhelms all my senses at once. But only for a moment.
+> "Giddy up," he says and claps his hands. The carriage is torn away, like a piece of wood in a current. I still hear how the door of my house is breaking down and splitting apart under the groom's onslaught, and then my eyes and ears are filled with a roaring sound which overwhelms all my senses at once. But only for a moment.
+>
+> -- A Country Doctor
 
---- A Country Doctor "Oi Prague, Czech it out!" said the tired old lark.
+"Oi Prague, Czech it out!" said the tired old lark.
 
-What all the others had found in the machine, the Officer had not. His lips were pressed firmly together, his eyes were open and looked as they had when he was alive, his gaze was calm and convinced. The tip of a large iron needle had gone through his forehead.
+> What all the others had found in the machine, the Officer had not. His lips were pressed firmly together, his eyes were open and looked as they had when he was alive, his gaze was calm and convinced. The tip of a large iron needle had gone through his forehead.
+>
+> --- In the Penal Colony
 
---- In the Penal Colony Oh dear, and here creaks the Prague Metronome, overlooking the Vltava River and the city herself. This grand pendulum, an artistic piece about the temporality of all things, has very aptly seen better days...
+Oh dear, and here creaks the Prague Metronome, overlooking the Vltava River and the city herself. This grand pendulum, an artistic piece about the temporality of all things, has very aptly seen better days...
 
-And if he finally burst through the outermost door---but that can never, never happen---the royal capital city, the centre of the world, is still there in front of him, piled high and full of sediment. No one pushes his way through here, certainly not someone with a message from a dead man. But you sit at your window and dream of that message when evening comes.
+![Prague (2014) — photo 2](/assets/travelbig/prague-03.jpg)
 
---- An Imperial Message ( Strč prst skrz krk.)
+> And if he finally burst through the outermost door---but that can never, never happen---the royal capital city, the centre of the world, is still there in front of him, piled high and full of sediment. No one pushes his way through here, certainly not someone with a message from a dead man. But you sit at your window and dream of that message when evening comes.
+>
+> --- An Imperial Message
 
-But the hands of one of the gentleman were laid on K.'s throat, while the other pushed the knife deep into his heart and twisted it there, twice. As his eyesight failed, K. saw the two gentlemen cheek by cheek, close in front of his face, watching the result. "Like a dog!" he said, it was as if the shame of it should outlive him.
+( Strč prst skrz krk.)
 
---- The Trial
-
-![Prague (2014) — photo 1](/assets/travelbig/prague-01.jpg)
+> But the hands of one of the gentleman were laid on K.'s throat, while the other pushed the knife deep into his heart and twisted it there, twice. As his eyesight failed, K. saw the two gentlemen cheek by cheek, close in front of his face, watching the result. "Like a dog!" he said, it was as if the shame of it should outlive him.
+>
+> -- The Trial
 
 ## "Holy sight-See-ing" (2013)
 
 *Posted 2 September 2020*
 
 ![St. Peter's Square at sunrise](/assets/travelbig/holy-sight-see-ing-01.jpg)
+<small> *St. Peter's Square at sunrise* </small>
 
-*St. Peter's Square at sunrise*
-
-### Vatican City photo galleries
+### Vatican City
 
 When one is in Rome, it would be remiss of them not to stop by the Vatican City, the smallest sovereign state on the planet. The moment one steps inside St. Peter's Square, they are transported outside of Italy and into the realm of an absolute theocratic monarchy, heading a religion with 1.3 billion members worldwide One of my most memorable experiences in Europe was climbing the dome of St. Peter's Basilica and being the first person on the roof that morning. Just myself and the apostles overlooking Rome at sunrise. The bells suddenly thundered and I watched pigeons explode into the air. Extraordinary.
-
-!["Holy sight-See-ing" (2013) — photo 2](/assets/travelbig/holy-sight-see-ing-02.jpg)
 
 The basilica is, without a doubt, one of the most breathtaking human creations I have ever entered. What a strange word. Can Breathtaking. such vaulted scale and religious beauty literally interrupt a person's breathing? Can such a centrepiece of world culture still strike awe into someone, like me, who holds no faith? I certainly believe so.
 
 I remember being fixated on the dark sculpted canopy that loomed over the high altar. St. Peter's Baldachin. Its twisting columns were like the legs of some titanic creature, but not of this world.
 
-!["Holy sight-See-ing" (2013) — photo 3](/assets/travelbig/holy-sight-see-ing-03.jpg)
-
 I was also entranced by the statues that populated the cavernous space of the basilica. Michelangelo's Pietà was a powerful Renaissance marvel. Likewise, the other statues were works of gorgeous craftsmanship which captured the elegant motions and intense expressions of saintly and papal figures. It seemed as though if one were to merely prod them, they would stir into life.
-
-!["Holy sight-See-ing" (2013) — photo 4](/assets/travelbig/holy-sight-see-ing-04.jpg)
 
 A visit to Vatican City is really an immersion in two parts. The first, of course, is done by entering the great world church of St. Peter's Basilica. The second is undertaken by exploring the Vatican Museums, where the full force of the Roman Catholic Church's wealth and influence across time and space is on display. Priceless frescoes, statues, and paintings --- all of it hoarded, or created, within the Vatican's ecclesiastical dominion.
 
-!["Holy sight-See-ing" (2013) — photo 5](/assets/travelbig/holy-sight-see-ing-05.jpg)
-
 Some of my personal highlights from the Vatican Museum:
 
-Laocoön and His Sons, one of the most famous ancient sculptures excavated in Rome.
+- Laocoön and His Sons, one of the most famous ancient sculptures excavated in Rome.
+- A statue of Artemis of Ephesus, a goddess of fertility, that is decorated with bull testicles.
+- An enormous porphyry basin from imperial Rome, flanked by gilded bronze statue of Hercules.
+- The porphyry sarcophagi of Helena and Constantina, the mother and daughter of Emperor Constantine the Great.
+- The Maps Gallery, surely one of the most astonishingly beautiful hallways ever created.
+- The School of Athens by Raphael, a painting which depicts some of the greatest thinkers of classical antiquity.
 
-A statue of Artemis of Ephesus, a goddess of fertility, that is decorated with bull testicles.
+A journey into the Vatican Museums is also a journey into the Sistine Chapel, which is celebrated for containing perhaps the most celebrated artistic achievement in all of human history. The effect of the Sistine Chapel, however, is mildly dampened by the frequent snap of the guards: "No photo! No camera!" 
 
-An enormous porphyry basin from imperial Rome, flanked by gilded bronze statue of Hercules.
-
-The porphyry sarcophagi of Helena and Constantina, the mother and daughter of Emperor Constantine the Great.
-
-The Maps Gallery, surely one of the most astonishingly beautiful hallways ever created.
-
-The School of Athens by Raphael, a painting which depicts some of the greatest thinkers of classical antiquity.
-
-!["Holy sight-See-ing" (2013) — photo 6](/assets/travelbig/holy-sight-see-ing-06.jpg)
-
-A journey into the Vatican Museums is also a journey into the Sistine Chapel, which is celebrated for containing perhaps the most celebrated artistic achievement in all of human history. The effect of the Sistine Chapel, however, is mildly dampened by the frequent snap of the guards:
-
-!["Holy sight-See-ing" (2013) — photo 7](/assets/travelbig/holy-sight-see-ing-07.jpg)
-
-"No photo! No camera!" It is a space where the demand for hushed contemplation and the burning desire of tourists to capture everything they see is pressed into an unresolvable, endless tension.
+It is a space where the demand for hushed contemplation and the burning desire of tourists to capture everything they see is pressed into an unresolvable, endless tension.
 
 I felt too sheepish and too discouraged to take any photos within the chapel, illegal or otherwise. Regardless, I doubt any device of mine could've captured Michelangelo's heavenly ceiling, so far above us. Better to crane one's head and try to take in as much as possible, for however brief a time.
 
@@ -984,9 +905,7 @@ At the very least, it now means that simple, ignoble commoners like you and I ca
 
 *Posted 15 May 2023*
 
-![1.](/assets/travelbig/berlin-01.jpg)
-
-*1.*
+### 1.
 
 Standing behind the yellow line at Alexanderplatz, I wait for the next scheduled arrival of German efficiency. A drunkard in a khaki jacket staggers around on the platform, holding a plastic bag full of empty beer bottles.
 
@@ -994,25 +913,19 @@ A couple of the bottles roll onto the tracks. He jumps down onto the tracks and 
 
 'Jesus Christ', I say. The man standing next to me agrees. 'Crazy', he says.
 
-![2.](/assets/travelbig/berlin-02.jpg)
-
-*2.*
+### 2.
 
 Lachlan joined us at the hostel with a grizzled Cat Stevens beard, looking broken, out-of-sorts, a dark lank sulk. From the moment I re-laid eyes on him, I knew that agreeing to accompany him was an error. Before long we were bickering like an old married couple as we walked the East Berlin streets. We snapped at each other at the Christmas markets and had unproductive exchanges at Checkpoint Charlie. He berated me in my cups at a bar and I avoided him like a bad cough when we trudged around Potsdam.
 
 Nothing seemed to be able to make him happy and all he could talk about was his miserable Canberra gossip, his miserable ANU politics, his overwhelming retentive misery. Did I mention I regretted being in Berlin with him? The glummiest grumpster holidaying Germany in December of 2013...
 
-![3.](/assets/travelbig/berlin-03.jpg)
-
-*3.*
+### 3.
 
 It became night so quickly at that time of year. And even though I expected it and tried my best to prepare for it, I was still stunned by how sun-robbed and day-poverished my hours were. It was an effort to push and enjoy what I could of this grimy, captivating capital in the little natural light that there was. No amount of glühwein or bratwurst or cheap suspect kebab meat could nourish my body's hunger for more sunlight.
 
 The priceless art and archaeology of Museum Island felt diminished in the stale, cement-like air while that strip of energetic street art on the remnants of the Berlin Wall seemed a doleful afterthought. The Brandenburg Gate was a weakness of stalks. A dark wetness sucked at every surface. The only thing that became unlost was the Holocaust Memorial: its normally baffling, oft-critiqued blocks finally rendered appropriately brutal.
 
-![4.](/assets/travelbig/berlin-04.jpg)
-
-*4.*
+### 4.
 
 The Christmas dinner came from a dumpster, according to my friend from Oxford. He was living in a share house (a commune?) with a large group of international students, some of whom evidently had a passion for zero supply chain waste. A plate of meatballs, some bread and potatoes, and a drop of wine. Not bad at all. Though the salad didn't look that good and had to be re-discarded.
 
@@ -1020,21 +933,21 @@ It was good to be in his company again, after studying with him many, many month
 
 The next evening, I had a hearty plate of Bavarian food at a restaurant for dinner.
 
-![5.](/assets/travelbig/berlin-05.jpg)
+### 5.
 
-*5.*
-
---- Mr Liu, these impressions of Berlin are a decade old! Why write these at all? --- You're right, terribly right. Blinking at these photos it's almost like the pixels have faded, degraded as if on print. Trying to come up with these anecdotes, it's like remembering a past life. Maybe the Hindus and the Buddhists are right after all... --- Why not just go back? Replace the sad and cold with the warm and sparkly, do a reboot, a redux, etcetera, etcetera, that sort of stuff?
-
---- Ah, here's the rub: I don't think I will go back, and even if I did, this version of myself and the city no longer exists. Delicious and broody... sweet and resentful... it's all a former incarnation, now untouchable, now impossible to interrogate. --- Agreed, Mr Liu. But then I must ask, why go off at all? --- Verily, I could not tell you.
+... Mr Liu, these impressions of Berlin are a decade old! Why write these at all? 
+... You're right, terribly right. Blinking at these photos it's almost like the pixels have faded, degraded as if on print. Trying to come up with these anecdotes, it's like remembering a past life. Maybe the Hindus and the Buddhists are right after all. 
+... Why not just go back? Replace the sad and cold with the warm and sparkly, do a reboot, a redux, etcetera, etcetera, that sort of stuff?
+... Ah, here's the rub: I don't think I will go back, and even if I did, this version of myself and the city no longer exists. Delicious and broody. Sweet and resentful. It's all a former incarnation, now untouchable, now impossible to interrogate
+... Agreed, Mr Liu. But then I must ask, why go off at all?
+... Verily, I could not tell you.
 
 ## The Louvre... in rhyming couplets (2013)
 
 *Posted 18 July 2020*
 
 ![The Galerie d'Apollon](/assets/travelbig/the-louvre-in-rhyming-couplets-01.jpg)
-
-*The Galerie d'Apollon*
+<small> *The Galerie d'Apollon* </small>
 
 ### Musée du Louvre, a poem
 
@@ -1204,19 +1117,14 @@ We were spooked and the two of us scampered for the safety of solid earth. In my
 
 *Posted 9 March 2022*
 
-![A view of Tiananmen Square and the Forbidden City](/assets/travelbig/beijing-s-museums-01.jpg)
-
 *A view of Tiananmen Square and the Forbidden City*
 
 Many, many years back I spent a cold and drab winter in the capital city of Beijing. In between dealing with the chilly weather, unbearable air pollution, and some mild culture shock, I was able to squeeze in some of my classic museum visits.
 
-The National Museum of China Located to the east of Tiananmen Square, the National Museum of China is a major repository for artistic and cultural artefacts from across the epic span of Chinese history, with a specific focus on its more recent communist history. If you like jade burial suits, ancient bronze vessels, shining porcelain, socialist propaganda, and stirring paintings of Chairman Mao, this is the place for you.
-
-The Capital Museum This is a spacious and classy art museum with a carefully curated collection of Chinese ceramics, bronzeware, calligraphy scrolls, landscape paintings, carved jade, coins and banknotes, sculptures, among other artefacts. Certainly worth your time if you want even more than what the National Museum of China offers.
-
-The People's Revolution Military Museum This museum is dedicated to the staggering amounts of military equipment from the history of the People's Liberation Army. If you like guns, tanks, and anything that makes stuff violently explode, this place is worth pencilling into your Beijing itinerary.
-
-The China Science and Technology Museum As the name suggests, this museum administers an accessible collection of cultural and scientific exhibits for the general public. It is alright, but definitely not one of the most impressive science-focused museums I've been to. Give it a skip if you ask me.
+- The National Museum of China: Located to the east of Tiananmen Square, the National Museum of China is a major repository for artistic and cultural artefacts from across the epic span of Chinese history, with a specific focus on its more recent communist history. If you like jade burial suits, ancient bronze vessels, shining porcelain, socialist propaganda, and stirring paintings of Chairman Mao, this is the place for you.
+- The Capital Museum: This is a spacious and classy art museum with a carefully curated collection of Chinese ceramics, bronzeware, calligraphy scrolls, landscape paintings, carved jade, coins and banknotes, sculptures, among other artefacts. Certainly worth your time if you want even more than what the National Museum of China offers.
+- The People's Revolution Military Museum: This museum is dedicated to the staggering amounts of military equipment from the history of the People's Liberation Army. If you like guns, tanks, and anything that makes stuff violently explode, this place is worth pencilling into your Beijing itinerary.
+- The China Science and Technology Museum: As the name suggests, this museum administers an accessible collection of cultural and scientific exhibits for the general public. It is alright, but definitely not one of the most impressive science-focused museums I've been to. Give it a skip if you ask me.
 
 ## The Great Wall of China
 
@@ -1229,8 +1137,6 @@ Finally, I arrive at the ancient fortifications. It staggers belief that this st
 The ramparts of the old dynasties: stone, brick, rammed earth stretching as far as the eye can see. Built by the indomitable will of the emperor and the innumerable bones of his labourers. It's hard to imagine what the land must have been like back when the nomadic raiders of the Eurasian Steppes bashed against its great bulwark and crumbled into dust. It's even harder to imagine what it must have been like when, time and time again, the horsemen breached the wall.
 
 I race up the battlements to a vacant watchtower, then hike over to another, and then another. Tourists are dotted all along the wall, scattered like pebbles across its winding back. There are many visitors, but they are diffuse. There's no natural congregation point along the Great Wall -- you can walk as much or as little of it as you want. The wall doesn't care. It knows it cannot be conquered on foot. It simply never ends.
-
-![The Great Wall of China — photo 1](/assets/travelbig/the-great-wall-of-china-01.jpg)
 
 ## Hakone: Narrow road to the deep north (2012)
 
