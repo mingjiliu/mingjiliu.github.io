@@ -270,7 +270,7 @@ Day One: The Grand Palace, Wat Phra Kaew, Wat Saket, and Wat Suthat. Day Two: Wa
 
 What better way to start the speedrun than taking the passenger ferry down the great and muddy Chao Phraya River?
 
-Damn. I look at these old photos from early 2015 and have to both laugh and cringe a bit at my younger self. How different I used to look! How chubby and sweaty. That unfortunate haircut and inelegant pose. What kind of a small boy, half-man, soft animal I was, both outside and within! Funny what the years can do to my perspectives on things...
+Damn. I look my Thailand travel pics from early 2015 and have to both laugh and cringe a bit at my younger self. How different I used to look! How chubby and sweaty. That unfortunate haircut and inelegant pose. What kind of a small boy, half-man, soft animal I was, both outside and within! Funny what the years can do to my perspectives on things.
 
 ### The Grand Palace and Wat Phra Kaew
 
@@ -719,7 +719,9 @@ Shown here (allegedly): the infamous window where the defenestration of Prague o
 
 > While they amused themselves in this way, it struck Mr. and Mrs. Samsa almost at the same moment how their daughter, who was getting more animated all the time, had blossomed recently, in spite of all the troubles which had made her cheeks pale, into a beautiful and voluptuous young woman. Growing more silent and almost unconsciously understanding each other in their glances, they thought that the time was now at hand to seek out a good honest man for her.
 >
-> -- The Metamorphosis But how? But how what? But how what why? But how what why who? But how what why who when? But how what why who when where?
+> -- The Metamorphosis
+
+But how? But how what? But how what why? But how what why who? But how what why who when? But how what why who when where?
 
 It was the waiter at Charles Bridge with a digital camera at 2 o'clock because there was a turgid, nippy love triangle under a nearby lamppost.
 
