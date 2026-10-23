@@ -832,20 +832,20 @@ In mulling over these thoughts, I'm reminded of a poem by the American poet Mari
 
 > **No Swan so Fine**
 >
-> *"No water so still as the*</b>
->     *dead fountains of Versailles." No swan,*</b>
-> *with swart blind looks askance*</b>
-> *and ambidextrous legs, so fine*</b>
->    *as the chintz china one with fawn-*</b>
-> *brown eyes and tooth gold*</b>
->    *collar on to show whose bird it was.*</b>
+> *"No water so still as the*<br>
+> &nbsp;&nbsp;&nbsp;&nbsp;*dead fountains of Versailles." No swan,*<br>
+> *with swart blind looks askance*<br>
+> *and ambidextrous legs, so fine*<br>
+> &nbsp;&nbsp;&nbsp;&nbsp;*as the chintz china one with fawn-*<br>
+> *brown eyes and tooth gold*<br>
+> &nbsp;&nbsp;&nbsp;&nbsp;*collar on to show whose bird it was.*<br>
 >
-> *Lodged in the Louis Fifteenth*</b>
->    *candelabrum-tree of cockscomb-*</b>
-> *tinted buttons, dahlias,*</b>
-> *sea-urchins and everlastings,*</b>
->    *it perches on the branching foam*</b>
-> *of polished sculptured*</b>
+> *Lodged in the Louis Fifteenth*<br>
+> &nbsp;&nbsp;&nbsp;&nbsp;*candelabrum-tree of cockscomb-*<br>
+> *tinted buttons, dahlias,*<br>
+> *sea-urchins and everlastings,*<br>
+> &nbsp;&nbsp;&nbsp;&nbsp;*it perches on the branching foam*<br>
+> *of polished sculptured*<br>
 > *flowers---at ease and tall. The king is dead.*
 
 The king is dead. The foundations are dead. Everything in the Palace of Versailles is beautiful and exquisitely ornate, yes, but it is also ossified. Suspended and lifeless. Locked in a fanciful cage of impotence.
