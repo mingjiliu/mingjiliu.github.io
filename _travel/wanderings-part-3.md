@@ -166,8 +166,6 @@ A picture on the road to Aoraki/Mount Cook, the highest mountain in New Zealand.
 
 *Posted 9 September 2020*
 
-![Ayutthaya Historical Park (2015) — photo 1](/assets/travelbig/ayutthaya-historical-park-01.jpg)
-
 ### Cycling across the Ayutthaya Kingdom
 
 85 km north of Bangkok is a little archaeological gem known as the **Ayutthaya Historical Park**, once the capital of a fabulous Siamese kingdom and now a UNESCO World Heritage Site. Like most tourists, a friend and I visited the site as a day-trip destination from chaotic Bangkok. The train ride there from Bangkok's Hualamphong Train Station was surprisingly clean, undramatic and very, very affordable.
@@ -953,43 +951,54 @@ The next evening, I had a hearty plate of Bavarian food at a restaurant for dinn
 
 ### Musée du Louvre, a poem
 
-Beyond the glass pyramids in the navel of Paris Was a collection so colossal it truly did scare us. The Louvre: the biggest art museum on the planet! You couldn't see it all in one day, even if you ran it.
+Beyond the glass pyramids in the navel of Paris
+Was a collection so colossal it truly did scare us.
+The Louvre: the biggest art museum on the planet!
+You couldn't see it all in one day, even if you ran it.
 
-![The Louvre... in rhyming couplets (2013) — photo 2](/assets/travelbig/the-louvre-in-rhyming-couplets-02.jpg)
+Originally, it was the palace of a lavish dynasty
+Till it was opened up by revolutionaries in 1793.
+A vault of masterpieces unlocked for crowds;
+To this very day, its prestige is up in the clouds.
 
-Originally, it was the palace of a lavish dynasty Till it was opened up by revolutionaries in 1793. A vault of masterpieces unlocked for crowds; To this very day, its prestige is up in the clouds.
+But I'll say it right now -- Mona Lisa's overrated.
+Tourists rabble around her, crassly captivated,
+Ignoring the stunning art that shares her wing,
+Other grand works that also merit worshipping.
 
-But I'll say it right now -- Mona Lisa's overrated. Tourists rabble around her, crassly captivated, Ignoring the stunning art that shares her wing, Other grand works that also merit worshipping.
+I loved Jacques-Louis David's dramatic stances, 
+Delacroix's motions, and Ingres's erotic glances;
+I loved the sculpture garden, bathed in whiteness,
+And the Apollo Gallery in all its stupid glitziness.
 
-![The Louvre... in rhyming couplets (2013) — photo 3](/assets/travelbig/the-louvre-in-rhyming-couplets-03.jpg)
+But after a while, the images seem to roll on repeat,
+Like ugly Christ Childs suckling Holy Mother's teat,
+Medieval altarpieces displaying brutalised saints,
+Or creepy Flemish reptile people in oily paints.
 
-I loved Jacques-Louis David's dramatic stances, Delacroix's motions, and Ingres's erotic glances; I loved the sculpture garden, bathed in whiteness, And the Apollo Gallery in all its stupid glitziness.
+More military portraits. More tortured passions. 
+Kitchen sink still lifes in all its Dutch fashions. 
+Long halls of Biblical and historical extracts...
+Long as the list of Louvre's ill-gotten artefacts.
 
-![The Louvre... in rhyming couplets (2013) — photo 4](/assets/travelbig/the-louvre-in-rhyming-couplets-04.jpg)
+By the fifth hour, and with very little to eat,
+We began to feel art's burden on our tiny feet. 
+My friend turned and gave his main takeaway: 
+"I've heard it's much better at Musee d'Orsay."
 
-But after a while, the images seem to roll on repeat, Like ugly Christ Childs suckling Holy Mother's teat, Medieval altarpieces displaying brutalised saints, Or creepy Flemish reptile people in oily paints.
+The Greeks got a glance. The Etruscans, a blur. 
+I swear all these church icons are just to deter...
+We raced past old statues and so, so much more,
+Said hi to Venus de Milo, then bolted out the door.
 
-![The Louvre... in rhyming couplets (2013) — photo 5](/assets/travelbig/the-louvre-in-rhyming-couplets-05.jpg)
-
-More military portraits. More tortured passions. Kitchen sink still lifes in all its Dutch fashions. Long halls of Biblical and historical extracts --- Long as the list of Louvre's ill-gotten artefacts.
-
-By the fifth hour, and with very little to eat, We began to feel art's burden on our tiny feet. My friend turned and gave his main takeaway: "I've heard it's much better---the Musee d'Orsay."
-
-![The Louvre... in rhyming couplets (2013) — photo 6](/assets/travelbig/the-louvre-in-rhyming-couplets-06.jpg)
-
-The Greeks got a glance. The Etruscans, a blur. I swear all these church icons are just to deter... We raced past old statues and so, so much more, Said hi to Venus de Milo, then bolted out the door.
-
-![The Louvre... in rhyming couplets (2013) — photo 7](/assets/travelbig/the-louvre-in-rhyming-couplets-07.jpg)
-
-It was too much Louvre and just too much art; It wafted past my head like an odourless fart. Thus, I resign myself to a lack of sophistication If only so my feet can regain some sensation.
+It was too much Louvre and just too much art; 
+It wafted past my head like an odourless fart. 
+Thus, I resign myself to a lack of sophistication 
+If only so my feet can regain some sensation.
 
 ## The Red Centre, Australia (2013)
 
 *Posted 3 October 2020*
-
-![Uluru at sunset](/assets/travelbig/the-red-centre-australia-01.jpg)
-
-*Uluru at sunset*
 
 ### Into the Heart of Redness
 
@@ -997,49 +1006,29 @@ I made a journey into the Red Centre of Australia back in the middle of 2013, du
 
 There was also a personal reason to go this far into the country. I had just broken up with my college girlfriend and was feeling aimless. I had been in Australia for a couple of years and yet I felt I hadn't properly experienced the true diversity of the landscape. This was a chance to change that. To shake things up a bit.
 
-![The Outback](/assets/travelbig/the-red-centre-australia-02.jpg)
-
-*The Outback*
+### The Outback and Uluru
 
 Ah, the remote interior of the wild bushlands. The Outback. Red dirt and parched vegetation as far as the eye could see. A world of unyielding, harsh flatness. Not a single cloud in the sky.
 
 I went with a tour group to explore Uluṟu-Kata Tjuṯa National Park and see Uluru/Ayer Rock, perhaps one of the most iconic international images of Australia. That and, of course, the Sydney Opera House. It was a long, dusty road trip.
 
-Mount Connor, also known as "Fool-uru" since it is commonly mistaken for Uluru Uluru is an epic sandstone rock formation that rises nearly 350m into the air. It is geologically known as an 'inselberg' or 'monadnock', which
-
-![The Red Centre, Australia (2013) — photo 3](/assets/travelbig/the-red-centre-australia-03.jpg)
-
-means it is a hill or small mountain that stands alone on a flat plain.
+Uluru is an epic sandstone rock formation that rises nearly 350m into the air. It is geologically known as an 'inselberg' or 'monadnock', which means it is a hill or small mountain that stands alone on a flat plain.
 
 ![At the base of Uluru](/assets/travelbig/the-red-centre-australia-04.jpg)
 
-*At the base of Uluru*
-
 Uluru is also a sacred site to the Aboriginal people of the Central Australian desert in the area. This weathered, 600 million-year-old formation hosts a number of waterholes, springs, caves, and ancient rock paintings.
 
-As many of you may know, this place has also courted controversy. Before late October 2019, tourists were allowed to climb Uluru even though this is deeply disrespectful to the traditional Indigenous custodians of the land. It's a sacred site and not a lump of rock to be conquered by daft foreigners! Not only is it quite a culturally insulting
-
-![The Red Centre, Australia (2013) — photo 5](/assets/travelbig/the-red-centre-australia-05.jpg)
-
-thing to do, but it can also be rather unsafe. At least 37 visitors have died in incidents related to climbing Uluru since record-keeping began.
-
-Of my tour group of around twenty people, I was one of the only individuals that chose not to climb Uluru despite being repeatedly told that we really shouldn't. Very disappointing. I, for one, am sincerely glad that recreational climbing is finally prohibited.
+As many of you may know, this place has also courted controversy. Before late October 2019, tourists were allowed to climb Uluru even though this is deeply disrespectful to the traditional Indigenous custodians of the land. It's a sacred site and not a lump of rock to be conquered by daft foreigners! Not only is it quite a culturally insulting thing to do, but it can also be rather unsafe. At least 37 visitors have died in incidents related to climbing Uluru since record-keeping began. Of my tour group of around twenty people, I was one of the only individuals that chose not to climb Uluru despite being repeatedly told that we really shouldn't. Very disappointing. I, for one, am sincerely glad that recreational climbing is finally prohibited.
 
 On a lighter note, I had the privilege of being able to see the colours change across the surface of Uluru at sunset. We spent the night in camping swags (which is Australian slang for portable open-air camping bedrolls) and fell asleep under a dazzling starry desert sky. And in the early hours of the morning, I was also able to witness Uluru's unmistakable silhouette at sunrise. It was an utter pleasure.
 
-Next stop: Kata Tjuṯa, also known as the Olgas.
+### Kata Tjuṯa and Kings Canyon
 
 ![Kata Tjuṯa](/assets/travelbig/the-red-centre-australia-06.jpg)
 
-*Kata Tjuṯa*
-
 In many ways, it is just as magnificent as Uluru. Jutting out of the scraggly, flat landscape, Kata Tjuṯa is a group of 36 large rock domes that are mainly composed of granite, basalt and sandstone. Meaning 'many heads', these soaring ochre rock formations are also a sacred site for the local Indigenous people.
 
-The final stop on my tour was Kings Canyon in Watarrka National Park, around 320 kilometres southwest of Alice Springs. It is a steep and scenic canyon with a lush and permanent waterhole at the heart of it dubbed the Garden of Eden -- a glorious oasis compared to the rugged environment surrounding it. That said, due to an unfortunate flurry of
-
-![The Red Centre, Australia (2013) — photo 7](/assets/travelbig/the-red-centre-australia-07.jpg)
-
-wet weather during our canyon hike, I had a little trouble seeing it as such!
+The final stop on my tour was Kings Canyon in Watarrka National Park, around 320 kilometres southwest of Alice Springs. It is a steep and scenic canyon with a lush and permanent waterhole at the heart of it dubbed the Garden of Eden -- a glorious oasis compared to the rugged environment surrounding it. That said, due to an unfortunate flurry of wet weather during our canyon hike, I had a little trouble seeing it as such!
 
 And after this, it was back to Alice Springs. Here, I spent a few more days in the depths of the continent before boarding a flight to another , this corner of this "opal-hearted country" "wilful, lavish land".
 
@@ -1048,22 +1037,19 @@ And after this, it was back to Alice Springs. Here, I spent a few more days in t
 *Posted 6 October 2020*
 
 ![A view of Zurich and the river Limmat](/assets/travelbig/zurich-01.jpg)
+<small> *A view of Zurich and the river Limmat* </small?
 
-*A view of Zurich and the river Limmat*
+A pitstop in Switzerland on the journey between Berlin to Turin...
 
-A pitstop in Switzerland on the journey between Berlin to Turin A train ride through the alps...
+A train ride through the alps...
 
-Snaps of Grossmünster, Fraumünster, and Church of St. Peter...
+A pause at Grossmünster, Fraumünster, and Church of St. Peter...
 
-![Zürich (2013) — photo 2](/assets/travelbig/zurich-02.jpg)
+Time enough to admire the art collection of the Kunsthaus...
 
-Admiring the art collection of the Kunsthaus...
+To gaze at Grossmünster in the background with its lovely red spire...
 
-The Grossmünster in the background with its lovely red spire...
-
-![Zürich (2013) — photo 3](/assets/travelbig/zurich-03.jpg)
-
-Hiking up Üetliberg, a hill which overlooks Zürich...
+To hike up Üetliberg, a hill which overlooks Zürich...
 
 A glimpse of the city, Lake Zürich, and the Swiss Alps...
 
@@ -1079,7 +1065,7 @@ I lived for over a month in Beijing after my second year of uni. Nominally, I wa
 
 ![The Forbidden City.](/assets/travelbig/a-winter-in-beijing-01.jpg)
 
-*The Forbidden City.*
+### The Forbidden City
 
 After the fall of the final Qing dynasty, this restricted and walled palace complex, the largest of its kind in the world, opened its doors to the general public after five centuries. Gone were the eunuchs, the concubines, the courtly intrigue, the rites and rituals, and the illustrious strength of dragon rulers. After the ousting of Puyi and its conversion into a museum in 1925, this "city" became a frozen timepiece for the mighty tourist throngs, both Chinese and foreign, to march through.
 
@@ -1087,25 +1073,19 @@ In the slideshow below: ceramics from across the expansive, nearly unfathomable,
 
 For me, the Forbidden City did not merely draw my attention to its intricate architectural layout, it seemed to command it with a booming announcement. Its yellow decorated roofs and marble bridges. Its glazed dragon tiles and red-walled pathways. This was a microcosm built by a civilisation that believed they were at the absolute centre of the universe. And it almost certainly was. For a time.
 
-![Jingshan Park.](/assets/travelbig/a-winter-in-beijing-02.jpg)
-
-*Jingshan Park.*
+### Jingshan Park
 
 Jingshan Park spreads its ancient trees over 23 hectares in the imperial heart. Sitting directly north of the Forbidden Palace, it is a venerable redoubt of huddled pines and raw-boned cypress. At that time of year, its flower beds were comatose, its fruit trees naked. The green of the branches was a murmur, an echo of woodlands on brighter days.
 
 I climbed to the top of one of its peaks and felt the dry, muted chill of the Beijing winter. From somewhere near the foot of the hill, I heard the ghostly rise of old men singing. I had no idea what they singing about. I have never known what old men speak about in Chinese.
 
-![Beijing Zoo.](/assets/travelbig/a-winter-in-beijing-03.jpg)
-
-*Beijing Zoo.*
+### Beijing Zoo
 
 I visited what I thought was the most depressing zoo in the world. I peered upon far-flung animals in their small and barren pens, their faces pressed against the dirty bars, biding their time in their chilly and unstimulating concrete worlds. What do they think they are waiting for? What could goodness could they possibly feel in this morose menagerie?
 
 But this was many years ago, back when the country was not nearly as sophisticated and wealthy as it is now. And change happens so fast in China. But has change come to these denizens? Are their existences better now? I hope so, I can hope so.
 
-![The Summer Palace.](/assets/travelbig/a-winter-in-beijing-04.jpg)
-
-*The Summer Palace.*
+### The Summer Palace
 
 Yí hé yuán, a royal retinue of halls, pavilions, lakes and gardens. We stood on the glassy face of Kunming Lake. Icy vapours rose over Longevity Hill. The Marble Boat was shackled to the frozen waters. The 17-Arch Bridge was made of pale, frosted moonstone.
 
@@ -1144,19 +1124,17 @@ I race up the battlements to a vacant watchtower, then hike over to another, and
 
 *Posted 16 September 2020*
 
-Days and months are travellers of eternity. So are the years that pass by. Those who steer a boat across the sea, or drive a horse over the earth till they succumb to the weight of years, spend every minute of their lives travelling. There are a great number of ancients, too, who died on the road. I myself have been tempted for a long time by the cloud-moving wind --- filled with a strong desire to wander.
-
-- Matsuo Bashō
+> "Days and months are travellers of eternity. So are the years that pass by. Those who steer a boat across the sea, or drive a horse over the earth till they succumb to the weight of years, spend every minute of their lives travelling. There are a great number of ancients, too, who died on the road. I myself have been tempted for a long time by the cloud-moving wind --- filled with a strong desire to wander."
+>
+> -- Matsuo Bashō
 
 ![Hakone: Narrow road to the deep north (2012) — photo 1](/assets/travelbig/hakone-narrow-road-to-the-deep-north-01.jpg)
 
-### Hakone and its surrounds (technically, south- west of Tokyo)
+### Hakone and its surrounds (technically, south-west of Tokyo)
 
 For my last weekend in Japan, after spending an extraordinary month in Tokyo on a summer university exchange program, I took the train out to Hakone - a mountainous area less than one hundred kilometres from the capital. The economy of Hakone is strongly centred around tourism, with both Japanese and international visitors drawn in by its natural beauty and onsens. I've heard that it's meant to be stunning on a clear summer day, but my trip was dominated by wet and overcast weather. And I loved it nonetheless! The brooding, melancholic elements made my journey equally memorable.
 
 Without a doubt, the easiest way to reach there from Tokyo and then get around is with the Hakone Freepass, a super convenient and money-saving pass that allows unlimited rides within the designated area, including on the very popular lake cruise and gondola ropeway.
-
-![Hakone: Narrow road to the deep north (2012) — photo 2](/assets/travelbig/hakone-narrow-road-to-the-deep-north-02.jpg)
 
 My adventure kicked off with the train ride from Tokyo, which took me along the Hakone Tozan Railway, Japan's oldest mountain railway. It is a beautiful ride, regardless of the weather, with hydrangeas blooming along the narrow track at certain times of the year.
 
@@ -1164,113 +1142,76 @@ The first stop for me in Hakone was Gora Park, a French-style landscape park tha
 
 The next leg of the journey for me was a ride on the Hakone-Tozan Cable Car up the mountainside from Gora to Sounzan via an old-school funicular railway. Not terribly spectacular, but it was a functional and sturdy enough method of crawling up the slope.
 
-![Hakone: Narrow road to the deep north (2012) — photo 3](/assets/travelbig/hakone-narrow-road-to-the-deep-north-03.jpg)
-
 This cable car led me to a proper Hakone attraction: the Hakone Ropeway, an aerial lift that takes passengers from Sounzan down towards the lake, with an optional stop along the voyage to the boiling sulphur pits of Owakudani. You're able to see Mount Fuji on a good day, but (as you can see from photos) I was not so lucky.
 
-With plenty of time to spare, I stopped off at Owakudani, also known as the Great Boiling Valley. This is an active volcanic zone with hot
-
-![Hakone: Narrow road to the deep north (2012) — photo 4](/assets/travelbig/hakone-narrow-road-to-the-deep-north-04.jpg)
-
-springs and sizzling, milky rivers that are perpetually shrouded in sulphurous fumes. It was delightfully spooky, especially with the signs warning visitors that the local walking tracks can be dangerous due to the volcanic gases.
+With plenty of time to spare, I stopped off at Owakudani, also known as the Great Boiling Valley. This is an active volcanic zone with hot springs and sizzling, milky rivers that are perpetually shrouded in sulphurous fumes. It was delightfully spooky, especially with the signs warning visitors that the local walking tracks can be dangerous due to the volcanic gases.
 
 At Owakudani, you can purchase some novelty 'black eggs' which have been cooked in the hot, natural water. Their shells are pitch-black from the sulphur and eating one is said to prolong the person's lifespan by seven years. Well, good news, because I ate a pack of five for lunch (yes, really) and will now live an extra 35 years. Success.
 
 After my very eggy lunch, I went for a bit of a wander up a nearby hiking trail. I was by myself and it was an unsettling experience. Didn't see or hear a single soul. And after half an hour of this, due to a combination of deteriorating weather, the foul stench, and a growing fear of what could potentially happen to someone alone on an eerie volcanic mountain trail, I wisely decided to head back and boarded the ropeway again to reach the bottom of the mountain.
 
-![Hakone: Narrow road to the deep north (2012) — photo 5](/assets/travelbig/hakone-narrow-road-to-the-deep-north-05.jpg)
-
 The Hakone Ropeway terminates at Togendai on the banks of Lake Ashi. Lake Ashi (or Ashinoko in Japanese) was formed in the caldera of Mount Hakone after the volcano's last eruption around three thousand years ago. Must've been a cataclysmic eruption because Lake Ashi is huge. Here, I boarded my next transportation option: a ridiculous, pirate-theme Hakone Sightseeing Ship to glide across the lake in style. Pirates? Comical boats? I mean, this is Japan after all!
-
-![Hakone: Narrow road to the deep north (2012) — photo 6](/assets/travelbig/hakone-narrow-road-to-the-deep-north-06.jpg)
 
 After the goofy boat ride, I visited a couple of other local attractions:
 
-A reconstruction of the feudal Hakone Checkpoint, an important highway checkpoint that controlled the traffic between Tokyo and Kyoto during Japan's Edo period under the Tokugawa shogunate.
+- A reconstruction of the feudal Hakone Checkpoint, an important highway checkpoint that controlled the traffic between Tokyo and Kyoto during Japan's Edo period under the Tokugawa shogunate.
+- A short but handsome Cedar Avenue between Moto-Hakone and Hakone-machi, lined with supposedly 400-year-old trees, that runs parallel to the road.
+- The Hakone Detached Palace that used to serve as a summer palace for the Imperial Family. While it is an unremarkable and simple building these days, it provides pleasant views of the lake.
 
-A short but handsome Cedar Avenue between Moto-Hakone and Hakone-machi, lined with supposedly 400-year-old trees, that runs parallel to the road.
-
-The Hakone Detached Palace that used to serve as a summer palace for the Imperial Family. While it is an unremarkable and simple building these days, it provides pleasant views of the lake.
-
-![Hakone: Narrow road to the deep north (2012) — photo 7](/assets/travelbig/hakone-narrow-road-to-the-deep-north-07.jpg)
-
-The next portion of my trip (and one of my favourite spots in Hakone) was Hakone Shrine, a serenely attractive Shinto shrine on the shores of Lake Ashi. Tranquil, mossy, magical.
-
-I'll let my photos do the talking...
-
-Like every Shinto shrine I've visited in Japan so far, I was linger around here for a few precious moments and rest my heart. I was able to beside its lakeside torii and relax in nature.
-
-![Hakone: Narrow road to the deep north (2012) — photo 8](/assets/travelbig/hakone-narrow-road-to-the-deep-north-08.jpg)
+The next portion of my trip (and one of my favourite spots in Hakone) was Hakone Shrine, a serenely attractive Shinto shrine on the shores of Lake Ashi. Tranquil, mossy, magical. Like every Shinto shrine I've visited in Japan so far, I was linger around here for a few precious moments and rest my heart. I was able to beside its lakeside torii and relax in nature.
 
 Afterwards, I took the bus to Hakone Yumoto where I made one final stop: a soak in the hot springs at a public bathhouse. Public bathing in Japan is undoubtedly a compelling ordeal for the uninitiated. It's gender-segregated, you have to carefully wash your body before dipping in the pool, and you must bathe naked like everyone else. While it was initially a bit of a culture shock, it wasn't a bad encounter with the unfamiliar.
 
 A mountain track, a funicular, a ropeway, a sulphurous hike, and a lake cruise. Incredibly, I was able to complete this jaunt around Hakone in a single day. One wild, whirlwind day.
 
-I was able to dip in some geothermal water, bask in the natural environment, revel in the sacred, and bumble around the modern and
+I was able to dip in some geothermal water, bask in the natural environment, revel in the sacred, and bumble around the modern and the touristy, all in one place. Hakone is truly a special corner of an incredible country.
 
-![Hakone: Narrow road to the deep north (2012) — photo 9](/assets/travelbig/hakone-narrow-road-to-the-deep-north-09.jpg)
-
-the touristy, all in one place. Hakone is truly a special corner of an incredible country.
-
-An old pond, A frog jumps in - Plop!
+> An old pond,
+> A frog jumps in
+> Plop!
 
 ## Hiroshima and Miyajima (2012)
 
 *Posted 2 October 2021*
 
 ![Miyajima's famous "floating" torii gate at low-tide](/assets/travelbig/hiroshima-and-miyajima-01.jpg)
-
-*Miyajima's famous "floating" torii gate at low-tide*
+<small> *Miyajima's famous "floating" torii gate at low-tide* </small>
 
 Hiroshima - the name alone of this city speaks for itself. And I believe it to be a profoundly important place to visit should you ever find yourself in Japan. Here are some photos of the Hiroshima Peace Memorial Park, Hiroshima Castle, the small local island of Miyajima, and more.
 
 ### The Hiroshima Peace Memorial Park
 
-Hiroshima Day -- I believe there must be bones Under the paved street. - Shigemoto Yasuhiko The A-Bomb Dome, perhaps the most prominent site in the entire memorial park What a sombre yet beautiful site. It was almost surreal how pleasant the summer day was, as I carefully explored the entire park, taking in everything it had to offer in terms of commemorating one of the most tragic and devastating man-made events of the 20th century.
+> *Hiroshima Day
+> *I believe there must be bones*
+> *Under the paved street.*
+>
+> -- Shigemoto Yasuhiko
+
+The A-Bomb Dome, perhaps the most prominent site in the entire memorial park. 
 
 ![Hiroshima and Miyajima (2012) — photo 2](/assets/travelbig/hiroshima-and-miyajima-02.jpg)
 
+What a sombre yet beautiful site. It was almost surreal how pleasant the summer day was, as I carefully explored the entire park, taking in everything it had to offer in terms of commemorating one of the most tragic and devastating man-made events of the 20th century.
+
 Things to see in and around the park include:
 
-A Jizo statue with burn marks near the heart of the atomic detonation. According to Japanese Buddhist beliefs, Jizo is a bodhisattva, a compassionate and enlightened being, who has the power to descend into Hell to rescue souls.
-
-The Monument in Memory of the Korean Victims of the A-bomb. Tens of thousands of Korean labourers, many forcibly conscripted by the Japanese Empire, were victims of the evils of Japanese colonialism and suffered greatly from the atomic bombing as well.
-
-The Hypocentre. This is close to the memorial park in an easily missed street. A small plaque marks the spot directly below the mid-air detonation of the 'Little Boy' bomb in 1945.
-
-The Memorial Cenotaph. Its arched shape is meant to represent a shelter for the souls of the victims.
-
-The Peace Flame. This has burned continuously since it was lit and the intention is that it will remain lit until all nuclear weapons on Earth are destroyed and humanity is freed from the threat of nuclear annihilation.
-
-![Hiroshima and Miyajima (2012) — photo 3](/assets/travelbig/hiroshima-and-miyajima-03.jpg)
-
-The Memorial Tower to the Mobilized Students. The tower was built to console the souls of over 10,000 students who died in bombings during the Pacific War, not just victims of the atomic bombings in Hiroshima and Nagasaki.
-
-The Hiroshima Peace Clock. It is a tower made of three twisted iron pillars with a spherical clock that rings every day at 8:15 am, the time when the world entered into the age of nuclear warfare.
-
-The Children's Peace Monument. This monument commemorates Sadako Sasaki, one of the most famous child victims of the bombing of Hiroshima, as well as the thousands of other child victims of the attack. When I was visiting the park, a group of Japanese schoolchildren were solemnly gathered around the monument, making for a touching scene.
-
-![Hiroshima and Miyajima (2012) — photo 4](/assets/travelbig/hiroshima-and-miyajima-04.jpg)
-
-The Atomic Bomb Memorial Mound. It is a small grassy hill that contains the cremated ashes of 70,000 unidentified victims of the bombing.
-
-The Peace Bell. Visitors are encouraged to ring the bell for world peace. I certainly did so.
-
-The A-Bomb Dome. This was once the former Hiroshima Prefectural Industrial Promotion Hall and was the closest surviving structure to the hypocentre of the 'Little Boy' detonation.
-
-![Hiroshima and Miyajima (2012) — photo 5](/assets/travelbig/hiroshima-and-miyajima-05.jpg)
+- A Jizo statue with burn marks near the heart of the atomic detonation. According to Japanese Buddhist beliefs, Jizo is a bodhisattva, a compassionate and enlightened being, who has the power to descend into Hell to rescue souls.
+- The Monument in Memory of the Korean Victims of the A-bomb. Tens of thousands of Korean labourers, many forcibly conscripted by the Japanese Empire, were victims of the evils of Japanese colonialism and suffered greatly from the atomic bombing as well.
+- The Hypocentre. This is close to the memorial park in an easily missed street. A small plaque marks the spot directly below the mid-air detonation of the 'Little Boy' bomb in 1945.
+- The Memorial Cenotaph. Its arched shape is meant to represent a shelter for the souls of the victims.
+- The Peace Flame. This has burned continuously since it was lit and the intention is that it will remain lit until all nuclear weapons on Earth are destroyed and humanity is freed from the threat of nuclear annihilation.
+- The Memorial Tower to the Mobilized Students. The tower was built to console the souls of over 10,000 students who died in bombings during the Pacific War, not just victims of the atomic bombings in Hiroshima and Nagasaki.
+- The Hiroshima Peace Clock. It is a tower made of three twisted iron pillars with a spherical clock that rings every day at 8:15 am, the time when the world entered into the age of nuclear warfare.
+- The Children's Peace Monument. This monument commemorates Sadako Sasaki, one of the most famous child victims of the bombing of Hiroshima, as well as the thousands of other child victims of the attack. When I was visiting the park, a group of Japanese schoolchildren were solemnly gathered around the monument, making for a touching scene.
+- The Atomic Bomb Memorial Mound. It is a small grassy hill that contains the cremated ashes of 70,000 unidentified victims of the bombing.
+- The Peace Bell. Visitors are encouraged to ring the bell for world peace. I certainly did so.
+- The A-Bomb Dome. This was once the former Hiroshima Prefectural Industrial Promotion Hall and was the closest surviving structure to the hypocentre of the 'Little Boy' detonation.
 
 ### Hiroshima Castle
-
-![Hiroshima-jō](/assets/travelbig/hiroshima-and-miyajima-06.jpg)
-
-*Hiroshima-jō*
 
 This was one of two feudal Japanese castles I visited while in the country (with the other being Osaka Castle). Alas, as with Osaka Castle, Hiroshima Castle is a reconstruction. The original fortress, constructed in the 1590s and once the home of the local daimyo, was a wooden structure that was destroyed in the atomic bombing. The current castle, primarily made of reinforced concrete, was rebuilt in the late 1950s and serves mainly as a historical museum.
 
 Such is history. While I'm a stickler for the authentic (whatever that means), I did enjoy checking this place out. After all, check out the dork wearing the samurai outfit in the photos. He clearly had fun...
-
-![Hiroshima and Miyajima (2012) — photo 7](/assets/travelbig/hiroshima-and-miyajima-07.jpg)
 
 ### Hiroshima, more generally
 
@@ -1297,5 +1238,7 @@ Where else in the world can you experience such a heady mix of contrasts in two 
 ## Osaka Castle (2012)
 
 *Posted 21 October 2020*
+
+![osaka castle](/assets/travelbig/osaka-castle-01.jpg)
 
 Built originally in 1583, it was destroyed by American bombing raids during World War II. Luckily, it was restored into the surface image of its original splendour in the late 1990s -- albeit as a concrete reproduction with an elevator and modern museum within it. Definitely a must-see if you are ever visiting the city of Osaka!
