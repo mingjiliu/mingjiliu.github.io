@@ -1037,7 +1037,7 @@ And after this, it was back to Alice Springs. Here, I spent a few more days in t
 *Posted 6 October 2020*
 
 ![A view of Zurich and the river Limmat](/assets/travelbig/zurich-01.jpg)
-<small> *A view of Zurich and the river Limmat* </small?
+<small> *A view of Zurich and the river Limmat* </small>
 
 A pitstop in Switzerland on the journey between Berlin to Turin...
 
@@ -1053,9 +1053,9 @@ To hike up Üetliberg, a hill which overlooks Zürich...
 
 A glimpse of the city, Lake Zürich, and the Swiss Alps...
 
-![Zürich (2013) — photo 4](/assets/travelbig/zurich-04.jpg)
-
 Grand mountains, a blue and feathered sky, the vast winter air...
+
+![Zürich (2013) — photo 4](/assets/travelbig/zurich-04.jpg)
 
 ## A winter in Beijing
 
@@ -1098,8 +1098,6 @@ We were spooked and the two of us scampered for the safety of solid earth. In my
 ## Beijing's museums
 
 *Posted 9 March 2022*
-
-*A view of Tiananmen Square and the Forbidden City*
 
 Many, many years back I spent a cold and drab winter in the capital city of Beijing. In between dealing with the chilly weather, unbearable air pollution, and some mild culture shock, I was able to squeeze in some of my classic museum visits.
 
@@ -1166,9 +1164,9 @@ A mountain track, a funicular, a ropeway, a sulphurous hike, and a lake cruise. 
 
 I was able to dip in some geothermal water, bask in the natural environment, revel in the sacred, and bumble around the modern and the touristy, all in one place. Hakone is truly a special corner of an incredible country.
 
-> An old pond,
-> A frog jumps in
-> Plop!
+> *An old pond,*
+> *A frog jumps in*
+> *Plop!*
 
 ## Hiroshima and Miyajima (2012)
 
@@ -1181,9 +1179,9 @@ Hiroshima - the name alone of this city speaks for itself. And I believe it to b
 
 ### The Hiroshima Peace Memorial Park
 
-> *Hiroshima Day
-> *I believe there must be bones*
-> *Under the paved street.*
+> Hiroshima Day
+> I believe there must be bones
+> Under the paved street.
 >
 > -- Shigemoto Yasuhiko
 
@@ -1220,8 +1218,6 @@ Other snaps of Hiroshima - now a charming and thriving city of 1.2 million peopl
 ### Miyajima
 
 ![A glorious view from the top of Mount Misen](/assets/travelbig/hiroshima-and-miyajima-08.jpg)
-
-*A glorious view from the top of Mount Misen*
 
 Officially called Itsukushima, Miyajima (which is Japanese for 'shrine island') is a small picturesque island an hour's boat ride out of the city. It is a sacred place that, for the longest time, forbid ordinary visitors. While things are much laxer in these modern times, it is said that to this day no births and deaths are allowed on the island.
 
