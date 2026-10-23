@@ -774,23 +774,15 @@ Instead, I satisfied myself by taking photos of the masterful paintings which, l
 
 *Posted 22 July 2020*
 
-![The Royal Court of the Palace of Versailles](/assets/travelbig/a-day-trip-to-versailles-01.jpg)
-
-*The Royal Court of the Palace of Versailles*
-
 ### A portal to the Ancien Régime
 
-What draws people to the **Palace of Versailles** like bugs to a golden light? Is it admiration for French royal history and 17th-century French art? Is it to satisfy a daydream of living in fantastical and exalted opulence? Or is there a darker, sardonic element to it? A macabre recognition that all these fineries could not save the king and queen from the blade during the French Revolution? I must admit, I felt a weird mix of all three when I entered the former residence of the House of Bourbon.
+What draws people to the Palace of Versailles like bugs to a golden light? Is it admiration for French royal history and 17th-century French art? Is it to satisfy a daydream of living in fantastical and exalted opulence? Or is there a darker, sardonic element to it? A macabre recognition that all these fineries could not save the king and queen from the blade during the French Revolution? I must admit, I felt a weird mix of all three when I entered the former residence of the House of Bourbon.
 
-I visited the *Château de Versailles* on a crisp winter's day. Getting there from Paris was almost too easy. The city of Versailles is located less than twenty kilometres south-west from Paris by RER and the palace is only a short walk from the train station. Given its close proximity to the capital and global fame, the Palace of Versailles is obviously wildly popular all year around. As such, the First Rule of Popular Day Trips applies in full force: Drag yourself out of bed and get there as early to beat the crowds.
-
-![A day trip to Versailles (2013) — photo 2](/assets/travelbig/a-day-trip-to-versailles-02.jpg)
+I visited the Château de Versailles on a crisp winter's day. Getting there from Paris was almost too easy. The city of Versailles is located less than twenty kilometres south-west from Paris by RER and the palace is only a short walk from the train station. Given its close proximity to the capital and global fame, the Palace of Versailles is obviously wildly popular all year around. As such, the First Rule of Popular Day Trips applies in full force: Drag yourself out of bed and get there as early to beat the crowds.
 
 A quick history rundown: The Palace of Versailles can be condensed into the story of three monarchs with the name Louis. Sort of.
 
 Originally, the royal palace was merely a hunting lodge for King Louis XIII in the early 17th-century. His son, King Louis XIV (also famously known as the Sun King) took a great liking to the site and began to significantly expand it, eventually making it his Court in 1683. It then remained this way up until the doomed reign of King Louis XVI—the last monarch to live in Versailles and the last King of France prior to the French Revolution of 1789-99.
-
-![A day trip to Versailles (2013) — photo 3](/assets/travelbig/a-day-trip-to-versailles-03.jpg)
 
 ### Inside the royal residence
 
@@ -798,19 +790,13 @@ The palace, simply put, is astonishing. There are 2,300 rooms spread over 63,000
 
 It's worth noting that the palace continued to be developed, even after the wane of the Bourbon dynasty. For instance, there's the Coronation Room with its immense painting depicting the consecration of Napoleon Bonaparte and the coronation of his wife, Empress Josephine. There's also the 1792 Room, another post-French Revolution room, filled with paintings highlighting key battles and figures from the French Revolutionary Wars.
 
-![A day trip to Versailles (2013) — photo 4](/assets/travelbig/a-day-trip-to-versailles-04.jpg)
-
 But the highlight of Versailles is, without a glint of doubt, the dazzling Hall of Mirrors. The gallery showcases French economic, political and cultural prowess from that time period, and is named after its large mirror-panelled arches (mirrors were a highly expensive rarity in the 1600s).
 
 The Hall of Mirrors also played a role in 20th-century history as well. The Treaty of Versailles was signed here in June of 1919, concluding the First World War. It also arguably, with its brutal treatment of Germany, helped lay the foundations for the rise of Nazism and the lead up to the Second World War.
 
 ![The Hall of Mirrors](/assets/travelbig/a-day-trip-to-versailles-05.jpg)
 
-*The Hall of Mirrors*
-
 Connected to the Hall of Mirrors are the War Room and the Peace Room. The War Room commemorates the military victories of France with its marble panels, trophies and gilded weapons. In contrast, the decor in the Peace Room praises the benefits of peace brought upon the continent of Europe by France.
-
-![A day trip to Versailles (2013) — photo 6](/assets/travelbig/a-day-trip-to-versailles-06.jpg)
 
 The State Apartments are another impressive part of the palace. They have lofty names such as the "Venus Salon", the "Mercury Salon", and the "Mars Salon" and were used to hold official acts of the state.
 
@@ -820,27 +806,15 @@ The Royal Chapel is yet another splendour of Versailles, with its airy Gothic-in
 
 ![The Royal Chapel](/assets/travelbig/a-day-trip-to-versailles-07.jpg)
 
-*The Royal Chapel*
-
 ### The Palace Gardens
 
 Once you're done with the inside of the palace, there are still the immense palace gardens to explore. Work on the gardens began around the same time as the development of the palace itself and took approximately four decades to complete. They're hard to cover all at once, particularly in wintertime with the icy air nuzzling down your neck...
 
-![A day trip to Versailles (2013) — photo 8](/assets/travelbig/a-day-trip-to-versailles-08.jpg)
-
-![A day trip to Versailles (2013) — photo 9](/assets/travelbig/a-day-trip-to-versailles-09.jpg)
-
 There are buildings that are definitely worth exploring as well — and best of all, they have fewer crowds to navigate through. There's the Grand Trianon with its pink marble colonnade, state apartments, and private chambers. The Petit Trianon is the Grand Trianon's smaller counterpart, but no less charming with its elegant rooms.
-
-![A day trip to Versailles (2013) — photo 10](/assets/travelbig/a-day-trip-to-versailles-10.jpg)
-
-![A day trip to Versailles (2013) — photo 11](/assets/travelbig/a-day-trip-to-versailles-11.jpg)
 
 Lastly, tucked away in a corner of the giant royal estate is the Hameau de la Reine or Queen's Hamlet. This was Marie Antoinette's private leisure retreat. It resembles an idyllic fantasy version of a French peasant farm and enabled her to live out a rustic peasant lifestyle, milking cows and what not.
 
 As charming the hamlet is, it's important to remember what it represented to the angry and impoverished French peasantry: Further proof that the royal family was decadent, contemptuous, and out-of-touch with the common people.
-
-![A day trip to Versailles (2013) — photo 12](/assets/travelbig/a-day-trip-to-versailles-12.jpg)
 
 ### The king is dead. Long live the king.
 
@@ -850,35 +824,33 @@ Once I weigh the palace's beautiful sights against the force of history, I becom
 
 In mulling over these thoughts, I'm reminded of a poem by the American poet Marianne Moore:
 
-> *No Swan so Fine*
+> **No Swan so Fine**
 >
-> *"No water so still as the*
-> *dead fountains of Versailles." No swan,*
-> *with swart blind looks askance*
-> *and ambidextrous legs, so fine*
-> *as the chintz china one with fawn-*
-> *brown eyes and tooth gold*
-> *collar on to show whose bird it was.*
+> *"No water so still as the*</b>
+>     *dead fountains of Versailles." No swan,*</b>
+> *with swart blind looks askance*</b>
+> *and ambidextrous legs, so fine*</b>
+>    *as the chintz china one with fawn-*</b>
+> *brown eyes and tooth gold*</b>
+>    *collar on to show whose bird it was.*</b>
 >
-> *Lodged in the Louis Fifteenth*
-> *candelabrum-tree of cockscomb-*
-> *tinted buttons, dahlias,*
-> *sea-urchins and everlastings,*
-> *it perches on the branching foam*
-> *of polished sculptured*
-> *flowers—at ease and tall. The king is dead.*
+> *Lodged in the Louis Fifteenth*</b>
+>    *candelabrum-tree of cockscomb-*</b>
+> *tinted buttons, dahlias,*</b>
+> *sea-urchins and everlastings,*</b>
+>    *it perches on the branching foam*</b>
+> *of polished sculptured*</b>
+> *flowers---at ease and tall. The king is dead.*
 
-*The king is dead. The foundations are dead.*
-
-Everything in the Palace of Versailles is beautiful and exquisitely ornate, yes, but it is also ossified. Suspended and lifeless. Locked in a fanciful cage of impotence.
+The king is dead. The foundations are dead. Everything in the Palace of Versailles is beautiful and exquisitely ornate, yes, but it is also ossified. Suspended and lifeless. Locked in a fanciful cage of impotence.
 
 If this idea bothers you, then I recommend that on your visit to Versailles, you also make a brief trip to the Royal Tennis Court, only a few blocks away from the palace, to see a different side of this time period.
 
 It was here, in the middle of 1789, that the non-privileged members of the National Assembly committed an act of defiance against the monarch. Fearing the king was forcing them to dissolve, they gathered inside a tennis court and took an oath to remain unified until France had a written constitution. This Tennis Court Oath was one of the first great sparks of opposition that ultimately culminated in the French Revolution itself.
 
-![A statue of Jean Sylvain Bailly in the Royal Tennis Court, an early leader of the French Revolution](/assets/travelbig/a-day-trip-to-versailles-13.jpg)
+A statue of Jean Sylvain Bailly in the Royal Tennis Court, an early leader of the French Revolution:
 
-*A statue of Jean Sylvain Bailly in the Royal Tennis Court, an early leader of the French Revolution*
+![A statue of Jean Sylvain Bailly in the Royal Tennis Court, an early leader of the French Revolution](/assets/travelbig/a-day-trip-to-versailles-13.jpg)
 
 It is true that the French Revolution was an upheaval of unprecedented proportions. The revolution led to wild radicalism and the infamous Reign of Terror. It opened the gates to all manner of political chaos and instability in France. Simply put, history can be a fickle and merciless journey.
 
