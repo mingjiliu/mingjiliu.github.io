@@ -134,7 +134,7 @@ After Rotorua, I spent a day at Lake Taupo, the largest lake in New Zealand. Fac
 
 I also had the opportunity to briefly hike alongside the Waikato River (which means Flowing Water in Māori). It is the longest river in the country, snaking indolently from Lake Taupo, through to Hamilton, and finally into the Tasman Sea. The Waikato region is a food bowl for the country even before European settlement and the river was historically used by local tribes to transport produce far and wide.
 
-And in the pictures below is Huka Falls near Taupo. As the languid Waikato River is forced through a narrow trench of volcanic rock, it emerges as a thundering cascade of crystal white. Or to put it less lyrically: around 200,000 litres of water surge down Huka Falls every second.
+And in the picture below is Huka Falls near Taupo. As the languid Waikato River is forced through a narrow trench of volcanic rock, it emerges as a thundering cascade of crystal white. Or to put it less lyrically: around 200,000 litres of water surge down Huka Falls every second.
 
 ![The Huka Falls](/assets/travelbig/the-waikato-new-zealand-06.jpg)
 
@@ -268,7 +268,7 @@ Day One: The Grand Palace, Wat Phra Kaew, Wat Saket, and Wat Suthat. Day Two: Wa
 
 What better way to start the speedrun than taking the passenger ferry down the great and muddy Chao Phraya River?
 
-Damn. I look my Thailand travel pics from early 2015 and have to both laugh and cringe a bit at my younger self. How different I used to look! How chubby and sweaty. That unfortunate haircut and inelegant pose. What kind of a small boy, half-man, soft animal I was, both outside and within! Funny what the years can do to my perspectives on things.
+Damn. I review my Thailand travel album from early 2015 and have to both laugh and cringe a bit at my younger self. How different I used to look! How chubby and sweaty. That unfortunate haircut and inelegant pose. What kind of a small boy, half-man, soft animal I was, both outside and within! Funny what the years can do to my perspectives on things.
 
 ### The Grand Palace and Wat Phra Kaew
 
@@ -282,7 +282,7 @@ And as for Wat Phra Kaew, situated within the palace complex, it's the most sacr
 
 ![Wat Saket](/assets/travelbig/temple-run-bangkok-edition-02.jpg)
 
-Wat Saket. The Temple of the Golden Mount. A panoramic view from atop an 80-metre high artificial hill. It was a steep and winding 318-step climb, hence the photo of a damp and dumpy me posing against the hot and smoggy Bangkok cityscape.
+Wat Saket. The Temple of the Golden Mount. A panoramic view from atop an 80-metre high artificial hill. It was a steep and winding 318-step climb, which led to a damp and dumpy me mounting the Golden Mount against the hot and smoggy Bangkok cityscape.
 
 ### Wat Suthat
 
@@ -480,7 +480,7 @@ The Roman Forum is a sprawl of archaeological treasures. Every cluster of fragme
 
 To quote Ezra Pound: "Behold how pride and ruin can befall One who hath set the whole world 'neath her laws, All-conquering, now conquered, because She is Time's prey, and Time conquereth all."
 
-Trevi Fountain. is without a doubt the most famous fountain in all of Europe, if not the entire world:
+Trevi Fountain is, without a doubt, the most famous fountain in all of Europe (if not the entire world):
 
 ![Trevi Fountain at night](/assets/travelbig/photo-essay-roma-invicta-01.jpg)
 
@@ -774,7 +774,7 @@ It is a space where the demand for hushed contemplation and the burning desire o
 
 I felt too sheepish and too discouraged to take any photos within the chapel, illegal or otherwise. Regardless, I doubt any device of mine could've captured Michelangelo's heavenly ceiling, so far above us. Better to crane one's head and try to take in as much as possible, for however brief a time.
 
-Instead, I satisfied myself by taking photos of the masterful paintings which, like ceremonial heralds, guided the crowd towards the chapel.
+Instead, I satisfied myself by absorbing the masterful paintings which, like ceremonial heralds, guided the crowd towards the chapel.
 
 ## A day trip to Versailles (2013)
 
@@ -898,11 +898,11 @@ The next evening, I had a hearty plate of Bavarian food at a restaurant for dinn
 
 ### 5.
 
-... Mr Liu, these impressions of Berlin are a decade old! Why write these at all? 
-... You're right, terribly right. Blinking at these photos it's almost like the pixels have faded, degraded as if on print. Trying to come up with these anecdotes, it's like remembering a past life. Maybe the Hindus and the Buddhists are right after all. 
-... Why not just go back? Replace the sad and cold with the warm and sparkly, do a reboot, a redux, etcetera, etcetera, that sort of stuff?
-... Ah, here's the rub: I don't think I will go back, and even if I did, this version of myself and the city no longer exists. Delicious and broody. Sweet and resentful. It's all a former incarnation, now untouchable, now impossible to interrogate
-... Agreed, Mr Liu. But then I must ask, why go off at all?
+... Mr Liu, these impressions of Berlin are a decade old! Why write these at all?<br>
+... You're right, terribly right. Blinking at these photos it's almost like the pixels have faded, degraded as if on print. Trying to come up with these anecdotes, it's like remembering a past life. Maybe the Hindus and the Buddhists are right after all.<br>
+... Why not just go back? Replace the sad and cold with the warm and sparkly, do a reboot, a redux, etcetera, etcetera, that sort of stuff?<br>
+... Ah, here's the rub: I don't think I will go back, and even if I did, this version of myself and the city no longer exists. Delicious and broody. Sweet and resentful. It's all a former incarnation, now untouchable, now impossible to interrogate.<br>
+... Agreed, Mr Liu. But then I must ask, why go off at all?<br>
 ... Verily, I could not tell you.
 
 ## The Louvre... in rhyming couplets (2013)
@@ -1103,7 +1103,7 @@ The first stop for me in Hakone was Gora Park, a French-style landscape park tha
 
 The next leg of the journey for me was a ride on the Hakone-Tozan Cable Car up the mountainside from Gora to Sounzan via an old-school funicular railway. Not terribly spectacular, but it was a functional and sturdy enough method of crawling up the slope.
 
-This cable car led me to a proper Hakone attraction: the Hakone Ropeway, an aerial lift that takes passengers from Sounzan down towards the lake, with an optional stop along the voyage to the boiling sulphur pits of Owakudani. You're able to see Mount Fuji on a good day, but (as you can see from photos) I was not so lucky.
+This cable car led me to a proper Hakone attraction: the Hakone Ropeway, an aerial lift that takes passengers from Sounzan down towards the lake, with an optional stop along the voyage to the boiling sulphur pits of Owakudani. You're able to see Mount Fuji on a good day, but I was not so lucky.
 
 With plenty of time to spare, I stopped off at Owakudani, also known as the Great Boiling Valley. This is an active volcanic zone with hot springs and sizzling, milky rivers that are perpetually shrouded in sulphurous fumes. It was delightfully spooky, especially with the signs warning visitors that the local walking tracks can be dangerous due to the volcanic gases.
 
@@ -1138,7 +1138,7 @@ I was able to dip in some geothermal water, bask in the natural environment, rev
 ![Miyajima's famous "floating" torii gate at low-tide](/assets/travelbig/hiroshima-and-miyajima-01.jpg)
 <small> *Miyajima's famous "floating" torii gate at low-tide* </small>
 
-Hiroshima - the name alone of this city speaks for itself. And I believe it to be a profoundly important place to visit should you ever find yourself in Japan. Here are some photos of the Hiroshima Peace Memorial Park, Hiroshima Castle, the small local island of Miyajima, and more.
+Hiroshima - the name alone of this city speaks for itself. And I believe it to be a profoundly important place to visit should you ever find yourself in Japan. Here are some notes on the Hiroshima Peace Memorial Park, Hiroshima Castle, the small local island of Miyajima, and more.
 
 ### The Hiroshima Peace Memorial Park
 
@@ -1172,11 +1172,11 @@ Things to see in and around the park include:
 
 This was one of two feudal Japanese castles I visited while in the country (with the other being Osaka Castle). Alas, as with Osaka Castle, Hiroshima Castle is a reconstruction. The original fortress, constructed in the 1590s and once the home of the local daimyo, was a wooden structure that was destroyed in the atomic bombing. The current castle, primarily made of reinforced concrete, was rebuilt in the late 1950s and serves mainly as a historical museum.
 
-Such is history. While I'm a stickler for the authentic (whatever that means), I did enjoy checking this place out. After all, check out the dork wearing the samurai outfit in the photos. He clearly had fun...
+Such is history. While I'm a stickler for the authentic (whatever that means), I did enjoy checking this place out. Patrons could even try on a samurai outfit. And you bet your ass I did that.
 
 ### Hiroshima, more generally
 
-Other snaps of Hiroshima - now a charming and thriving city of 1.2 million people. And by the way, if you get the chance, definitely try Hiroshima-style Okonomiyaki. This savoury pancake was probably the best thing I ate while visiting Japan.
+Hiroshima is now a charming and thriving city of 1.2 million people. It could not be wiped off the face of human resilience. And by the way, if you get the chance, definitely try Hiroshima-style Okonomiyaki. This savoury pancake was probably the best thing I ate while visiting Japan.
 
 ### Miyajima
 
