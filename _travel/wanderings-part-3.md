@@ -448,7 +448,11 @@ Piazza della Repubblica and the Fountain of the Naiads:
 
 Maybe it was because it was the tourist off-season, or maybe it was because I was lucky, but I found Roman drivers very manageable and not as hectic as people have told me. In fact, it was the pedestrians that seemed to be the bad actors much of the time. Mind you, I've been to plenty of wild traffic places in Asia and elsewhere, so maybe my standards have fallen.
 
-The Basilica of St. Mary of the Angels and the Martyr. This is an example of the history and heritage layered upon history and heritage that probably bothered Jung. A 16th century basilica dedicated to Christian martyrs, it was built into the ruins of the Baths of Diocletian, the largest of the public baths of ancient Rome --- hence the church's unusual, hulking facade.
+The Basilica of St. Mary of the Angels and the Martyr:
+
+![Photo essay: Roma invicta (2013, 2014) — photo 3b](/assets/travelbig/photo-essay-roma-invicta-03b.jpg)
+
+This is an example of the history and heritage layered upon history and heritage that probably bothered Jung. A 16th century basilica dedicated to Christian martyrs, it was built into the ruins of the Baths of Diocletian, the largest of the public baths of ancient Rome --- hence the church's unusual, hulking facade.
 
 Inside, however, the basilica is a thing of beauty based on the designs of none other than Michaelangelo. The soaring transept vaults. The granite and stuccoed columns. The red pilasters. All housed in the forgotten, ruined bowels of an ancient Roman wonder.
 
@@ -484,19 +488,21 @@ I found its resplendent Baroque imagery and salubrious rush of water quite capti
 
 The next day and a visit to the Colosseum first thing in the morning in order to beat the crowds: 
 
-![Photo essay: Roma invicta (2013, 2014) — photo 11](/assets/travelbig/photo-essay-roma-invicta-11.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 12](/assets/travelbig/photo-essay-roma-invicta-12.jpg)
 
 The Flavian Amphitheatre. The true icon of the Roman universe. The largest open-air arena the Romans ever built. I came, I saw, and I was wowed by it. Can you imagine what it must've been like? Can anyone? The clashing gladiators. The infamous mock sea battles. Eighty thousand cheering spectators. Exotic wild beasts. The execution of criminals. The religious ceremonies. Panem et circenses. Bread and games.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 12](/assets/travelbig/photo-essay-roma-invicta-12.jpg)
-
-The Castel Sant'Angelo. A striking cylindrical building near the Vatican City. The "Castle of the Holy Angel", as it is sometimes called in English, has lived many different lives --- originally, it was the family mausoleum of Emperor Hadrian, later it was used as a papal military fortress, a prison, and an execution site. But these days, as with so many historied parts in Rome, its war-weathered walls have been washed of blood and the castle has settled into its final form as a museum and tourist destination.
+The Castel Sant'Angelo:
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 14a](/assets/travelbig/photo-essay-roma-invicta-14a.jpg)
 
-The Church of the Sacred Heart of Jesus in Prati. A small neogothic church on the River Tiber. Starkly white and oddly out of place. Just something that caught my eye during my stroll through the city
+A striking cylindrical building near the Vatican City. The "Castle of the Holy Angel", as it is sometimes called in English, has lived many different lives --- originally, it was the family mausoleum of Emperor Hadrian, later it was used as a papal military fortress, a prison, and an execution site. But these days, as with so many historied parts in Rome, its war-weathered walls have been washed of blood and the castle has settled into its final form as a museum and tourist destination.
+
+The Church of the Sacred Heart of Jesus in Prati: 
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 14](/assets/travelbig/photo-essay-roma-invicta-14b.jpg)
+
+A small Neo-Gothic church on the River Tiber. Starkly white and oddly out of place. Just something that caught my eye during my stroll through the city.
 
 ### New Year's Eve...
 
@@ -514,13 +520,13 @@ Thankfully, my sceptical musings about the Spanish Steps quickly ceased... there
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 18](/assets/travelbig/photo-essay-roma-invicta-18.jpg)
 
-The Temple of Hadrian: 
+I passed the Temple of Hadrian: 
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 19](/assets/travelbig/photo-essay-roma-invicta-19.jpg)
 
 Or rather, what remains of its original structure. A melted, half-temple. A ghost temple. Its ancient, external colonnades subsumed into a much newer building...
 
-Piazza Navona on a brisk, winter's day, alive with crowds, stalls, and buskers. An obelisk appropriating the ancient Egyptian artistic style, and dating back around 1,900 years ago to the time of Emperor Domitian, pierces the core of the square. Personally, I'll always remember Piazza Navona as the place where (in a fit of madness) I bought a cone of very overpriced gelato.
+I made my way to Piazza Navona on this brisk, winter's day, alive with crowds, stalls, and buskers. An obelisk appropriating the ancient Egyptian artistic style, and dating back around 1,900 years ago to the time of Emperor Domitian, pierces the core of the square. Personally, I'll always remember Piazza Navona as the place where (in a fit of madness) I bought a cone of very overpriced gelato.
 
 The Fountain of Neptune at Piazza Navona:
 
@@ -556,19 +562,19 @@ This is the oldest Roman stone bridge (or more accurately, the oldest crumbling 
 
 The Circus Maximus at sunset, with Palantine Hill in the background: 
 
-It's hard to imagine what it must have been like all those centuries ago, with the roar of the crowd during the frenetic and often deadly chariot races. Today it is merely a sunken public park with a sandy oval. Sights like this remind me of the fascination that artists around the 18th century had with ruins, culminating in the fashionable "Capriccio"
+It's hard to imagine what it must have been like all those centuries ago, with the roar of the crowd during the frenetic and often deadly chariot races. Today it is merely a sunken public park with a sandy oval. Sights like this remind me of the fascination that artists around the 18th century had with ruins, culminating in the fashionable "Capriccio" painting style which often placed small, quotidian human figures in utterly fantastical landscapes filled with immense, ancient ruins.
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 25](/assets/travelbig/photo-essay-roma-invicta-25.jpg)
 
-painting style which often placed small, quotidian human figures in utterly fantastical landscapes filled with immense, ancient ruins.
-
-I found this photo on my camera and could not place its location. After some heavy googling, I managed to solve the mystery. Now I know that it's an image I took of the Fountain of the Tritons outside the Basilica of Saint Mary in Cosmedin. But think about how often travellers take a photo, thinking they'll recall the landmark later, but then completely forget. Think of all the pixels we carry with us that have lost their labels in time and space.
+I found this photo on my camera and could not place its location:
 
 ![Piazza del Popolo in the late afternoon](/assets/travelbig/photo-essay-roma-invicta-26.jpg)
 
+After some heavy googling, I managed to solve the mystery. Now I know that it's an image I took of the Fountain of the Tritons outside the Basilica of Saint Mary in Cosmedin. But think about how often travellers take a photo, thinking they'll recall the landmark later, but then completely forget. Think of all the pixels we carry with us that have lost their labels in time and space.
+
 And thus ended my time in Rome. Perhaps my time here was too short. But then again, one could keep learning about this city for a lifetime. Perhaps that was Jung's fear: to fall into an ocean of stories that you can never stop swimming through when there are other destinations calling.
 
-So farewell, Roma. A fond goodbye to dead stone and bottomless culture, to Italian traffic and aspiring pickpockets, to my own memories of a place that is fading into trivia and unlabelled photos with every turn of the earth. Ave atque vale. All roads lead somewhere. Or maybe they lead nowhere. But at least I'm glad I could make a brief detour for Rome
+So farewell, Roma. A fond goodbye to dead stone and bottomless culture, to Italian traffic and aspiring pickpockets, to my own memories of a place that is fading into trivia and unlabelled photos with every turn of the earth. Ave atque vale. All roads lead somewhere. Or maybe they lead nowhere. But at least I'm glad I could make a brief detour for Rome.
 
 ## Venice (2014)
 
