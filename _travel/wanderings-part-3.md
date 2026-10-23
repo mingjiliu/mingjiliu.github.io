@@ -430,8 +430,6 @@ And that concludes my remarks on Budapest, the so-called 'Paris of the East' and
 
 *Posted 1 August 2020*
 
-![Trevi Fountain at night](/assets/travelbig/photo-essay-roma-invicta-01.jpg)
-
 > "I have traveled a great deal in my life, and I should very much have liked to go to Rome, but I felt that I was not really up to the impression the city would have made upon me."
 >
 > -- Carl Jung, *Memories, Dreams, Reflections*
@@ -442,21 +440,23 @@ It is hard for most people, myself included, to empathise with Jung's mind-state
 
 What new is there to say about Rome? Very little, I imagine. And the hidden narratives of the Eternal City may well be like Jung's swooning fear: too fraught, too colossal, too ambitious to completely cognise.
 
-Piazza della Repubblica and the Fountain of the Naiads. Maybe it was because it was the tourist off-season, or maybe it was because I was lucky, but I found Roman drivers very manageable and not as hectic as people have told me. In fact, it was the pedestrians that seemed to be the bad actors much of the time. Mind you, I've been to plenty of wild traffic places in Asia and elsewhere, so maybe my standards have fallen.
+### Late December in Rome
+
+Piazza della Repubblica and the Fountain of the Naiads:
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 3](/assets/travelbig/photo-essay-roma-invicta-03.jpg)
 
-The Basilica of St. Mary of the Angels and the Martyr. This is an example of the history and heritage layered upon history and heritage that probably bothered Jung. A 16th century basilica dedicated to Christian martyrs, it was built into the ruins of the Baths of Diocletian, the largest of the public baths of ancient Rome --- hence the church's unusual, hulking facade.
+Maybe it was because it was the tourist off-season, or maybe it was because I was lucky, but I found Roman drivers very manageable and not as hectic as people have told me. In fact, it was the pedestrians that seemed to be the bad actors much of the time. Mind you, I've been to plenty of wild traffic places in Asia and elsewhere, so maybe my standards have fallen.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 4](/assets/travelbig/photo-essay-roma-invicta-04.jpg)
+The Basilica of St. Mary of the Angels and the Martyr. This is an example of the history and heritage layered upon history and heritage that probably bothered Jung. A 16th century basilica dedicated to Christian martyrs, it was built into the ruins of the Baths of Diocletian, the largest of the public baths of ancient Rome --- hence the church's unusual, hulking facade.
 
 Inside, however, the basilica is a thing of beauty based on the designs of none other than Michaelangelo. The soaring transept vaults. The granite and stuccoed columns. The red pilasters. All housed in the forgotten, ruined bowels of an ancient Roman wonder.
 
-The Vittorio Emanuele II Monument with Trajan's Column in the foreground --- a victory column erected around 113 AD to commemorate the Roman Empire's victory against the Dacians.
-
-Due to my poor research efforts before arriving in Rome, I was unaware of the existence of this grandiose marble building --- The Vittorio Emanuele II Monument. Also known as Altare della Patria (Altar to the Fatherland), it honours the first king after Italian unification in the 19th century and was a marvellous structure to come across.
+The Vittorio Emanuele II Monument with Trajan's Column in the foreground --- a victory column erected around 113 AD to commemorate the Roman Empire's victory against the Dacians:
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 5](/assets/travelbig/photo-essay-roma-invicta-05.jpg)
+
+Due to my poor research efforts before arriving in Rome, I was unaware of the existence of this grandiose marble building --- The Vittorio Emanuele II Monument. Also known as Altare della Patria (Altar to the Fatherland), it honours the first king after Italian unification in the 19th century and was a marvellous structure to come across.
 
 Amusingly, the monument has been criticised for its appearance and has been compared to a wedding cake (white and layered), a set of dentures (with toothy columns), and a typewriter (wide and boxy). The monument also doubles as a war memorial, honouring Italy's dead from the First World War. There is a Tomb of the Unknown Soldier, as well as an eternal flame, under the watchful gaze of a statue of Roma --- the ancient Roman goddess personifying the city itself.
 
@@ -464,124 +464,125 @@ A dreary climate harangued me throughout Europe in December and January. I did n
 
 The alluring, yet moody ruins of Rome. Tree stumps of marble. A ribcage of pillars. Mossy foundation stones. All of it ossified, suspended in both time and space, signifying a glorious and dead past that will never truly die as long as people continue to speculate and fantasise about it.
 
+The Arch of Constantine during restoration work and half-obscured by scaffolding:
+
 ![Photo essay: Roma invicta (2013, 2014) — photo 8](/assets/travelbig/photo-essay-roma-invicta-08.jpg)
 
-The Arch of Constantine during restoration work and half-obscured by scaffolding. It was erected in 315 AD in honour of Emperor Constantine's victory at the Battle of the Milvian Bridge, a battle which is traditionally marked as the beginning of his, and the Roman Empire's, conversion to Christianity.
+It was erected in 315 AD in honour of Emperor Constantine's victory at the Battle of the Milvian Bridge, a battle which is traditionally marked as the beginning of his, and the Roman Empire's, conversion to Christianity.What's interesting about this arch is that it is effectively an ancient Roman hack-job. Almost all the sculptures on this arch were taken from earlier Roman monuments, with the faces of previous emperors crudely recut to look like Constantine's. The arch was, as the English classicist Mary Beard puts it in *SPQR*, “a costly and destructive exercise in nostalgia” that sought to place “the new emperor in the illustrious tradition of the old”.
 
-What's interesting about this arch is that it is effectively an ancient Roman hack-job. Almost all the sculptures on this arch were taken from earlier Roman monuments, with the faces of previous emperors crudely recut to look like Constantine's. The arch was, as the English classicist SPQR , "a costly and destructive exercise Mary Beard puts it in her book in nostalgia" that sought to place "the new emperor in the illustrious tradition of the old".
-
-The Roman Forum is a sprawl of archaeological treasures. Every cluster of fragments, every clutter of excavated matter tells hundreds upon hundreds of stories.
-
-The Tabularium. The Temple of Antoninus and Faustina. The Arch of Titus. The Column of Phokas. The Basilica of Maxentius and Constantine. And much, much more. Each one contains a story that you can spend a whole lifetime studying.
+The Roman Forum is a sprawl of archaeological treasures. Every cluster of fragments, every clutter of excavated matter tells hundreds upon hundreds of stories. The Tabularium. The Temple of Antoninus and Faustina. The Arch of Titus. The Column of Phokas. The Basilica of Maxentius and Constantine. And much, much more. Each one contains a story that you can spend a whole lifetime studying.
 
 ![The Temple of Saturn at the foot of Capitoline Hill](/assets/travelbig/photo-essay-roma-invicta-09.jpg)
 
-*The Temple of Saturn at the foot of Capitoline Hill*
+To quote Ezra Pound: "Behold how pride and ruin can befall One who hath set the whole world 'neath her laws, All-conquering, now conquered, because She is Time's prey, and Time conquereth all."
 
-To quote Ezra Pound:
-> "Behold how pride and ruin can befall One who hath set the whole world 'neath her laws, All-conquering, now conquered, because She is Time's prey, and Time conquereth all."
+Trevi Fountain. is without a doubt the most famous fountain in all of Europe, if not the entire world:
 
-Trevi Fountain. is without a doubt the most famous fountain in all of Europe, if not the entire world. I found its resplendent Baroque imagery and salubrious rush of water quite captivating. And yes --- I did the cheesy touristy thing and threw a coin into the fountain. And no one should feel bad about it either! Apparently, thousands of Euros land in it every day, which is then scooped up to fund food for the poor.
+![Trevi Fountain at night](/assets/travelbig/photo-essay-roma-invicta-01.jpg)
 
-![Photo essay: Roma invicta (2013, 2014) — photo 10](/assets/travelbig/photo-essay-roma-invicta-10.jpg)
+I found its resplendent Baroque imagery and salubrious rush of water quite captivating. And yes --- I did the cheesy touristy thing and threw a coin into the fountain. And no one should feel bad about it either! Apparently, thousands of Euros land in it every day, which is then scooped up to fund food for the poor.
 
-The next day and a visit to the Colosseum first thing in the morning in order to beat the crowds. The Flavian Amphitheatre. The true icon of the Roman universe. The largest open-air arena the Romans ever built. I came, I saw, and I was wowed by it.
+The next day and a visit to the Colosseum first thing in the morning in order to beat the crowds: 
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 11](/assets/travelbig/photo-essay-roma-invicta-11.jpg)
 
-Can you imagine what it must've been like? Can anyone? The clashing gladiators. The infamous mock sea battles. Eighty thousand cheering spectators. Exotic wild beasts. The execution of criminals. The religious ceremonies. Panem et circenses. Bread and games.
+The Flavian Amphitheatre. The true icon of the Roman universe. The largest open-air arena the Romans ever built. I came, I saw, and I was wowed by it. Can you imagine what it must've been like? Can anyone? The clashing gladiators. The infamous mock sea battles. Eighty thousand cheering spectators. Exotic wild beasts. The execution of criminals. The religious ceremonies. Panem et circenses. Bread and games.
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 12](/assets/travelbig/photo-essay-roma-invicta-12.jpg)
 
 The Castel Sant'Angelo. A striking cylindrical building near the Vatican City. The "Castle of the Holy Angel", as it is sometimes called in English, has lived many different lives --- originally, it was the family mausoleum of Emperor Hadrian, later it was used as a papal military fortress, a prison, and an execution site. But these days, as with so many historied parts in Rome, its war-weathered walls have been washed of blood and the castle has settled into its final form as a museum and tourist destination.
 
+![Photo essay: Roma invicta (2013, 2014) — photo 14a](/assets/travelbig/photo-essay-roma-invicta-14a.jpg)
+
 The Church of the Sacred Heart of Jesus in Prati. A small neogothic church on the River Tiber. Starkly white and oddly out of place. Just something that caught my eye during my stroll through the city
 
-![Photo essay: Roma invicta (2013, 2014) — photo 13](/assets/travelbig/photo-essay-roma-invicta-13.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 14](/assets/travelbig/photo-essay-roma-invicta-14b.jpg)
 
-Following the rainbow lights on the night of New Year's Eve...
+### New Year's Eve...
 
-![Photo essay: Roma invicta (2013, 2014) — photo 14](/assets/travelbig/photo-essay-roma-invicta-14.jpg)
+I followed the rainbow lights on the night. I, along with two friends I made at my hostel, ended up at the Colosseum watching the New Year's countdown. A vale to 2013 and a salvē 2014! 
 
-I, along with two friends I made at my hostel, ended up at the Colosseum watching the New Year's countdown. Farewell 2013 and hello 2014!
-
-Buon Anno! As you expect, fireworks were launched and bottles of wine were popped. That said, the dark crowds made us easy pickpocket targets and one of my friends was unfortunate enough to have a Swiss Army knife stolen. Every seasoned traveller to Europe knows a frustrating Roman theft story and this was ours.
+As you expect, fireworks were launched and bottles of wine were popped. Buon Anno! That said, the dark crowds made us easy pickpocket targets and one of my friends was unfortunate enough to have a Swiss Army knife stolen. Every seasoned traveller to Europe knows a frustrating Roman theft story and this was ours.
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 15](/assets/travelbig/photo-essay-roma-invicta-15.jpg)
 
-All alone on the first day of January. I crossed Rome's slick and lazy streets with a contradictory mix of both melancholy and happiness. I found myself at the intersection of Via delle Quattro Fontane and Via del Quirinale with its four Renaissance fountains .
+### New Year's Day
 
-![Photo essay: Roma invicta (2013, 2014) — photo 16](/assets/travelbig/photo-essay-roma-invicta-16.jpg)
+All alone on the first day of January. I crossed Rome's slick and lazy streets with a contradictory mix of both melancholy and happiness. I found myself at the intersection of Via delle Quattro Fontane and Via del Quirinale with its four Renaissance fountains. I found myself chilling on the Spanish Steps, a well-known stairway linking the church of the Santissima Trinità dei Monti above to the Piazza di Spagna below. As nice as it is though, is there anything innately and inordinately exceptional about these steps? I'd argue that the Spanish Steps' modern reputation largely derives from its depictions in beloved classic films such as Roman Holiday.
 
-Chilling on the Spanish Steps, a well-known stairway linking the church of the Santissima Trinità dei Monti above to the Piazza di Spagna below. As nice as it is though, is there anything innately and inordinately exceptional about these steps? I'd argue that the Spanish Steps' modern reputation largely derives from its depictions in beloved classic films such as Roman Holiday .
-
-![Photo essay: Roma invicta (2013, 2014) — photo 17](/assets/travelbig/photo-essay-roma-invicta-17.jpg)
-
-Thankfully, my sceptical musings about the Spanish Steps quickly ceased --- there was a live band playing at the bottom of the steps on New Year's Day, which made for a vivacious atmosphere. Bravo!
+Thankfully, my sceptical musings about the Spanish Steps quickly ceased... there was a live band playing at the bottom of the steps on New Year's Day, which made for a vivacious atmosphere. Bravo!
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 18](/assets/travelbig/photo-essay-roma-invicta-18.jpg)
 
-The Temple of Hadrian --- or rather, what remains of its original structure. A melted, half-temple. A ghost temple. Its ancient, external colonnades subsumed into a much newer building...
+The Temple of Hadrian: 
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 19](/assets/travelbig/photo-essay-roma-invicta-19.jpg)
 
+Or rather, what remains of its original structure. A melted, half-temple. A ghost temple. Its ancient, external colonnades subsumed into a much newer building...
+
 Piazza Navona on a brisk, winter's day, alive with crowds, stalls, and buskers. An obelisk appropriating the ancient Egyptian artistic style, and dating back around 1,900 years ago to the time of Emperor Domitian, pierces the core of the square. Personally, I'll always remember Piazza Navona as the place where (in a fit of madness) I bought a cone of very overpriced gelato.
+
+The Fountain of Neptune at Piazza Navona:
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 20](/assets/travelbig/photo-essay-roma-invicta-20.jpg)
 
-The Fountain of Neptune at Piazza Navona. One of three fountains in the square, this one is clearly the best since it depicts the Roman god of the sea about to skewer a goofy looking octopus for lunch. (Also, Neptune has a seagull for a hat in the photo. I'm easily amused.)
+One of three fountains in the square, this one is clearly the best since it depicts the Roman god of the sea about to skewer a goofy looking octopus for lunch. (Also, Neptune has a seagull for a hat in the photo. I'm easily amused.)
 
-Largo di Torre Argentina. This charming, sunken archaeological space contains the crumbling remains of four Roman Republican temples and part of the Theatre of Pompey. It was on this spot (or rather, vaguely around this area) that Julius Caesar was famously assassinated in the Ides of March, 44 BC.
+Largo di Torre Argentina:
 
-![Photo essay: Roma invicta (2013, 2014) — photo 21](/assets/travelbig/photo-essay-roma-invicta-21.jpg)
+![Photo essay: Roma invicta (2013, 2014) — photo 21](/assets/travelbig/photo-essay-roma-invicta-21b.jpg)
+
+This charming, sunken archaeological space contains the crumbling remains of four Roman Republican temples and part of the Theatre of Pompey. It was on this spot (or rather, vaguely around this area) that Julius Caesar was famously assassinated in the Ides of March, 44 BC.
 
 Fun fact: These ruins also double as a cat shelter! The Torre Argentina Cat Sanctuary proudly calls itself the oldest in all of Rome and is dedicated to feeding, vaccinating, and sterilising the feral cats that live in and around the temple ruins. As a cat lover, I was delighted to see a number of them lounging in the sun, napping on the ancient stonework.
 
-The Pantheon of Rome! Completed around 125 AD under Emperor Hadrian, it is widely called one of the best-preserved temples of the ancient Roman world. While the name Pantheon suggests that it was a temple to "all the gods", the building's actual function is surprisingly uncertain.
+The Pantheon of Rome:
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 22](/assets/travelbig/photo-essay-roma-invicta-22.jpg)
 
-The most awe-inspiring aspect of the Pantheon is its hemispherical, coffered dome. A large oculus at the centre of the ceiling brings natural light inside the entire structure and almost every visitor was craning their heads up to marvel at the dominating roof. To this day, the Pantheon's dome remains the largest unreinforced concrete dome on the planet.
+Completed around 125 AD under Emperor Hadrian, it is widely called one of the best-preserved temples of the ancient Roman world. While the name Pantheon suggests that it was a temple to "all the gods", the building's actual function is surprisingly uncertain.
 
-![Photo essay: Roma invicta (2013, 2014) — photo 23](/assets/travelbig/photo-essay-roma-invicta-23.jpg)
+The most awe-inspiring aspect of the Pantheon is its hemispherical, coffered dome. A large oculus at the centre of the ceiling brings natural light inside the entire structure and almost every visitor was craning their heads up to marvel at the dominating roof. To this day, the Pantheon's dome remains the largest unreinforced concrete dome on the planet.
 
 I rested for a while on the cool stony banks of Tiber Island, watching the river turn dark with the late afternoon. As recounted by Mary Beard in SPQR, the island has a somewhat quirky origin story --- it was formed at the start of the Republican era when Roman citizens dumped all the crops growing on the private land of the hated tyrant Tarquinius Superbus into the river. As she puts it, it was as if "the shape of the city was born only with the removal of the monarchy".
 
 The island also has a long history as a place of healing. In Roman times, it supposedly housed a temple to Aesculapius, the Greek god of medicine, and in the 17th century, the island was used as a leper hospital. There is still a fully functioning hospital on the island called Fatebenefratelli Hospital --- most famous for sheltering Jews during the Nazi occupation of Italy. Doctors in the hospital saved Jews by diagnosing them was a fatal, highly contagious, and entirely fictitious disease dubbed "Syndrome K", thus deterring Nazis from raiding the hospital
 
+A view of the Pons Aemilius from Tiber Island:
+
 ![Photo essay: Roma invicta (2013, 2014) — photo 24](/assets/travelbig/photo-essay-roma-invicta-24.jpg)
 
-A view of the Pons Aemilius from Tiber Island. This is the oldest Roman stone bridge (or more accurately, the oldest crumbling remains of a bridge) in the city. Unsurprisingly, it is also known as Ponte Rotto or the "Broken Bridge". Broken. Enduring. Pearls of antiquity disintegrated into a cold, Italian river.
+This is the oldest Roman stone bridge (or more accurately, the oldest crumbling remains of a bridge) in the city. Unsurprisingly, it is also known as Ponte Rotto or the "Broken Bridge". Broken. Enduring. Pearls of antiquity disintegrated into a cold, Italian river.
 
-The Circus Maximus at sunset, with Palantine Hill in the background. It's hard to imagine what it must have been like all those centuries ago, with the roar of the crowd during the frenetic and often deadly chariot races. Today it is merely a sunken public park with a sandy oval.
+The Circus Maximus at sunset, with Palantine Hill in the background: 
 
-Sights like this remind me of the fascination that artists around the 18th century had with ruins, culminating in the fashionable "Capriccio"
+It's hard to imagine what it must have been like all those centuries ago, with the roar of the crowd during the frenetic and often deadly chariot races. Today it is merely a sunken public park with a sandy oval. Sights like this remind me of the fascination that artists around the 18th century had with ruins, culminating in the fashionable "Capriccio"
 
 ![Photo essay: Roma invicta (2013, 2014) — photo 25](/assets/travelbig/photo-essay-roma-invicta-25.jpg)
 
 painting style which often placed small, quotidian human figures in utterly fantastical landscapes filled with immense, ancient ruins.
 
-I found this photo on my camera and could not place its location. After some heavy googling, I managed to solve the mystery. Now I know that it's an image I took of the Fountain of the Tritons outside the Basilica of Saint Mary in Cosmedin. But think about how often travellers take a photo, thinking they'll recall the landmark later, but then completely forget. Think of all the mages we carry with us that have lost their labels in time and space.
+I found this photo on my camera and could not place its location. After some heavy googling, I managed to solve the mystery. Now I know that it's an image I took of the Fountain of the Tritons outside the Basilica of Saint Mary in Cosmedin. But think about how often travellers take a photo, thinking they'll recall the landmark later, but then completely forget. Think of all the pixels we carry with us that have lost their labels in time and space.
 
 ![Piazza del Popolo in the late afternoon](/assets/travelbig/photo-essay-roma-invicta-26.jpg)
 
-*Piazza del Popolo in the late afternoon*
-
 And thus ended my time in Rome. Perhaps my time here was too short. But then again, one could keep learning about this city for a lifetime. Perhaps that was Jung's fear: to fall into an ocean of stories that you can never stop swimming through when there are other destinations calling.
 
-So farewell, Roma. A fond goodbye to dead stone and bottomless culture, to Italian traffic and aspiring pickpockets, to my own memories of a place that is fading into trivia and unlabelled photos with every turn of the earth.
-
-Ave atque vale. All roads lead somewhere. Or maybe they lead nowhere. But at least I'm glad I could make a brief detour for Rome
+So farewell, Roma. A fond goodbye to dead stone and bottomless culture, to Italian traffic and aspiring pickpockets, to my own memories of a place that is fading into trivia and unlabelled photos with every turn of the earth. Ave atque vale. All roads lead somewhere. Or maybe they lead nowhere. But at least I'm glad I could make a brief detour for Rome
 
 ## Venice (2014)
 
 *Posted 2 August 2020*
 
+> An oath, an oath, I have an oath in heaven.
+> Shall I lay perjury upon my soul?
+> No, not for Venice.
+>
+> -- William Shakespeare, The Merchant of Venice
+
 ![Photo essay: Venice (2014) — photo 1](/assets/travelbig/photo-essay-venice-01.jpg)
 
-An oath, an oath, I have an oath in heaven. Shall I lay perjury upon my soul? No, not for Venice. William Shakespeare, The Merchant of Venice There I was. Three days in Venice with little money and terrible weather. But even with the sombre dead skies and cold puddling ground, La Serenissima was beautiful.
-
-![Photo essay: Venice (2014) — photo 2](/assets/travelbig/photo-essay-venice-02.jpg)
+There I was. Three days in Venice with little money and terrible weather. But even with the sombre dead skies and cold puddling ground, La Serenissima was beautiful.
 
 Stepping out of Venezia Santa Lucia railway station was a displacement into the fanciful. Can there possibly be a more dramatic entrance into a new city? The Grand Canal right before you. Movements on the water. The puttering vaporettos. San Simeone Piccolo's striking green dome.
 
@@ -591,27 +592,17 @@ City of Bridges. City of Canals. City of Too Many Visitors. City of Bucket Lists
 
 I completely understood what that meant and yet my time in Venice also revealed so much more.
 
-![Photo essay: Venice (2014) — photo 3](/assets/travelbig/photo-essay-venice-03.jpg)
-
 Even now, seven years after the visit, I remember riding the water buses and being checked by the ticket inspectors. I can recall the chilly excitement and the hunger in my belly as I made my way to a pricey little hostel bed on the island of Guidecca. I still remember the itinerant romance of the city.
 
 Venice wholeheartedly deserves its indomitable status in the mind's eye. It was a commercial and cultural powerhouse throughout the Middle Ages and the Renaissance. It was the little city-state that transformed itself over the centuries, from a marshy saltwater town to the crown jewel of the Adriatic Sea.
 
-![Photo essay: Venice (2014) — photo 4](/assets/travelbig/photo-essay-venice-04.jpg)
-
 According to legend, Venice was founded by Roman refugees, who sought refuge in a swampy lagoon from Germanic and Hunnic invaders. Was Venice really founded as a sanctuary city amidst the crumbling of the Roman Empire? Regardless of the truths in legend, what began as scattered communities of peoples across 118 islands slowly coalesced into a fledgling republic under a Doge, a supreme authority elected for life by the city's aristocratic families.
 
-![Photo essay: Venice (2014) — photo 5](/assets/travelbig/photo-essay-venice-05.jpg)
-
 Venice's success was driven by globalisation in a time before globalisation as we know it. Its advantageous location in the region allowed it to ply a lucrative trade with both the Byzantine Empire and the Islamic world. Venice served as Europe's gateway to Asia via the Silk Road and by the late 14th century was the most prosperous city in all of Europe.
-
-![Photo essay: Venice (2014) — photo 6](/assets/travelbig/photo-essay-venice-06.jpg)
 
 Venice, of course, backed its magnificent wealth with military might, expanding its economic influence into an empire across the Italian mainland, the Balkan Peninsula, and beyond. Only by the 15th century, with the rise of powers like Portugal and the Ottoman Turks, did Venice's status begin to fade.
 
 But let us (briefly) pause on the history lesson. What does mighty Venice offer the visitor of today?
-
-![Photo essay: Venice (2014) — photo 7](/assets/travelbig/photo-essay-venice-07.jpg)
 
 Well, for one thing, Venice's network of canals is genuinely heaven for photographers. Its imagery --- even if you have seen it so many times in pictures --- is preeminently surreal in person. The thin floating houses. The balconies above the water. The Ponte dei Sospiri or Bridge of Sighs. The colourful pali da casada mooring poles.
 
@@ -619,61 +610,59 @@ Well, for one thing, Venice's network of canals is genuinely heaven for photogra
 
 And no visage of the canals is complete without its traditional, flat-bottomed gondolas. Once a common means of transportation in Venice, with thousands of these little crafts swarming the waterscape, these days they operate solely as an elegant (albeit, pricey) experience for tourists. There are currently around 400 licensed gondoliers in Venice and, alas, none of them charged a fixed rate that a broke backpacking student could afford.
 
-The centrepiece of Venice is without a doubt the Piazza San Marco, a vast public space bedecked the exotic facade of St Mark's Basilica, the immensity of St Mark's Campanile, the intricacies of the famous Clock Tower, and the rich colonnade of the Doge's Palace. And yes, even in the mist and the rain, with half the basilica hidden by scaffolding, this was a place worth attending to
+The centrepiece of Venice is without a doubt the Piazza San Marco, a vast public space bedecked the exotic facade of St Mark's Basilica, the immensity of St Mark's Campanile, the intricacies of the famous Clock Tower, and the rich colonnade of the Doge's Palace. And yes, even in the mist and the rain, with half the basilica hidden by scaffolding, this was a place worth attending to.
 
 ![Photo essay: Venice (2014) — photo 9](/assets/travelbig/photo-essay-venice-09.jpg)
 
 A view of the Grand Canal from Piazza San Marco with its two famous granite columns, one mounted with the winged Lion of Venice and the other with San Teodoro (Saint Theodore) in the act of spearing a dragon.
 
-The Patriarchal Cathedral Basilica of Saint Mark. Basilica di San Marco. The word that comes to mind when gazing at its structure is "fusion". With its blending of Islamic, Byzantine, and Italian artistic elements, the church represents the melting pot that Venice became through its maritime command.
-
 ![Photo essay: Venice (2014) — photo 10](/assets/travelbig/photo-essay-venice-10.jpg)
 
-Nicknamed Chiesa d'Oro or Church of Gold, the basilica is also a temple of material splendour with its opulent, golden mosaics. The original church was built to house the relics of Saint Mark after it was reputedly stolen by two Venetian merchants and smuggled out of Alexandria by boat. As the story goes, the body was concealed by pork products to dissuade Alexandria's Muslim custom officers from investigating the cargo too closely The original Triumphal Quadriga, a set of four bronze horses that were once mounted on the roofed open gallery of St Mark's Basilica, purposes, replica statues overlooking the piazza. For restoration currently stand in its original place. Of ancient Roman origin, the horses were famously stolen by Napoleon Bonaparte in 1797, before being returned to Venice eighteen years later.
+The Patriarchal Cathedral Basilica of Saint Mark. Basilica di San Marco. The word that comes to mind when gazing at its structure is "fusion". With its blending of Islamic, Byzantine, and Italian artistic elements, the church represents the melting pot that Venice became through its maritime command.
+
+Nicknamed Chiesa d'Oro or Church of Gold, the basilica is also a temple of material splendour with its opulent, golden mosaics. The original church was built to house the relics of Saint Mark after it was reputedly stolen by two Venetian merchants and smuggled out of Alexandria by boat. As the story goes, the body was concealed by pork products to dissuade Alexandria's Muslim custom officers from investigating the cargo too closely.
 
 ![Photo essay: Venice (2014) — photo 11](/assets/travelbig/photo-essay-venice-11.jpg)
 
-The Porta della Carta, the gothic ceremonial doorway into the Doge's Palace. Above the main entrance, Doge Francesco Foscari, the 65th Doge of the Venetian Republic, is depicted kneeling before the winged lion of St. Mark.
+The original Triumphal Quadriga, a set of four bronze horses that were once mounted on the roofed open gallery of St Mark’s Basilica, overlooking the piazza:
 
-Lavish and stately, the Doge's Palace, or Palazzo Ducale, was once the heart of Venetian government and the official residence of the Doge himself. Every little niche and turret tells a story of architecture, history, and culture.
+![Photo essay: Venice (2014) — photo 11a](/assets/travelbig/photo-essay-venice-11a.jpg)
+
+For restoration ​purposes, replica statues currently stand in its original place. Of ancient Roman origin, the horses were famously stolen by Napoleon Bonaparte in 1797, before being returned to Venice eighteen years later.
+ 
+The Porta della Carta, the gothic ceremonial doorway into the Doge's Palace:
 
 ![Photo essay: Venice (2014) — photo 12](/assets/travelbig/photo-essay-venice-12.jpg)
 
-Pictured above: The palace's large central courtyard (left) and the Golden Staircase or Scala d'Oro (right).
+Above the main entrance, Doge Francesco Foscari, the 65th Doge of the Venetian Republic, is depicted kneeling before the winged lion of St. Mark.
 
-The Giants' Staircase, another well-known feature of the Doge's Palace. It is named after the two statues of the Roman gods Mars and Neptune at the top of the staircase, representing Venice's might on land as well as at sea.
+Lavish and stately, the Doge's Palace, or Palazzo Ducale, was once the heart of Venetian government and the official residence of the Doge himself. Every little niche and turret tells a story of architecture, history, and culture. Imagine them back in the day, striding across the palace's large central courtyard. Ascending the the Golden Staircase, the Scala d'Oro. Descending the the Giants' Staircase, with its two statues of the Roman gods Mars and Neptune at the top, representing Venice's might on land as well as at sea, bearing down on the visitors. Waiting in the Chamber of the Great Council which was, without a doubt, the grandest room in the entire palace and was also at the time of construction, the largest meeting hall in all of Europe.
 
-![Photo essay: Venice (2014) — photo 13](/assets/travelbig/photo-essay-venice-13.jpg)
-
-The Chamber of the Great Council. Without a doubt, it is the grandest room in the entire palace and was also at the time of construction, the largest meeting hall in all of Europe.
-
-T orre dell'Orologio. The Clock Tower of St Mark's Square. A timekeeper that has been a part of the city for over 500 years, announcing the passing of hours and days for the entire Republic.
-
-From top to bottom of the tower: The bronze bell strikers, the ubiquitous winged Venetian lion, a statue of Madonna and Child on the balcony, and the exquisite blue timepiece itself, with its golden clock hand, zodiac signs, and starry backdrop.
+Torre dell'Orologio. The Clock Tower of St Mark's Square:
 
 ![Photo essay: Venice (2014) — photo 14](/assets/travelbig/photo-essay-venice-14.jpg)
 
-Pictured above: the Rialto Bridge lit-up at night. This beautiful marble bridge dates back to the Renaissance and is the oldest --- and most iconic --- of four bridges across Venice's Grand Canal.
+The timekeeper that has been a part of the city for over 500 years, announcing the passing of hours and days for the entire Republic. From top to bottom of the tower: The bronze bell strikers, the ubiquitous winged Venetian lion, a statue of Madonna and Child on the balcony, and the exquisite blue timepiece itself, with its golden clock hand, zodiac signs, and starry backdrop.
 
-The entrance to the Venetian Arsenal. The history of this unassuming place is epic. Back in the 12th century, it was the largest industrial site in all of Europe, capable of mass producing (centuries before the start of industrial mass production) an entire warship in a single day --- an astonishing feat for the time period.
+The Rialto Bridge lit-up at night:
 
-The great Italian scientist Galileo Galilei, the oft-called "father of modern science", was a frequent visitor to the Arsenal and even served as an engineering advisor there.
+![Photo essay: Venice (2014) — photo 14](/assets/travelbig/photo-essay-venice-14b.jpg)
+
+This beautiful marble bridge dates back to the Renaissance and is the oldest --- and most iconic --- of four bridges across Venice's Grand Canal.
+
+The entrance to the Venetian Arsenal:
+
+![Photo essay: Venice (2014) — photo 14](/assets/travelbig/photo-essay-venice-14c.jpg)
+
+The history of this unassuming place is epic. Back in the 12th century, it was the largest industrial site in all of Europe, capable of mass producing (centuries before the start of industrial mass production) an entire warship in a single day --- an astonishing feat for the time period. The great Italian scientist Galileo Galilei, the oft-called "father of modern science", was a frequent visitor to the Arsenal and even served as an engineering advisor there.
 
 And now to leave Venice proper for some short vaporetto rides to nearby islands...
 
-![Photo essay: Venice (2014) — photo 15](/assets/travelbig/photo-essay-venice-15.jpg)
-
-Isola di San Michele. An orange bricked necropolis. Almost the entire island is a walled-off cemetery and its grounds are very peaceful to visit (if you are so inclined). Just don't do what I did and slip on the wet boards propped against the stone steps. Thankfully, there was no one there to judge me but the tombstones.
-
-Murano: a popular island town near Venice that is world famous for its glass products. Although the traditional glassmaking profession is dwindling on the island, Murano's beautiful, artisanal glass is definitely still worth seeing. Make sure not to accidentally break anything in the shops.
-
-![Photo essay: Venice (2014) — photo 16](/assets/travelbig/photo-essay-venice-16.jpg)
-
-Likewise, Burano: a quaint, rainbow village that is also on its own little island in the lagoon. Admittedly rather damp and largely absent of visitors when I visited. The amusing, apocryphal story behind why the houses are so brightly painted is that it apparently helped fishermen returning from the sea to identify their own house in the fog.
+- Isola di San Michele. An orange bricked necropolis. Almost the entire island is a walled-off cemetery and its grounds are very peaceful to visit (if you are so inclined). Just don't do what I did and slip on the wet boards propped against the stone steps. Thankfully, there was no one there to judge me but the tombstones.
+- Murano: a popular island town near Venice that is world famous for its glass products. Although the traditional glassmaking profession is dwindling on the island, Murano's beautiful, artisanal glass is definitely still worth seeing. Make sure not to accidentally break anything in the shops.
+- Likewise, Burano: a quaint, rainbow village that is also on its own little island in the lagoon. Admittedly rather damp and largely absent of visitors when I visited. The amusing, apocryphal story behind why the houses are so brightly painted is that it apparently helped fishermen returning from the sea to identify their own house in the fog.
 
 These days, given the iconic status of the island, Burano's residents need government permission to paint their house a different colour.
-
-![Photo essay: Venice (2014) — photo 17](/assets/travelbig/photo-essay-venice-17.jpg)
 
 Move aside Pisa --- the Leaning Bell Tower of Burano is here. I briefly thought I had a problem with my eyes when I first noticed this teetering, unstable-looking campanile! Attached to the Church of San Martino, its extreme tilt is due to land subsidence.
 
@@ -683,13 +672,9 @@ Speaking of unstable situations... It is hard to talk about Venice these days an
 
 Visitor quotas. Special taxes. Flood barriers. Bans on cruise ships. Sustainable tourism. So many solutions have been suggested or implemented to address Venice's challenges. I can't claim any form of expertise on what should be done. All I can do is sadly acknowledge that I might never know this city ever again --- or rather, more to the point, this city of experiences that I and so many others have explored might dissolve away for good.
 
-![Photo essay: Venice (2014) — photo 19](/assets/travelbig/photo-essay-venice-19.jpg)
-
 On my last night in Venice, I escaped sideways into the depths of this city. Weaving through the empty water warrens of Cannaregio and Castello, I became one with the darkling walkways and dead-end bridges. I became one with the creaking boats and lapping stone steps I found myself in an unremarkable little square. They had not yet taken down the Christmas decorations. The street lamps gave the square a mulled, orange haze and I remember a football being kicked around by children.
 
 Had I finally found the real Venice? Or was this just another trick of the light?
-
-![Photo essay: Venice (2014) — photo 20](/assets/travelbig/photo-essay-venice-20.jpg)
 
 ## Prague (2014)
 
