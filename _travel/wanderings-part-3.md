@@ -562,9 +562,9 @@ This is the oldest Roman stone bridge (or more accurately, the oldest crumbling 
 
 The Circus Maximus at sunset, with Palantine Hill in the background: 
 
-It's hard to imagine what it must have been like all those centuries ago, with the roar of the crowd during the frenetic and often deadly chariot races. Today it is merely a sunken public park with a sandy oval. Sights like this remind me of the fascination that artists around the 18th century had with ruins, culminating in the fashionable "Capriccio" painting style which often placed small, quotidian human figures in utterly fantastical landscapes filled with immense, ancient ruins.
-
 ![Photo essay: Roma invicta (2013, 2014) — photo 25](/assets/travelbig/photo-essay-roma-invicta-25.jpg)
+
+It's hard to imagine what it must have been like all those centuries ago, with the roar of the crowd during the frenetic and often deadly chariot races. Today it is merely a sunken public park with a sandy oval. Sights like this remind me of the fascination that artists around the 18th century had with ruins, culminating in the fashionable "Capriccio" painting style which often placed small, quotidian human figures in utterly fantastical landscapes filled with immense, ancient ruins.
 
 I found this photo on my camera and could not place its location:
 
