@@ -951,49 +951,49 @@ The next evening, I had a hearty plate of Bavarian food at a restaurant for dinn
 
 ### Musée du Louvre, a poem
 
-Beyond the glass pyramids in the navel of Paris
-Was a collection so colossal it truly did scare us.
-The Louvre: the biggest art museum on the planet!
+Beyond the glass pyramids in the navel of Paris<br>
+Was a collection so colossal it truly did scare us.<br>
+The Louvre: the biggest art museum on the planet!<br>
 You couldn't see it all in one day, even if you ran it.
 
-Originally, it was the palace of a lavish dynasty
-Till it was opened up by revolutionaries in 1793.
-A vault of masterpieces unlocked for crowds;
+Originally, it was the palace of a lavish dynasty<br>
+Till it was opened up by revolutionaries in 1793.<br>
+A vault of masterpieces unlocked for crowds;<br>
 To this very day, its prestige is up in the clouds.
 
-But I'll say it right now -- Mona Lisa's overrated.
-Tourists rabble around her, crassly captivated,
-Ignoring the stunning art that shares her wing,
+But I'll say it right now -- Mona Lisa's overrated.<br>
+Tourists rabble around her, crassly captivated,<br>
+Ignoring the stunning art that shares her wing,<br>
 Other grand works that also merit worshipping.
 
-I loved Jacques-Louis David's dramatic stances, 
-Delacroix's motions, and Ingres's erotic glances;
-I loved the sculpture garden, bathed in whiteness,
+I loved Jacques-Louis David's dramatic stances,<br>
+Delacroix's motions, and Ingres's erotic glances;<br>
+I loved the sculpture garden, bathed in whiteness,<br>
 And the Apollo Gallery in all its stupid glitziness.
 
-But after a while, the images seem to roll on repeat,
-Like ugly Christ Childs suckling Holy Mother's teat,
-Medieval altarpieces displaying brutalised saints,
+But after a while, the images seem to roll on repeat,<br>
+Like ugly Christ Childs suckling Holy Mother's teat,<br>
+Medieval altarpieces displaying brutalised saints,<br>
 Or creepy Flemish reptile people in oily paints.
 
-More military portraits. More tortured passions. 
-Kitchen sink still lifes in all its Dutch fashions. 
-Long halls of Biblical and historical extracts...
+More military portraits. More tortured passions.<br>
+Kitchen sink still lifes in all its Dutch fashions.<br>
+Long halls of Biblical and historical extracts...<br>
 Long as the list of Louvre's ill-gotten artefacts.
 
-By the fifth hour, and with very little to eat,
-We began to feel art's burden on our tiny feet. 
-My friend turned and gave his main takeaway: 
+By the fifth hour, and with very little to eat,<br>
+We began to feel art's burden on our tiny feet.<br>
+My friend turned and gave his main takeaway:<br>
 "I've heard it's much better at Musee d'Orsay."
 
-The Greeks got a glance. The Etruscans, a blur. 
-I swear all these church icons are just to deter...
-We raced past old statues and so, so much more,
+The Greeks got a glance. The Etruscans, a blur.<br>
+I swear all these church icons are just to deter...<br>
+We raced past old statues and so, so much more,<br>
 Said hi to Venus de Milo, then bolted out the door.
 
-It was too much Louvre and just too much art; 
-It wafted past my head like an odourless fart. 
-Thus, I resign myself to a lack of sophistication 
+It was too much Louvre and just too much art;<br>
+It wafted past my head like an odourless fart.<br>
+Thus, I resign myself to a lack of sophistication<br>
 If only so my feet can regain some sensation.
 
 ## The Red Centre, Australia (2013)
