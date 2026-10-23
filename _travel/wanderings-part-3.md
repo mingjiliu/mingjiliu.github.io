@@ -1128,7 +1128,7 @@ A mountain track, a funicular, a ropeway, a sulphurous hike, and a lake cruise. 
 I was able to dip in some geothermal water, bask in the natural environment, revel in the sacred, and bumble around the modern and the touristy, all in one place. Hakone is truly a special corner of an incredible country.
 
 > *An old pond,*
-> *A frog jumps in*
+> *A frog jumps in.*
 > *Plop!*
 
 ## Hiroshima and Miyajima (2012)
