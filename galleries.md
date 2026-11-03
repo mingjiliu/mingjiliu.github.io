@@ -21,7 +21,7 @@ Travel photographs by Mingji Liu, organised by region, with an album for each pl
   <li><a href="https://oceania.mingjiliu.com/" target="_blank" rel="noopener">Oceania</a></li>
 </ul>
 
-All photographs are © Mingji Liu and licensed [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/). You're welcome to reuse them with attribution to Mingji Liu.
+All photographs are © Mingji Liu and licensed [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/).
 
 <script type="application/ld+json">
 {
